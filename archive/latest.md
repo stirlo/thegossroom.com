@@ -44,6 +44,33 @@ It is frankly impossible to have missed the many, many, many ads, memes, and off
 *Published on: Fri, 12 Jul 2024 14:16:25 GMT*
 
 
+## Tim Cook
+
+## [Bella Hadid Anoints the It-Sneaker of the Summer](https://www.highsnobiety.com/p/bella-hadid-adidas-sl72-outfit/)
+
+Move over, Sambas — there's a new adidas it-shoe in town, and Bella Hadid just gave it her blessing.The SL72 is a lightweight, low-cut sneaker first introduced…
+
+*Published on: Fri, 12 Jul 2024 15:14:00 GMT*
+
+
+## Tim Cook
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Fri, 12 Jul 2024 15:40:45 GMT*
+
+
+## Tim Cook
+
+## [New Balance's Chunkiest-Ever Running Shoe Goes Full HOKA](https://www.highsnobiety.com/p/new-balance-1080-v15-shoe/)
+
+New Balance's 1080 running shoes have been getting great as of late. So great, in fact, that you might mistake them for HOKA.Now, that's high praise — hardly a…
+
+*Published on: Fri, 12 Jul 2024 15:58:45 GMT*
+
+
 ## Taylor Swift
 
 ## [Kith's Beautifully Braided Birkenstocks Are Back](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
@@ -87,6 +114,33 @@ A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do c
 It is frankly impossible to have missed the many, many, many ads, memes, and official events Charli xcx's new full-length, BRAT , has birthed. Be it vast, gene…
 
 *Published on: Fri, 12 Jul 2024 14:16:25 GMT*
+
+
+## Taylor Swift
+
+## [Bella Hadid Anoints the It-Sneaker of the Summer](https://www.highsnobiety.com/p/bella-hadid-adidas-sl72-outfit/)
+
+Move over, Sambas — there's a new adidas it-shoe in town, and Bella Hadid just gave it her blessing.The SL72 is a lightweight, low-cut sneaker first introduced…
+
+*Published on: Fri, 12 Jul 2024 15:14:00 GMT*
+
+
+## Taylor Swift
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Fri, 12 Jul 2024 15:40:45 GMT*
+
+
+## Taylor Swift
+
+## [New Balance's Chunkiest-Ever Running Shoe Goes Full HOKA](https://www.highsnobiety.com/p/new-balance-1080-v15-shoe/)
+
+New Balance's 1080 running shoes have been getting great as of late. So great, in fact, that you might mistake them for HOKA.Now, that's high praise — hardly a…
+
+*Published on: Fri, 12 Jul 2024 15:58:45 GMT*
 
 
 ## Tom Brady
@@ -134,6 +188,33 @@ It is frankly impossible to have missed the many, many, many ads, memes, and off
 *Published on: Fri, 12 Jul 2024 14:16:25 GMT*
 
 
+## Tom Brady
+
+## [Bella Hadid Anoints the It-Sneaker of the Summer](https://www.highsnobiety.com/p/bella-hadid-adidas-sl72-outfit/)
+
+Move over, Sambas — there's a new adidas it-shoe in town, and Bella Hadid just gave it her blessing.The SL72 is a lightweight, low-cut sneaker first introduced…
+
+*Published on: Fri, 12 Jul 2024 15:14:00 GMT*
+
+
+## Tom Brady
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Fri, 12 Jul 2024 15:40:45 GMT*
+
+
+## Tom Brady
+
+## [New Balance's Chunkiest-Ever Running Shoe Goes Full HOKA](https://www.highsnobiety.com/p/new-balance-1080-v15-shoe/)
+
+New Balance's 1080 running shoes have been getting great as of late. So great, in fact, that you might mistake them for HOKA.Now, that's high praise — hardly a…
+
+*Published on: Fri, 12 Jul 2024 15:58:45 GMT*
+
+
 ## Tina Fey
 
 ## [Kith's Beautifully Braided Birkenstocks Are Back](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
@@ -177,6 +258,33 @@ A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do c
 It is frankly impossible to have missed the many, many, many ads, memes, and official events Charli xcx's new full-length, BRAT , has birthed. Be it vast, gene…
 
 *Published on: Fri, 12 Jul 2024 14:16:25 GMT*
+
+
+## Tina Fey
+
+## [Bella Hadid Anoints the It-Sneaker of the Summer](https://www.highsnobiety.com/p/bella-hadid-adidas-sl72-outfit/)
+
+Move over, Sambas — there's a new adidas it-shoe in town, and Bella Hadid just gave it her blessing.The SL72 is a lightweight, low-cut sneaker first introduced…
+
+*Published on: Fri, 12 Jul 2024 15:14:00 GMT*
+
+
+## Tina Fey
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Fri, 12 Jul 2024 15:40:45 GMT*
+
+
+## Tina Fey
+
+## [New Balance's Chunkiest-Ever Running Shoe Goes Full HOKA](https://www.highsnobiety.com/p/new-balance-1080-v15-shoe/)
+
+New Balance's 1080 running shoes have been getting great as of late. So great, in fact, that you might mistake them for HOKA.Now, that's high praise — hardly a…
+
+*Published on: Fri, 12 Jul 2024 15:58:45 GMT*
 
 
 ## Steven Yuen
@@ -224,6 +332,33 @@ It is frankly impossible to have missed the many, many, many ads, memes, and off
 *Published on: Fri, 12 Jul 2024 14:16:25 GMT*
 
 
+## Steven Yuen
+
+## [Bella Hadid Anoints the It-Sneaker of the Summer](https://www.highsnobiety.com/p/bella-hadid-adidas-sl72-outfit/)
+
+Move over, Sambas — there's a new adidas it-shoe in town, and Bella Hadid just gave it her blessing.The SL72 is a lightweight, low-cut sneaker first introduced…
+
+*Published on: Fri, 12 Jul 2024 15:14:00 GMT*
+
+
+## Steven Yuen
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Fri, 12 Jul 2024 15:40:45 GMT*
+
+
+## Steven Yuen
+
+## [New Balance's Chunkiest-Ever Running Shoe Goes Full HOKA](https://www.highsnobiety.com/p/new-balance-1080-v15-shoe/)
+
+New Balance's 1080 running shoes have been getting great as of late. So great, in fact, that you might mistake them for HOKA.Now, that's high praise — hardly a…
+
+*Published on: Fri, 12 Jul 2024 15:58:45 GMT*
+
+
 ## Sommer Ray
 
 ## [Kith's Beautifully Braided Birkenstocks Are Back](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
@@ -267,6 +402,33 @@ A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do c
 It is frankly impossible to have missed the many, many, many ads, memes, and official events Charli xcx's new full-length, BRAT , has birthed. Be it vast, gene…
 
 *Published on: Fri, 12 Jul 2024 14:16:25 GMT*
+
+
+## Sommer Ray
+
+## [Bella Hadid Anoints the It-Sneaker of the Summer](https://www.highsnobiety.com/p/bella-hadid-adidas-sl72-outfit/)
+
+Move over, Sambas — there's a new adidas it-shoe in town, and Bella Hadid just gave it her blessing.The SL72 is a lightweight, low-cut sneaker first introduced…
+
+*Published on: Fri, 12 Jul 2024 15:14:00 GMT*
+
+
+## Sommer Ray
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Fri, 12 Jul 2024 15:40:45 GMT*
+
+
+## Sommer Ray
+
+## [New Balance's Chunkiest-Ever Running Shoe Goes Full HOKA](https://www.highsnobiety.com/p/new-balance-1080-v15-shoe/)
+
+New Balance's 1080 running shoes have been getting great as of late. So great, in fact, that you might mistake them for HOKA.Now, that's high praise — hardly a…
+
+*Published on: Fri, 12 Jul 2024 15:58:45 GMT*
 
 
 ## Sza
@@ -314,6 +476,33 @@ It is frankly impossible to have missed the many, many, many ads, memes, and off
 *Published on: Fri, 12 Jul 2024 14:16:25 GMT*
 
 
+## Sza
+
+## [Bella Hadid Anoints the It-Sneaker of the Summer](https://www.highsnobiety.com/p/bella-hadid-adidas-sl72-outfit/)
+
+Move over, Sambas — there's a new adidas it-shoe in town, and Bella Hadid just gave it her blessing.The SL72 is a lightweight, low-cut sneaker first introduced…
+
+*Published on: Fri, 12 Jul 2024 15:14:00 GMT*
+
+
+## Sza
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Fri, 12 Jul 2024 15:40:45 GMT*
+
+
+## Sza
+
+## [New Balance's Chunkiest-Ever Running Shoe Goes Full HOKA](https://www.highsnobiety.com/p/new-balance-1080-v15-shoe/)
+
+New Balance's 1080 running shoes have been getting great as of late. So great, in fact, that you might mistake them for HOKA.Now, that's high praise — hardly a…
+
+*Published on: Fri, 12 Jul 2024 15:58:45 GMT*
+
+
 ## Sydney Sweeney
 
 ## [Kith's Beautifully Braided Birkenstocks Are Back](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
@@ -357,6 +546,33 @@ A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do c
 It is frankly impossible to have missed the many, many, many ads, memes, and official events Charli xcx's new full-length, BRAT , has birthed. Be it vast, gene…
 
 *Published on: Fri, 12 Jul 2024 14:16:25 GMT*
+
+
+## Sydney Sweeney
+
+## [Bella Hadid Anoints the It-Sneaker of the Summer](https://www.highsnobiety.com/p/bella-hadid-adidas-sl72-outfit/)
+
+Move over, Sambas — there's a new adidas it-shoe in town, and Bella Hadid just gave it her blessing.The SL72 is a lightweight, low-cut sneaker first introduced…
+
+*Published on: Fri, 12 Jul 2024 15:14:00 GMT*
+
+
+## Sydney Sweeney
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Fri, 12 Jul 2024 15:40:45 GMT*
+
+
+## Sydney Sweeney
+
+## [New Balance's Chunkiest-Ever Running Shoe Goes Full HOKA](https://www.highsnobiety.com/p/new-balance-1080-v15-shoe/)
+
+New Balance's 1080 running shoes have been getting great as of late. So great, in fact, that you might mistake them for HOKA.Now, that's high praise — hardly a…
+
+*Published on: Fri, 12 Jul 2024 15:58:45 GMT*
 
 
 ## Walton Goggins
@@ -404,6 +620,33 @@ It is frankly impossible to have missed the many, many, many ads, memes, and off
 *Published on: Fri, 12 Jul 2024 14:16:25 GMT*
 
 
+## Walton Goggins
+
+## [Bella Hadid Anoints the It-Sneaker of the Summer](https://www.highsnobiety.com/p/bella-hadid-adidas-sl72-outfit/)
+
+Move over, Sambas — there's a new adidas it-shoe in town, and Bella Hadid just gave it her blessing.The SL72 is a lightweight, low-cut sneaker first introduced…
+
+*Published on: Fri, 12 Jul 2024 15:14:00 GMT*
+
+
+## Walton Goggins
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Fri, 12 Jul 2024 15:40:45 GMT*
+
+
+## Walton Goggins
+
+## [New Balance's Chunkiest-Ever Running Shoe Goes Full HOKA](https://www.highsnobiety.com/p/new-balance-1080-v15-shoe/)
+
+New Balance's 1080 running shoes have been getting great as of late. So great, in fact, that you might mistake them for HOKA.Now, that's high praise — hardly a…
+
+*Published on: Fri, 12 Jul 2024 15:58:45 GMT*
+
+
 ## Tom Holland
 
 ## [Kith's Beautifully Braided Birkenstocks Are Back](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
@@ -447,6 +690,33 @@ A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do c
 It is frankly impossible to have missed the many, many, many ads, memes, and official events Charli xcx's new full-length, BRAT , has birthed. Be it vast, gene…
 
 *Published on: Fri, 12 Jul 2024 14:16:25 GMT*
+
+
+## Tom Holland
+
+## [Bella Hadid Anoints the It-Sneaker of the Summer](https://www.highsnobiety.com/p/bella-hadid-adidas-sl72-outfit/)
+
+Move over, Sambas — there's a new adidas it-shoe in town, and Bella Hadid just gave it her blessing.The SL72 is a lightweight, low-cut sneaker first introduced…
+
+*Published on: Fri, 12 Jul 2024 15:14:00 GMT*
+
+
+## Tom Holland
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Fri, 12 Jul 2024 15:40:45 GMT*
+
+
+## Tom Holland
+
+## [New Balance's Chunkiest-Ever Running Shoe Goes Full HOKA](https://www.highsnobiety.com/p/new-balance-1080-v15-shoe/)
+
+New Balance's 1080 running shoes have been getting great as of late. So great, in fact, that you might mistake them for HOKA.Now, that's high praise — hardly a…
+
+*Published on: Fri, 12 Jul 2024 15:58:45 GMT*
 
 
 ## Gucci Mane
@@ -494,6 +764,33 @@ It is frankly impossible to have missed the many, many, many ads, memes, and off
 *Published on: Fri, 12 Jul 2024 14:16:25 GMT*
 
 
+## Gucci Mane
+
+## [Bella Hadid Anoints the It-Sneaker of the Summer](https://www.highsnobiety.com/p/bella-hadid-adidas-sl72-outfit/)
+
+Move over, Sambas — there's a new adidas it-shoe in town, and Bella Hadid just gave it her blessing.The SL72 is a lightweight, low-cut sneaker first introduced…
+
+*Published on: Fri, 12 Jul 2024 15:14:00 GMT*
+
+
+## Gucci Mane
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Fri, 12 Jul 2024 15:40:45 GMT*
+
+
+## Gucci Mane
+
+## [New Balance's Chunkiest-Ever Running Shoe Goes Full HOKA](https://www.highsnobiety.com/p/new-balance-1080-v15-shoe/)
+
+New Balance's 1080 running shoes have been getting great as of late. So great, in fact, that you might mistake them for HOKA.Now, that's high praise — hardly a…
+
+*Published on: Fri, 12 Jul 2024 15:58:45 GMT*
+
+
 ## Harry Styles
 
 ## [Kith's Beautifully Braided Birkenstocks Are Back](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
@@ -537,6 +834,33 @@ A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do c
 It is frankly impossible to have missed the many, many, many ads, memes, and official events Charli xcx's new full-length, BRAT , has birthed. Be it vast, gene…
 
 *Published on: Fri, 12 Jul 2024 14:16:25 GMT*
+
+
+## Harry Styles
+
+## [Bella Hadid Anoints the It-Sneaker of the Summer](https://www.highsnobiety.com/p/bella-hadid-adidas-sl72-outfit/)
+
+Move over, Sambas — there's a new adidas it-shoe in town, and Bella Hadid just gave it her blessing.The SL72 is a lightweight, low-cut sneaker first introduced…
+
+*Published on: Fri, 12 Jul 2024 15:14:00 GMT*
+
+
+## Harry Styles
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Fri, 12 Jul 2024 15:40:45 GMT*
+
+
+## Harry Styles
+
+## [New Balance's Chunkiest-Ever Running Shoe Goes Full HOKA](https://www.highsnobiety.com/p/new-balance-1080-v15-shoe/)
+
+New Balance's 1080 running shoes have been getting great as of late. So great, in fact, that you might mistake them for HOKA.Now, that's high praise — hardly a…
+
+*Published on: Fri, 12 Jul 2024 15:58:45 GMT*
 
 
 ## Jake Paul
@@ -584,6 +908,33 @@ It is frankly impossible to have missed the many, many, many ads, memes, and off
 *Published on: Fri, 12 Jul 2024 14:16:25 GMT*
 
 
+## Jake Paul
+
+## [Bella Hadid Anoints the It-Sneaker of the Summer](https://www.highsnobiety.com/p/bella-hadid-adidas-sl72-outfit/)
+
+Move over, Sambas — there's a new adidas it-shoe in town, and Bella Hadid just gave it her blessing.The SL72 is a lightweight, low-cut sneaker first introduced…
+
+*Published on: Fri, 12 Jul 2024 15:14:00 GMT*
+
+
+## Jake Paul
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Fri, 12 Jul 2024 15:40:45 GMT*
+
+
+## Jake Paul
+
+## [New Balance's Chunkiest-Ever Running Shoe Goes Full HOKA](https://www.highsnobiety.com/p/new-balance-1080-v15-shoe/)
+
+New Balance's 1080 running shoes have been getting great as of late. So great, in fact, that you might mistake them for HOKA.Now, that's high praise — hardly a…
+
+*Published on: Fri, 12 Jul 2024 15:58:45 GMT*
+
+
 ## Jameela Jamil
 
 ## [Kith's Beautifully Braided Birkenstocks Are Back](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
@@ -627,6 +978,33 @@ A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do c
 It is frankly impossible to have missed the many, many, many ads, memes, and official events Charli xcx's new full-length, BRAT , has birthed. Be it vast, gene…
 
 *Published on: Fri, 12 Jul 2024 14:16:25 GMT*
+
+
+## Jameela Jamil
+
+## [Bella Hadid Anoints the It-Sneaker of the Summer](https://www.highsnobiety.com/p/bella-hadid-adidas-sl72-outfit/)
+
+Move over, Sambas — there's a new adidas it-shoe in town, and Bella Hadid just gave it her blessing.The SL72 is a lightweight, low-cut sneaker first introduced…
+
+*Published on: Fri, 12 Jul 2024 15:14:00 GMT*
+
+
+## Jameela Jamil
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Fri, 12 Jul 2024 15:40:45 GMT*
+
+
+## Jameela Jamil
+
+## [New Balance's Chunkiest-Ever Running Shoe Goes Full HOKA](https://www.highsnobiety.com/p/new-balance-1080-v15-shoe/)
+
+New Balance's 1080 running shoes have been getting great as of late. So great, in fact, that you might mistake them for HOKA.Now, that's high praise — hardly a…
+
+*Published on: Fri, 12 Jul 2024 15:58:45 GMT*
 
 
 ## Elon Musk
@@ -674,6 +1052,33 @@ It is frankly impossible to have missed the many, many, many ads, memes, and off
 *Published on: Fri, 12 Jul 2024 14:16:25 GMT*
 
 
+## Elon Musk
+
+## [Bella Hadid Anoints the It-Sneaker of the Summer](https://www.highsnobiety.com/p/bella-hadid-adidas-sl72-outfit/)
+
+Move over, Sambas — there's a new adidas it-shoe in town, and Bella Hadid just gave it her blessing.The SL72 is a lightweight, low-cut sneaker first introduced…
+
+*Published on: Fri, 12 Jul 2024 15:14:00 GMT*
+
+
+## Elon Musk
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Fri, 12 Jul 2024 15:40:45 GMT*
+
+
+## Elon Musk
+
+## [New Balance's Chunkiest-Ever Running Shoe Goes Full HOKA](https://www.highsnobiety.com/p/new-balance-1080-v15-shoe/)
+
+New Balance's 1080 running shoes have been getting great as of late. So great, in fact, that you might mistake them for HOKA.Now, that's high praise — hardly a…
+
+*Published on: Fri, 12 Jul 2024 15:58:45 GMT*
+
+
 ## Gabrielle Union
 
 ## [Kith's Beautifully Braided Birkenstocks Are Back](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
@@ -717,6 +1122,33 @@ A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do c
 It is frankly impossible to have missed the many, many, many ads, memes, and official events Charli xcx's new full-length, BRAT , has birthed. Be it vast, gene…
 
 *Published on: Fri, 12 Jul 2024 14:16:25 GMT*
+
+
+## Gabrielle Union
+
+## [Bella Hadid Anoints the It-Sneaker of the Summer](https://www.highsnobiety.com/p/bella-hadid-adidas-sl72-outfit/)
+
+Move over, Sambas — there's a new adidas it-shoe in town, and Bella Hadid just gave it her blessing.The SL72 is a lightweight, low-cut sneaker first introduced…
+
+*Published on: Fri, 12 Jul 2024 15:14:00 GMT*
+
+
+## Gabrielle Union
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Fri, 12 Jul 2024 15:40:45 GMT*
+
+
+## Gabrielle Union
+
+## [New Balance's Chunkiest-Ever Running Shoe Goes Full HOKA](https://www.highsnobiety.com/p/new-balance-1080-v15-shoe/)
+
+New Balance's 1080 running shoes have been getting great as of late. So great, in fact, that you might mistake them for HOKA.Now, that's high praise — hardly a…
+
+*Published on: Fri, 12 Jul 2024 15:58:45 GMT*
 
 
 ## Giancarlo Esposito
@@ -764,6 +1196,33 @@ It is frankly impossible to have missed the many, many, many ads, memes, and off
 *Published on: Fri, 12 Jul 2024 14:16:25 GMT*
 
 
+## Giancarlo Esposito
+
+## [Bella Hadid Anoints the It-Sneaker of the Summer](https://www.highsnobiety.com/p/bella-hadid-adidas-sl72-outfit/)
+
+Move over, Sambas — there's a new adidas it-shoe in town, and Bella Hadid just gave it her blessing.The SL72 is a lightweight, low-cut sneaker first introduced…
+
+*Published on: Fri, 12 Jul 2024 15:14:00 GMT*
+
+
+## Giancarlo Esposito
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Fri, 12 Jul 2024 15:40:45 GMT*
+
+
+## Giancarlo Esposito
+
+## [New Balance's Chunkiest-Ever Running Shoe Goes Full HOKA](https://www.highsnobiety.com/p/new-balance-1080-v15-shoe/)
+
+New Balance's 1080 running shoes have been getting great as of late. So great, in fact, that you might mistake them for HOKA.Now, that's high praise — hardly a…
+
+*Published on: Fri, 12 Jul 2024 15:58:45 GMT*
+
+
 ## Gillian Jacobs
 
 ## [Kith's Beautifully Braided Birkenstocks Are Back](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
@@ -807,6 +1266,33 @@ A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do c
 It is frankly impossible to have missed the many, many, many ads, memes, and official events Charli xcx's new full-length, BRAT , has birthed. Be it vast, gene…
 
 *Published on: Fri, 12 Jul 2024 14:16:25 GMT*
+
+
+## Gillian Jacobs
+
+## [Bella Hadid Anoints the It-Sneaker of the Summer](https://www.highsnobiety.com/p/bella-hadid-adidas-sl72-outfit/)
+
+Move over, Sambas — there's a new adidas it-shoe in town, and Bella Hadid just gave it her blessing.The SL72 is a lightweight, low-cut sneaker first introduced…
+
+*Published on: Fri, 12 Jul 2024 15:14:00 GMT*
+
+
+## Gillian Jacobs
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Fri, 12 Jul 2024 15:40:45 GMT*
+
+
+## Gillian Jacobs
+
+## [New Balance's Chunkiest-Ever Running Shoe Goes Full HOKA](https://www.highsnobiety.com/p/new-balance-1080-v15-shoe/)
+
+New Balance's 1080 running shoes have been getting great as of late. So great, in fact, that you might mistake them for HOKA.Now, that's high praise — hardly a…
+
+*Published on: Fri, 12 Jul 2024 15:58:45 GMT*
 
 
 ## Jason Mantzoukas
@@ -854,6 +1340,33 @@ It is frankly impossible to have missed the many, many, many ads, memes, and off
 *Published on: Fri, 12 Jul 2024 14:16:25 GMT*
 
 
+## Jason Mantzoukas
+
+## [Bella Hadid Anoints the It-Sneaker of the Summer](https://www.highsnobiety.com/p/bella-hadid-adidas-sl72-outfit/)
+
+Move over, Sambas — there's a new adidas it-shoe in town, and Bella Hadid just gave it her blessing.The SL72 is a lightweight, low-cut sneaker first introduced…
+
+*Published on: Fri, 12 Jul 2024 15:14:00 GMT*
+
+
+## Jason Mantzoukas
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Fri, 12 Jul 2024 15:40:45 GMT*
+
+
+## Jason Mantzoukas
+
+## [New Balance's Chunkiest-Ever Running Shoe Goes Full HOKA](https://www.highsnobiety.com/p/new-balance-1080-v15-shoe/)
+
+New Balance's 1080 running shoes have been getting great as of late. So great, in fact, that you might mistake them for HOKA.Now, that's high praise — hardly a…
+
+*Published on: Fri, 12 Jul 2024 15:58:45 GMT*
+
+
 ## JB Smoove
 
 ## [Kith's Beautifully Braided Birkenstocks Are Back](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
@@ -897,6 +1410,33 @@ A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do c
 It is frankly impossible to have missed the many, many, many ads, memes, and official events Charli xcx's new full-length, BRAT , has birthed. Be it vast, gene…
 
 *Published on: Fri, 12 Jul 2024 14:16:25 GMT*
+
+
+## JB Smoove
+
+## [Bella Hadid Anoints the It-Sneaker of the Summer](https://www.highsnobiety.com/p/bella-hadid-adidas-sl72-outfit/)
+
+Move over, Sambas — there's a new adidas it-shoe in town, and Bella Hadid just gave it her blessing.The SL72 is a lightweight, low-cut sneaker first introduced…
+
+*Published on: Fri, 12 Jul 2024 15:14:00 GMT*
+
+
+## JB Smoove
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Fri, 12 Jul 2024 15:40:45 GMT*
+
+
+## JB Smoove
+
+## [New Balance's Chunkiest-Ever Running Shoe Goes Full HOKA](https://www.highsnobiety.com/p/new-balance-1080-v15-shoe/)
+
+New Balance's 1080 running shoes have been getting great as of late. So great, in fact, that you might mistake them for HOKA.Now, that's high praise — hardly a…
+
+*Published on: Fri, 12 Jul 2024 15:58:45 GMT*
 
 
 ## Madison Pettis
@@ -944,6 +1484,33 @@ It is frankly impossible to have missed the many, many, many ads, memes, and off
 *Published on: Fri, 12 Jul 2024 14:16:25 GMT*
 
 
+## Madison Pettis
+
+## [Bella Hadid Anoints the It-Sneaker of the Summer](https://www.highsnobiety.com/p/bella-hadid-adidas-sl72-outfit/)
+
+Move over, Sambas — there's a new adidas it-shoe in town, and Bella Hadid just gave it her blessing.The SL72 is a lightweight, low-cut sneaker first introduced…
+
+*Published on: Fri, 12 Jul 2024 15:14:00 GMT*
+
+
+## Madison Pettis
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Fri, 12 Jul 2024 15:40:45 GMT*
+
+
+## Madison Pettis
+
+## [New Balance's Chunkiest-Ever Running Shoe Goes Full HOKA](https://www.highsnobiety.com/p/new-balance-1080-v15-shoe/)
+
+New Balance's 1080 running shoes have been getting great as of late. So great, in fact, that you might mistake them for HOKA.Now, that's high praise — hardly a…
+
+*Published on: Fri, 12 Jul 2024 15:58:45 GMT*
+
+
 ## Austin Butler
 
 ## [Kith's Beautifully Braided Birkenstocks Are Back](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
@@ -987,6 +1554,33 @@ A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do c
 It is frankly impossible to have missed the many, many, many ads, memes, and official events Charli xcx's new full-length, BRAT , has birthed. Be it vast, gene…
 
 *Published on: Fri, 12 Jul 2024 14:16:25 GMT*
+
+
+## Austin Butler
+
+## [Bella Hadid Anoints the It-Sneaker of the Summer](https://www.highsnobiety.com/p/bella-hadid-adidas-sl72-outfit/)
+
+Move over, Sambas — there's a new adidas it-shoe in town, and Bella Hadid just gave it her blessing.The SL72 is a lightweight, low-cut sneaker first introduced…
+
+*Published on: Fri, 12 Jul 2024 15:14:00 GMT*
+
+
+## Austin Butler
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Fri, 12 Jul 2024 15:40:45 GMT*
+
+
+## Austin Butler
+
+## [New Balance's Chunkiest-Ever Running Shoe Goes Full HOKA](https://www.highsnobiety.com/p/new-balance-1080-v15-shoe/)
+
+New Balance's 1080 running shoes have been getting great as of late. So great, in fact, that you might mistake them for HOKA.Now, that's high praise — hardly a…
+
+*Published on: Fri, 12 Jul 2024 15:58:45 GMT*
 
 
 ## Mark Zuckerberg
@@ -1034,6 +1628,33 @@ It is frankly impossible to have missed the many, many, many ads, memes, and off
 *Published on: Fri, 12 Jul 2024 14:16:25 GMT*
 
 
+## Mark Zuckerberg
+
+## [Bella Hadid Anoints the It-Sneaker of the Summer](https://www.highsnobiety.com/p/bella-hadid-adidas-sl72-outfit/)
+
+Move over, Sambas — there's a new adidas it-shoe in town, and Bella Hadid just gave it her blessing.The SL72 is a lightweight, low-cut sneaker first introduced…
+
+*Published on: Fri, 12 Jul 2024 15:14:00 GMT*
+
+
+## Mark Zuckerberg
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Fri, 12 Jul 2024 15:40:45 GMT*
+
+
+## Mark Zuckerberg
+
+## [New Balance's Chunkiest-Ever Running Shoe Goes Full HOKA](https://www.highsnobiety.com/p/new-balance-1080-v15-shoe/)
+
+New Balance's 1080 running shoes have been getting great as of late. So great, in fact, that you might mistake them for HOKA.Now, that's high praise — hardly a…
+
+*Published on: Fri, 12 Jul 2024 15:58:45 GMT*
+
+
 ## Ariana Grande
 
 ## [Kith's Beautifully Braided Birkenstocks Are Back](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
@@ -1077,6 +1698,33 @@ A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do c
 It is frankly impossible to have missed the many, many, many ads, memes, and official events Charli xcx's new full-length, BRAT , has birthed. Be it vast, gene…
 
 *Published on: Fri, 12 Jul 2024 14:16:25 GMT*
+
+
+## Ariana Grande
+
+## [Bella Hadid Anoints the It-Sneaker of the Summer](https://www.highsnobiety.com/p/bella-hadid-adidas-sl72-outfit/)
+
+Move over, Sambas — there's a new adidas it-shoe in town, and Bella Hadid just gave it her blessing.The SL72 is a lightweight, low-cut sneaker first introduced…
+
+*Published on: Fri, 12 Jul 2024 15:14:00 GMT*
+
+
+## Ariana Grande
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Fri, 12 Jul 2024 15:40:45 GMT*
+
+
+## Ariana Grande
+
+## [New Balance's Chunkiest-Ever Running Shoe Goes Full HOKA](https://www.highsnobiety.com/p/new-balance-1080-v15-shoe/)
+
+New Balance's 1080 running shoes have been getting great as of late. So great, in fact, that you might mistake them for HOKA.Now, that's high praise — hardly a…
+
+*Published on: Fri, 12 Jul 2024 15:58:45 GMT*
 
 
 ## Livvy Dunne
@@ -1124,6 +1772,33 @@ It is frankly impossible to have missed the many, many, many ads, memes, and off
 *Published on: Fri, 12 Jul 2024 14:16:25 GMT*
 
 
+## Livvy Dunne
+
+## [Bella Hadid Anoints the It-Sneaker of the Summer](https://www.highsnobiety.com/p/bella-hadid-adidas-sl72-outfit/)
+
+Move over, Sambas — there's a new adidas it-shoe in town, and Bella Hadid just gave it her blessing.The SL72 is a lightweight, low-cut sneaker first introduced…
+
+*Published on: Fri, 12 Jul 2024 15:14:00 GMT*
+
+
+## Livvy Dunne
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Fri, 12 Jul 2024 15:40:45 GMT*
+
+
+## Livvy Dunne
+
+## [New Balance's Chunkiest-Ever Running Shoe Goes Full HOKA](https://www.highsnobiety.com/p/new-balance-1080-v15-shoe/)
+
+New Balance's 1080 running shoes have been getting great as of late. So great, in fact, that you might mistake them for HOKA.Now, that's high praise — hardly a…
+
+*Published on: Fri, 12 Jul 2024 15:58:45 GMT*
+
+
 ## Ali Wong
 
 ## [Kith's Beautifully Braided Birkenstocks Are Back](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
@@ -1167,6 +1842,33 @@ A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do c
 It is frankly impossible to have missed the many, many, many ads, memes, and official events Charli xcx's new full-length, BRAT , has birthed. Be it vast, gene…
 
 *Published on: Fri, 12 Jul 2024 14:16:25 GMT*
+
+
+## Ali Wong
+
+## [Bella Hadid Anoints the It-Sneaker of the Summer](https://www.highsnobiety.com/p/bella-hadid-adidas-sl72-outfit/)
+
+Move over, Sambas — there's a new adidas it-shoe in town, and Bella Hadid just gave it her blessing.The SL72 is a lightweight, low-cut sneaker first introduced…
+
+*Published on: Fri, 12 Jul 2024 15:14:00 GMT*
+
+
+## Ali Wong
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Fri, 12 Jul 2024 15:40:45 GMT*
+
+
+## Ali Wong
+
+## [New Balance's Chunkiest-Ever Running Shoe Goes Full HOKA](https://www.highsnobiety.com/p/new-balance-1080-v15-shoe/)
+
+New Balance's 1080 running shoes have been getting great as of late. So great, in fact, that you might mistake them for HOKA.Now, that's high praise — hardly a…
+
+*Published on: Fri, 12 Jul 2024 15:58:45 GMT*
 
 
 ## Lizzo
@@ -1214,6 +1916,33 @@ It is frankly impossible to have missed the many, many, many ads, memes, and off
 *Published on: Fri, 12 Jul 2024 14:16:25 GMT*
 
 
+## Lizzo
+
+## [Bella Hadid Anoints the It-Sneaker of the Summer](https://www.highsnobiety.com/p/bella-hadid-adidas-sl72-outfit/)
+
+Move over, Sambas — there's a new adidas it-shoe in town, and Bella Hadid just gave it her blessing.The SL72 is a lightweight, low-cut sneaker first introduced…
+
+*Published on: Fri, 12 Jul 2024 15:14:00 GMT*
+
+
+## Lizzo
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Fri, 12 Jul 2024 15:40:45 GMT*
+
+
+## Lizzo
+
+## [New Balance's Chunkiest-Ever Running Shoe Goes Full HOKA](https://www.highsnobiety.com/p/new-balance-1080-v15-shoe/)
+
+New Balance's 1080 running shoes have been getting great as of late. So great, in fact, that you might mistake them for HOKA.Now, that's high praise — hardly a…
+
+*Published on: Fri, 12 Jul 2024 15:58:45 GMT*
+
+
 ## Alison Brie
 
 ## [Kith's Beautifully Braided Birkenstocks Are Back](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
@@ -1257,6 +1986,33 @@ A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do c
 It is frankly impossible to have missed the many, many, many ads, memes, and official events Charli xcx's new full-length, BRAT , has birthed. Be it vast, gene…
 
 *Published on: Fri, 12 Jul 2024 14:16:25 GMT*
+
+
+## Alison Brie
+
+## [Bella Hadid Anoints the It-Sneaker of the Summer](https://www.highsnobiety.com/p/bella-hadid-adidas-sl72-outfit/)
+
+Move over, Sambas — there's a new adidas it-shoe in town, and Bella Hadid just gave it her blessing.The SL72 is a lightweight, low-cut sneaker first introduced…
+
+*Published on: Fri, 12 Jul 2024 15:14:00 GMT*
+
+
+## Alison Brie
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Fri, 12 Jul 2024 15:40:45 GMT*
+
+
+## Alison Brie
+
+## [New Balance's Chunkiest-Ever Running Shoe Goes Full HOKA](https://www.highsnobiety.com/p/new-balance-1080-v15-shoe/)
+
+New Balance's 1080 running shoes have been getting great as of late. So great, in fact, that you might mistake them for HOKA.Now, that's high praise — hardly a…
+
+*Published on: Fri, 12 Jul 2024 15:58:45 GMT*
 
 
 ## Lil Wayne
@@ -1304,6 +2060,33 @@ It is frankly impossible to have missed the many, many, many ads, memes, and off
 *Published on: Fri, 12 Jul 2024 14:16:25 GMT*
 
 
+## Lil Wayne
+
+## [Bella Hadid Anoints the It-Sneaker of the Summer](https://www.highsnobiety.com/p/bella-hadid-adidas-sl72-outfit/)
+
+Move over, Sambas — there's a new adidas it-shoe in town, and Bella Hadid just gave it her blessing.The SL72 is a lightweight, low-cut sneaker first introduced…
+
+*Published on: Fri, 12 Jul 2024 15:14:00 GMT*
+
+
+## Lil Wayne
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Fri, 12 Jul 2024 15:40:45 GMT*
+
+
+## Lil Wayne
+
+## [New Balance's Chunkiest-Ever Running Shoe Goes Full HOKA](https://www.highsnobiety.com/p/new-balance-1080-v15-shoe/)
+
+New Balance's 1080 running shoes have been getting great as of late. So great, in fact, that you might mistake them for HOKA.Now, that's high praise — hardly a…
+
+*Published on: Fri, 12 Jul 2024 15:58:45 GMT*
+
+
 ## Adele
 
 ## [Kith's Beautifully Braided Birkenstocks Are Back](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
@@ -1347,6 +2130,33 @@ A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do c
 It is frankly impossible to have missed the many, many, many ads, memes, and official events Charli xcx's new full-length, BRAT , has birthed. Be it vast, gene…
 
 *Published on: Fri, 12 Jul 2024 14:16:25 GMT*
+
+
+## Adele
+
+## [Bella Hadid Anoints the It-Sneaker of the Summer](https://www.highsnobiety.com/p/bella-hadid-adidas-sl72-outfit/)
+
+Move over, Sambas — there's a new adidas it-shoe in town, and Bella Hadid just gave it her blessing.The SL72 is a lightweight, low-cut sneaker first introduced…
+
+*Published on: Fri, 12 Jul 2024 15:14:00 GMT*
+
+
+## Adele
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Fri, 12 Jul 2024 15:40:45 GMT*
+
+
+## Adele
+
+## [New Balance's Chunkiest-Ever Running Shoe Goes Full HOKA](https://www.highsnobiety.com/p/new-balance-1080-v15-shoe/)
+
+New Balance's 1080 running shoes have been getting great as of late. So great, in fact, that you might mistake them for HOKA.Now, that's high praise — hardly a…
+
+*Published on: Fri, 12 Jul 2024 15:58:45 GMT*
 
 
 ## Lindsay Lohan
@@ -1394,6 +2204,33 @@ It is frankly impossible to have missed the many, many, many ads, memes, and off
 *Published on: Fri, 12 Jul 2024 14:16:25 GMT*
 
 
+## Lindsay Lohan
+
+## [Bella Hadid Anoints the It-Sneaker of the Summer](https://www.highsnobiety.com/p/bella-hadid-adidas-sl72-outfit/)
+
+Move over, Sambas — there's a new adidas it-shoe in town, and Bella Hadid just gave it her blessing.The SL72 is a lightweight, low-cut sneaker first introduced…
+
+*Published on: Fri, 12 Jul 2024 15:14:00 GMT*
+
+
+## Lindsay Lohan
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Fri, 12 Jul 2024 15:40:45 GMT*
+
+
+## Lindsay Lohan
+
+## [New Balance's Chunkiest-Ever Running Shoe Goes Full HOKA](https://www.highsnobiety.com/p/new-balance-1080-v15-shoe/)
+
+New Balance's 1080 running shoes have been getting great as of late. So great, in fact, that you might mistake them for HOKA.Now, that's high praise — hardly a…
+
+*Published on: Fri, 12 Jul 2024 15:58:45 GMT*
+
+
 ## Addison Rae
 
 ## [Kith's Beautifully Braided Birkenstocks Are Back](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
@@ -1437,6 +2274,33 @@ A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do c
 It is frankly impossible to have missed the many, many, many ads, memes, and official events Charli xcx's new full-length, BRAT , has birthed. Be it vast, gene…
 
 *Published on: Fri, 12 Jul 2024 14:16:25 GMT*
+
+
+## Addison Rae
+
+## [Bella Hadid Anoints the It-Sneaker of the Summer](https://www.highsnobiety.com/p/bella-hadid-adidas-sl72-outfit/)
+
+Move over, Sambas — there's a new adidas it-shoe in town, and Bella Hadid just gave it her blessing.The SL72 is a lightweight, low-cut sneaker first introduced…
+
+*Published on: Fri, 12 Jul 2024 15:14:00 GMT*
+
+
+## Addison Rae
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Fri, 12 Jul 2024 15:40:45 GMT*
+
+
+## Addison Rae
+
+## [New Balance's Chunkiest-Ever Running Shoe Goes Full HOKA](https://www.highsnobiety.com/p/new-balance-1080-v15-shoe/)
+
+New Balance's 1080 running shoes have been getting great as of late. So great, in fact, that you might mistake them for HOKA.Now, that's high praise — hardly a…
+
+*Published on: Fri, 12 Jul 2024 15:58:45 GMT*
 
 
 ## Latto
@@ -1484,6 +2348,33 @@ It is frankly impossible to have missed the many, many, many ads, memes, and off
 *Published on: Fri, 12 Jul 2024 14:16:25 GMT*
 
 
+## Latto
+
+## [Bella Hadid Anoints the It-Sneaker of the Summer](https://www.highsnobiety.com/p/bella-hadid-adidas-sl72-outfit/)
+
+Move over, Sambas — there's a new adidas it-shoe in town, and Bella Hadid just gave it her blessing.The SL72 is a lightweight, low-cut sneaker first introduced…
+
+*Published on: Fri, 12 Jul 2024 15:14:00 GMT*
+
+
+## Latto
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Fri, 12 Jul 2024 15:40:45 GMT*
+
+
+## Latto
+
+## [New Balance's Chunkiest-Ever Running Shoe Goes Full HOKA](https://www.highsnobiety.com/p/new-balance-1080-v15-shoe/)
+
+New Balance's 1080 running shoes have been getting great as of late. So great, in fact, that you might mistake them for HOKA.Now, that's high praise — hardly a…
+
+*Published on: Fri, 12 Jul 2024 15:58:45 GMT*
+
+
 ## Aaron Paul
 
 ## [Kith's Beautifully Braided Birkenstocks Are Back](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
@@ -1527,6 +2418,33 @@ A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do c
 It is frankly impossible to have missed the many, many, many ads, memes, and official events Charli xcx's new full-length, BRAT , has birthed. Be it vast, gene…
 
 *Published on: Fri, 12 Jul 2024 14:16:25 GMT*
+
+
+## Aaron Paul
+
+## [Bella Hadid Anoints the It-Sneaker of the Summer](https://www.highsnobiety.com/p/bella-hadid-adidas-sl72-outfit/)
+
+Move over, Sambas — there's a new adidas it-shoe in town, and Bella Hadid just gave it her blessing.The SL72 is a lightweight, low-cut sneaker first introduced…
+
+*Published on: Fri, 12 Jul 2024 15:14:00 GMT*
+
+
+## Aaron Paul
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Fri, 12 Jul 2024 15:40:45 GMT*
+
+
+## Aaron Paul
+
+## [New Balance's Chunkiest-Ever Running Shoe Goes Full HOKA](https://www.highsnobiety.com/p/new-balance-1080-v15-shoe/)
+
+New Balance's 1080 running shoes have been getting great as of late. So great, in fact, that you might mistake them for HOKA.Now, that's high praise — hardly a…
+
+*Published on: Fri, 12 Jul 2024 15:58:45 GMT*
 
 
 ## LeBron James
@@ -1574,6 +2492,33 @@ It is frankly impossible to have missed the many, many, many ads, memes, and off
 *Published on: Fri, 12 Jul 2024 14:16:25 GMT*
 
 
+## LeBron James
+
+## [Bella Hadid Anoints the It-Sneaker of the Summer](https://www.highsnobiety.com/p/bella-hadid-adidas-sl72-outfit/)
+
+Move over, Sambas — there's a new adidas it-shoe in town, and Bella Hadid just gave it her blessing.The SL72 is a lightweight, low-cut sneaker first introduced…
+
+*Published on: Fri, 12 Jul 2024 15:14:00 GMT*
+
+
+## LeBron James
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Fri, 12 Jul 2024 15:40:45 GMT*
+
+
+## LeBron James
+
+## [New Balance's Chunkiest-Ever Running Shoe Goes Full HOKA](https://www.highsnobiety.com/p/new-balance-1080-v15-shoe/)
+
+New Balance's 1080 running shoes have been getting great as of late. So great, in fact, that you might mistake them for HOKA.Now, that's high praise — hardly a…
+
+*Published on: Fri, 12 Jul 2024 15:58:45 GMT*
+
+
 ## 50 Cent
 
 ## [Kith's Beautifully Braided Birkenstocks Are Back](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
@@ -1617,6 +2562,33 @@ A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do c
 It is frankly impossible to have missed the many, many, many ads, memes, and official events Charli xcx's new full-length, BRAT , has birthed. Be it vast, gene…
 
 *Published on: Fri, 12 Jul 2024 14:16:25 GMT*
+
+
+## 50 Cent
+
+## [Bella Hadid Anoints the It-Sneaker of the Summer](https://www.highsnobiety.com/p/bella-hadid-adidas-sl72-outfit/)
+
+Move over, Sambas — there's a new adidas it-shoe in town, and Bella Hadid just gave it her blessing.The SL72 is a lightweight, low-cut sneaker first introduced…
+
+*Published on: Fri, 12 Jul 2024 15:14:00 GMT*
+
+
+## 50 Cent
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Fri, 12 Jul 2024 15:40:45 GMT*
+
+
+## 50 Cent
+
+## [New Balance's Chunkiest-Ever Running Shoe Goes Full HOKA](https://www.highsnobiety.com/p/new-balance-1080-v15-shoe/)
+
+New Balance's 1080 running shoes have been getting great as of late. So great, in fact, that you might mistake them for HOKA.Now, that's high praise — hardly a…
+
+*Published on: Fri, 12 Jul 2024 15:58:45 GMT*
 
 
 ## Kesha
@@ -1664,6 +2636,33 @@ It is frankly impossible to have missed the many, many, many ads, memes, and off
 *Published on: Fri, 12 Jul 2024 14:16:25 GMT*
 
 
+## Kesha
+
+## [Bella Hadid Anoints the It-Sneaker of the Summer](https://www.highsnobiety.com/p/bella-hadid-adidas-sl72-outfit/)
+
+Move over, Sambas — there's a new adidas it-shoe in town, and Bella Hadid just gave it her blessing.The SL72 is a lightweight, low-cut sneaker first introduced…
+
+*Published on: Fri, 12 Jul 2024 15:14:00 GMT*
+
+
+## Kesha
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Fri, 12 Jul 2024 15:40:45 GMT*
+
+
+## Kesha
+
+## [New Balance's Chunkiest-Ever Running Shoe Goes Full HOKA](https://www.highsnobiety.com/p/new-balance-1080-v15-shoe/)
+
+New Balance's 1080 running shoes have been getting great as of late. So great, in fact, that you might mistake them for HOKA.Now, that's high praise — hardly a…
+
+*Published on: Fri, 12 Jul 2024 15:58:45 GMT*
+
+
 ## 21 Savage
 
 ## [Kith's Beautifully Braided Birkenstocks Are Back](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
@@ -1707,6 +2706,33 @@ A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do c
 It is frankly impossible to have missed the many, many, many ads, memes, and official events Charli xcx's new full-length, BRAT , has birthed. Be it vast, gene…
 
 *Published on: Fri, 12 Jul 2024 14:16:25 GMT*
+
+
+## 21 Savage
+
+## [Bella Hadid Anoints the It-Sneaker of the Summer](https://www.highsnobiety.com/p/bella-hadid-adidas-sl72-outfit/)
+
+Move over, Sambas — there's a new adidas it-shoe in town, and Bella Hadid just gave it her blessing.The SL72 is a lightweight, low-cut sneaker first introduced…
+
+*Published on: Fri, 12 Jul 2024 15:14:00 GMT*
+
+
+## 21 Savage
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Fri, 12 Jul 2024 15:40:45 GMT*
+
+
+## 21 Savage
+
+## [New Balance's Chunkiest-Ever Running Shoe Goes Full HOKA](https://www.highsnobiety.com/p/new-balance-1080-v15-shoe/)
+
+New Balance's 1080 running shoes have been getting great as of late. So great, in fact, that you might mistake them for HOKA.Now, that's high praise — hardly a…
+
+*Published on: Fri, 12 Jul 2024 15:58:45 GMT*
 
 
 ## Larry David
@@ -1754,6 +2780,33 @@ It is frankly impossible to have missed the many, many, many ads, memes, and off
 *Published on: Fri, 12 Jul 2024 14:16:25 GMT*
 
 
+## Larry David
+
+## [Bella Hadid Anoints the It-Sneaker of the Summer](https://www.highsnobiety.com/p/bella-hadid-adidas-sl72-outfit/)
+
+Move over, Sambas — there's a new adidas it-shoe in town, and Bella Hadid just gave it her blessing.The SL72 is a lightweight, low-cut sneaker first introduced…
+
+*Published on: Fri, 12 Jul 2024 15:14:00 GMT*
+
+
+## Larry David
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Fri, 12 Jul 2024 15:40:45 GMT*
+
+
+## Larry David
+
+## [New Balance's Chunkiest-Ever Running Shoe Goes Full HOKA](https://www.highsnobiety.com/p/new-balance-1080-v15-shoe/)
+
+New Balance's 1080 running shoes have been getting great as of late. So great, in fact, that you might mistake them for HOKA.Now, that's high praise — hardly a…
+
+*Published on: Fri, 12 Jul 2024 15:58:45 GMT*
+
+
 ## Seth Rogan
 
 ## [Kith's Beautifully Braided Birkenstocks Are Back](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
@@ -1797,6 +2850,33 @@ A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do c
 It is frankly impossible to have missed the many, many, many ads, memes, and official events Charli xcx's new full-length, BRAT , has birthed. Be it vast, gene…
 
 *Published on: Fri, 12 Jul 2024 14:16:25 GMT*
+
+
+## Seth Rogan
+
+## [Bella Hadid Anoints the It-Sneaker of the Summer](https://www.highsnobiety.com/p/bella-hadid-adidas-sl72-outfit/)
+
+Move over, Sambas — there's a new adidas it-shoe in town, and Bella Hadid just gave it her blessing.The SL72 is a lightweight, low-cut sneaker first introduced…
+
+*Published on: Fri, 12 Jul 2024 15:14:00 GMT*
+
+
+## Seth Rogan
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Fri, 12 Jul 2024 15:40:45 GMT*
+
+
+## Seth Rogan
+
+## [New Balance's Chunkiest-Ever Running Shoe Goes Full HOKA](https://www.highsnobiety.com/p/new-balance-1080-v15-shoe/)
+
+New Balance's 1080 running shoes have been getting great as of late. So great, in fact, that you might mistake them for HOKA.Now, that's high praise — hardly a…
+
+*Published on: Fri, 12 Jul 2024 15:58:45 GMT*
 
 
 ## Simone Biles
@@ -1844,6 +2924,33 @@ It is frankly impossible to have missed the many, many, many ads, memes, and off
 *Published on: Fri, 12 Jul 2024 14:16:25 GMT*
 
 
+## Simone Biles
+
+## [Bella Hadid Anoints the It-Sneaker of the Summer](https://www.highsnobiety.com/p/bella-hadid-adidas-sl72-outfit/)
+
+Move over, Sambas — there's a new adidas it-shoe in town, and Bella Hadid just gave it her blessing.The SL72 is a lightweight, low-cut sneaker first introduced…
+
+*Published on: Fri, 12 Jul 2024 15:14:00 GMT*
+
+
+## Simone Biles
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Fri, 12 Jul 2024 15:40:45 GMT*
+
+
+## Simone Biles
+
+## [New Balance's Chunkiest-Ever Running Shoe Goes Full HOKA](https://www.highsnobiety.com/p/new-balance-1080-v15-shoe/)
+
+New Balance's 1080 running shoes have been getting great as of late. So great, in fact, that you might mistake them for HOKA.Now, that's high praise — hardly a…
+
+*Published on: Fri, 12 Jul 2024 15:58:45 GMT*
+
+
 ## Pete Davidson
 
 ## [Kith's Beautifully Braided Birkenstocks Are Back](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
@@ -1887,6 +2994,33 @@ A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do c
 It is frankly impossible to have missed the many, many, many ads, memes, and official events Charli xcx's new full-length, BRAT , has birthed. Be it vast, gene…
 
 *Published on: Fri, 12 Jul 2024 14:16:25 GMT*
+
+
+## Pete Davidson
+
+## [Bella Hadid Anoints the It-Sneaker of the Summer](https://www.highsnobiety.com/p/bella-hadid-adidas-sl72-outfit/)
+
+Move over, Sambas — there's a new adidas it-shoe in town, and Bella Hadid just gave it her blessing.The SL72 is a lightweight, low-cut sneaker first introduced…
+
+*Published on: Fri, 12 Jul 2024 15:14:00 GMT*
+
+
+## Pete Davidson
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Fri, 12 Jul 2024 15:40:45 GMT*
+
+
+## Pete Davidson
+
+## [New Balance's Chunkiest-Ever Running Shoe Goes Full HOKA](https://www.highsnobiety.com/p/new-balance-1080-v15-shoe/)
+
+New Balance's 1080 running shoes have been getting great as of late. So great, in fact, that you might mistake them for HOKA.Now, that's high praise — hardly a…
+
+*Published on: Fri, 12 Jul 2024 15:58:45 GMT*
 
 
 ## Prince Harry
@@ -1934,6 +3068,33 @@ It is frankly impossible to have missed the many, many, many ads, memes, and off
 *Published on: Fri, 12 Jul 2024 14:16:25 GMT*
 
 
+## Prince Harry
+
+## [Bella Hadid Anoints the It-Sneaker of the Summer](https://www.highsnobiety.com/p/bella-hadid-adidas-sl72-outfit/)
+
+Move over, Sambas — there's a new adidas it-shoe in town, and Bella Hadid just gave it her blessing.The SL72 is a lightweight, low-cut sneaker first introduced…
+
+*Published on: Fri, 12 Jul 2024 15:14:00 GMT*
+
+
+## Prince Harry
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Fri, 12 Jul 2024 15:40:45 GMT*
+
+
+## Prince Harry
+
+## [New Balance's Chunkiest-Ever Running Shoe Goes Full HOKA](https://www.highsnobiety.com/p/new-balance-1080-v15-shoe/)
+
+New Balance's 1080 running shoes have been getting great as of late. So great, in fact, that you might mistake them for HOKA.Now, that's high praise — hardly a…
+
+*Published on: Fri, 12 Jul 2024 15:58:45 GMT*
+
+
 ## Princess of Wales
 
 ## [Kith's Beautifully Braided Birkenstocks Are Back](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
@@ -1977,6 +3138,33 @@ A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do c
 It is frankly impossible to have missed the many, many, many ads, memes, and official events Charli xcx's new full-length, BRAT , has birthed. Be it vast, gene…
 
 *Published on: Fri, 12 Jul 2024 14:16:25 GMT*
+
+
+## Princess of Wales
+
+## [Bella Hadid Anoints the It-Sneaker of the Summer](https://www.highsnobiety.com/p/bella-hadid-adidas-sl72-outfit/)
+
+Move over, Sambas — there's a new adidas it-shoe in town, and Bella Hadid just gave it her blessing.The SL72 is a lightweight, low-cut sneaker first introduced…
+
+*Published on: Fri, 12 Jul 2024 15:14:00 GMT*
+
+
+## Princess of Wales
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Fri, 12 Jul 2024 15:40:45 GMT*
+
+
+## Princess of Wales
+
+## [New Balance's Chunkiest-Ever Running Shoe Goes Full HOKA](https://www.highsnobiety.com/p/new-balance-1080-v15-shoe/)
+
+New Balance's 1080 running shoes have been getting great as of late. So great, in fact, that you might mistake them for HOKA.Now, that's high praise — hardly a…
+
+*Published on: Fri, 12 Jul 2024 15:58:45 GMT*
 
 
 ## Rachel McAdams
@@ -2024,6 +3212,33 @@ It is frankly impossible to have missed the many, many, many ads, memes, and off
 *Published on: Fri, 12 Jul 2024 14:16:25 GMT*
 
 
+## Rachel McAdams
+
+## [Bella Hadid Anoints the It-Sneaker of the Summer](https://www.highsnobiety.com/p/bella-hadid-adidas-sl72-outfit/)
+
+Move over, Sambas — there's a new adidas it-shoe in town, and Bella Hadid just gave it her blessing.The SL72 is a lightweight, low-cut sneaker first introduced…
+
+*Published on: Fri, 12 Jul 2024 15:14:00 GMT*
+
+
+## Rachel McAdams
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Fri, 12 Jul 2024 15:40:45 GMT*
+
+
+## Rachel McAdams
+
+## [New Balance's Chunkiest-Ever Running Shoe Goes Full HOKA](https://www.highsnobiety.com/p/new-balance-1080-v15-shoe/)
+
+New Balance's 1080 running shoes have been getting great as of late. So great, in fact, that you might mistake them for HOKA.Now, that's high praise — hardly a…
+
+*Published on: Fri, 12 Jul 2024 15:58:45 GMT*
+
+
 ## Reneé Rapp
 
 ## [Kith's Beautifully Braided Birkenstocks Are Back](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
@@ -2067,6 +3282,33 @@ A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do c
 It is frankly impossible to have missed the many, many, many ads, memes, and official events Charli xcx's new full-length, BRAT , has birthed. Be it vast, gene…
 
 *Published on: Fri, 12 Jul 2024 14:16:25 GMT*
+
+
+## Reneé Rapp
+
+## [Bella Hadid Anoints the It-Sneaker of the Summer](https://www.highsnobiety.com/p/bella-hadid-adidas-sl72-outfit/)
+
+Move over, Sambas — there's a new adidas it-shoe in town, and Bella Hadid just gave it her blessing.The SL72 is a lightweight, low-cut sneaker first introduced…
+
+*Published on: Fri, 12 Jul 2024 15:14:00 GMT*
+
+
+## Reneé Rapp
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Fri, 12 Jul 2024 15:40:45 GMT*
+
+
+## Reneé Rapp
+
+## [New Balance's Chunkiest-Ever Running Shoe Goes Full HOKA](https://www.highsnobiety.com/p/new-balance-1080-v15-shoe/)
+
+New Balance's 1080 running shoes have been getting great as of late. So great, in fact, that you might mistake them for HOKA.Now, that's high praise — hardly a…
+
+*Published on: Fri, 12 Jul 2024 15:58:45 GMT*
 
 
 ## Rick Ross
@@ -2114,6 +3356,33 @@ It is frankly impossible to have missed the many, many, many ads, memes, and off
 *Published on: Fri, 12 Jul 2024 14:16:25 GMT*
 
 
+## Rick Ross
+
+## [Bella Hadid Anoints the It-Sneaker of the Summer](https://www.highsnobiety.com/p/bella-hadid-adidas-sl72-outfit/)
+
+Move over, Sambas — there's a new adidas it-shoe in town, and Bella Hadid just gave it her blessing.The SL72 is a lightweight, low-cut sneaker first introduced…
+
+*Published on: Fri, 12 Jul 2024 15:14:00 GMT*
+
+
+## Rick Ross
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Fri, 12 Jul 2024 15:40:45 GMT*
+
+
+## Rick Ross
+
+## [New Balance's Chunkiest-Ever Running Shoe Goes Full HOKA](https://www.highsnobiety.com/p/new-balance-1080-v15-shoe/)
+
+New Balance's 1080 running shoes have been getting great as of late. So great, in fact, that you might mistake them for HOKA.Now, that's high praise — hardly a…
+
+*Published on: Fri, 12 Jul 2024 15:58:45 GMT*
+
+
 ## Sam Ashgari
 
 ## [Kith's Beautifully Braided Birkenstocks Are Back](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
@@ -2157,6 +3426,33 @@ A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do c
 It is frankly impossible to have missed the many, many, many ads, memes, and official events Charli xcx's new full-length, BRAT , has birthed. Be it vast, gene…
 
 *Published on: Fri, 12 Jul 2024 14:16:25 GMT*
+
+
+## Sam Ashgari
+
+## [Bella Hadid Anoints the It-Sneaker of the Summer](https://www.highsnobiety.com/p/bella-hadid-adidas-sl72-outfit/)
+
+Move over, Sambas — there's a new adidas it-shoe in town, and Bella Hadid just gave it her blessing.The SL72 is a lightweight, low-cut sneaker first introduced…
+
+*Published on: Fri, 12 Jul 2024 15:14:00 GMT*
+
+
+## Sam Ashgari
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Fri, 12 Jul 2024 15:40:45 GMT*
+
+
+## Sam Ashgari
+
+## [New Balance's Chunkiest-Ever Running Shoe Goes Full HOKA](https://www.highsnobiety.com/p/new-balance-1080-v15-shoe/)
+
+New Balance's 1080 running shoes have been getting great as of late. So great, in fact, that you might mistake them for HOKA.Now, that's high praise — hardly a…
+
+*Published on: Fri, 12 Jul 2024 15:58:45 GMT*
 
 
 ## Sandra Oh
@@ -2204,6 +3500,33 @@ It is frankly impossible to have missed the many, many, many ads, memes, and off
 *Published on: Fri, 12 Jul 2024 14:16:25 GMT*
 
 
+## Sandra Oh
+
+## [Bella Hadid Anoints the It-Sneaker of the Summer](https://www.highsnobiety.com/p/bella-hadid-adidas-sl72-outfit/)
+
+Move over, Sambas — there's a new adidas it-shoe in town, and Bella Hadid just gave it her blessing.The SL72 is a lightweight, low-cut sneaker first introduced…
+
+*Published on: Fri, 12 Jul 2024 15:14:00 GMT*
+
+
+## Sandra Oh
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Fri, 12 Jul 2024 15:40:45 GMT*
+
+
+## Sandra Oh
+
+## [New Balance's Chunkiest-Ever Running Shoe Goes Full HOKA](https://www.highsnobiety.com/p/new-balance-1080-v15-shoe/)
+
+New Balance's 1080 running shoes have been getting great as of late. So great, in fact, that you might mistake them for HOKA.Now, that's high praise — hardly a…
+
+*Published on: Fri, 12 Jul 2024 15:58:45 GMT*
+
+
 ## Donald Trump
 
 ## [Kith's Beautifully Braided Birkenstocks Are Back](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
@@ -2247,6 +3570,33 @@ A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do c
 It is frankly impossible to have missed the many, many, many ads, memes, and official events Charli xcx's new full-length, BRAT , has birthed. Be it vast, gene…
 
 *Published on: Fri, 12 Jul 2024 14:16:25 GMT*
+
+
+## Donald Trump
+
+## [Bella Hadid Anoints the It-Sneaker of the Summer](https://www.highsnobiety.com/p/bella-hadid-adidas-sl72-outfit/)
+
+Move over, Sambas — there's a new adidas it-shoe in town, and Bella Hadid just gave it her blessing.The SL72 is a lightweight, low-cut sneaker first introduced…
+
+*Published on: Fri, 12 Jul 2024 15:14:00 GMT*
+
+
+## Donald Trump
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Fri, 12 Jul 2024 15:40:45 GMT*
+
+
+## Donald Trump
+
+## [New Balance's Chunkiest-Ever Running Shoe Goes Full HOKA](https://www.highsnobiety.com/p/new-balance-1080-v15-shoe/)
+
+New Balance's 1080 running shoes have been getting great as of late. So great, in fact, that you might mistake them for HOKA.Now, that's high praise — hardly a…
+
+*Published on: Fri, 12 Jul 2024 15:58:45 GMT*
 
 
 ## Diddy
@@ -2294,6 +3644,33 @@ It is frankly impossible to have missed the many, many, many ads, memes, and off
 *Published on: Fri, 12 Jul 2024 14:16:25 GMT*
 
 
+## Diddy
+
+## [Bella Hadid Anoints the It-Sneaker of the Summer](https://www.highsnobiety.com/p/bella-hadid-adidas-sl72-outfit/)
+
+Move over, Sambas — there's a new adidas it-shoe in town, and Bella Hadid just gave it her blessing.The SL72 is a lightweight, low-cut sneaker first introduced…
+
+*Published on: Fri, 12 Jul 2024 15:14:00 GMT*
+
+
+## Diddy
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Fri, 12 Jul 2024 15:40:45 GMT*
+
+
+## Diddy
+
+## [New Balance's Chunkiest-Ever Running Shoe Goes Full HOKA](https://www.highsnobiety.com/p/new-balance-1080-v15-shoe/)
+
+New Balance's 1080 running shoes have been getting great as of late. So great, in fact, that you might mistake them for HOKA.Now, that's high praise — hardly a…
+
+*Published on: Fri, 12 Jul 2024 15:58:45 GMT*
+
+
 ## City Girls
 
 ## [Kith's Beautifully Braided Birkenstocks Are Back](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
@@ -2337,6 +3714,33 @@ A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do c
 It is frankly impossible to have missed the many, many, many ads, memes, and official events Charli xcx's new full-length, BRAT , has birthed. Be it vast, gene…
 
 *Published on: Fri, 12 Jul 2024 14:16:25 GMT*
+
+
+## City Girls
+
+## [Bella Hadid Anoints the It-Sneaker of the Summer](https://www.highsnobiety.com/p/bella-hadid-adidas-sl72-outfit/)
+
+Move over, Sambas — there's a new adidas it-shoe in town, and Bella Hadid just gave it her blessing.The SL72 is a lightweight, low-cut sneaker first introduced…
+
+*Published on: Fri, 12 Jul 2024 15:14:00 GMT*
+
+
+## City Girls
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Fri, 12 Jul 2024 15:40:45 GMT*
+
+
+## City Girls
+
+## [New Balance's Chunkiest-Ever Running Shoe Goes Full HOKA](https://www.highsnobiety.com/p/new-balance-1080-v15-shoe/)
+
+New Balance's 1080 running shoes have been getting great as of late. So great, in fact, that you might mistake them for HOKA.Now, that's high praise — hardly a…
+
+*Published on: Fri, 12 Jul 2024 15:58:45 GMT*
 
 
 ## Chloe Bailey
@@ -2384,6 +3788,33 @@ It is frankly impossible to have missed the many, many, many ads, memes, and off
 *Published on: Fri, 12 Jul 2024 14:16:25 GMT*
 
 
+## Chloe Bailey
+
+## [Bella Hadid Anoints the It-Sneaker of the Summer](https://www.highsnobiety.com/p/bella-hadid-adidas-sl72-outfit/)
+
+Move over, Sambas — there's a new adidas it-shoe in town, and Bella Hadid just gave it her blessing.The SL72 is a lightweight, low-cut sneaker first introduced…
+
+*Published on: Fri, 12 Jul 2024 15:14:00 GMT*
+
+
+## Chloe Bailey
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Fri, 12 Jul 2024 15:40:45 GMT*
+
+
+## Chloe Bailey
+
+## [New Balance's Chunkiest-Ever Running Shoe Goes Full HOKA](https://www.highsnobiety.com/p/new-balance-1080-v15-shoe/)
+
+New Balance's 1080 running shoes have been getting great as of late. So great, in fact, that you might mistake them for HOKA.Now, that's high praise — hardly a…
+
+*Published on: Fri, 12 Jul 2024 15:58:45 GMT*
+
+
 ## Charli D Amelio
 
 ## [Kith's Beautifully Braided Birkenstocks Are Back](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
@@ -2427,6 +3858,33 @@ A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do c
 It is frankly impossible to have missed the many, many, many ads, memes, and official events Charli xcx's new full-length, BRAT , has birthed. Be it vast, gene…
 
 *Published on: Fri, 12 Jul 2024 14:16:25 GMT*
+
+
+## Charli D Amelio
+
+## [Bella Hadid Anoints the It-Sneaker of the Summer](https://www.highsnobiety.com/p/bella-hadid-adidas-sl72-outfit/)
+
+Move over, Sambas — there's a new adidas it-shoe in town, and Bella Hadid just gave it her blessing.The SL72 is a lightweight, low-cut sneaker first introduced…
+
+*Published on: Fri, 12 Jul 2024 15:14:00 GMT*
+
+
+## Charli D Amelio
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Fri, 12 Jul 2024 15:40:45 GMT*
+
+
+## Charli D Amelio
+
+## [New Balance's Chunkiest-Ever Running Shoe Goes Full HOKA](https://www.highsnobiety.com/p/new-balance-1080-v15-shoe/)
+
+New Balance's 1080 running shoes have been getting great as of late. So great, in fact, that you might mistake them for HOKA.Now, that's high praise — hardly a…
+
+*Published on: Fri, 12 Jul 2024 15:58:45 GMT*
 
 
 ## Cardi B
@@ -2474,6 +3932,33 @@ It is frankly impossible to have missed the many, many, many ads, memes, and off
 *Published on: Fri, 12 Jul 2024 14:16:25 GMT*
 
 
+## Cardi B
+
+## [Bella Hadid Anoints the It-Sneaker of the Summer](https://www.highsnobiety.com/p/bella-hadid-adidas-sl72-outfit/)
+
+Move over, Sambas — there's a new adidas it-shoe in town, and Bella Hadid just gave it her blessing.The SL72 is a lightweight, low-cut sneaker first introduced…
+
+*Published on: Fri, 12 Jul 2024 15:14:00 GMT*
+
+
+## Cardi B
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Fri, 12 Jul 2024 15:40:45 GMT*
+
+
+## Cardi B
+
+## [New Balance's Chunkiest-Ever Running Shoe Goes Full HOKA](https://www.highsnobiety.com/p/new-balance-1080-v15-shoe/)
+
+New Balance's 1080 running shoes have been getting great as of late. So great, in fact, that you might mistake them for HOKA.Now, that's high praise — hardly a…
+
+*Published on: Fri, 12 Jul 2024 15:58:45 GMT*
+
+
 ## Bryan Cranston
 
 ## [Kith's Beautifully Braided Birkenstocks Are Back](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
@@ -2517,6 +4002,33 @@ A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do c
 It is frankly impossible to have missed the many, many, many ads, memes, and official events Charli xcx's new full-length, BRAT , has birthed. Be it vast, gene…
 
 *Published on: Fri, 12 Jul 2024 14:16:25 GMT*
+
+
+## Bryan Cranston
+
+## [Bella Hadid Anoints the It-Sneaker of the Summer](https://www.highsnobiety.com/p/bella-hadid-adidas-sl72-outfit/)
+
+Move over, Sambas — there's a new adidas it-shoe in town, and Bella Hadid just gave it her blessing.The SL72 is a lightweight, low-cut sneaker first introduced…
+
+*Published on: Fri, 12 Jul 2024 15:14:00 GMT*
+
+
+## Bryan Cranston
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Fri, 12 Jul 2024 15:40:45 GMT*
+
+
+## Bryan Cranston
+
+## [New Balance's Chunkiest-Ever Running Shoe Goes Full HOKA](https://www.highsnobiety.com/p/new-balance-1080-v15-shoe/)
+
+New Balance's 1080 running shoes have been getting great as of late. So great, in fact, that you might mistake them for HOKA.Now, that's high praise — hardly a…
+
+*Published on: Fri, 12 Jul 2024 15:58:45 GMT*
 
 
 ## Brielle Biermann
@@ -2564,6 +4076,33 @@ It is frankly impossible to have missed the many, many, many ads, memes, and off
 *Published on: Fri, 12 Jul 2024 14:16:25 GMT*
 
 
+## Brielle Biermann
+
+## [Bella Hadid Anoints the It-Sneaker of the Summer](https://www.highsnobiety.com/p/bella-hadid-adidas-sl72-outfit/)
+
+Move over, Sambas — there's a new adidas it-shoe in town, and Bella Hadid just gave it her blessing.The SL72 is a lightweight, low-cut sneaker first introduced…
+
+*Published on: Fri, 12 Jul 2024 15:14:00 GMT*
+
+
+## Brielle Biermann
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Fri, 12 Jul 2024 15:40:45 GMT*
+
+
+## Brielle Biermann
+
+## [New Balance's Chunkiest-Ever Running Shoe Goes Full HOKA](https://www.highsnobiety.com/p/new-balance-1080-v15-shoe/)
+
+New Balance's 1080 running shoes have been getting great as of late. So great, in fact, that you might mistake them for HOKA.Now, that's high praise — hardly a…
+
+*Published on: Fri, 12 Jul 2024 15:58:45 GMT*
+
+
 ## Dua Lipa
 
 ## [Kith's Beautifully Braided Birkenstocks Are Back](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
@@ -2607,6 +4146,33 @@ A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do c
 It is frankly impossible to have missed the many, many, many ads, memes, and official events Charli xcx's new full-length, BRAT , has birthed. Be it vast, gene…
 
 *Published on: Fri, 12 Jul 2024 14:16:25 GMT*
+
+
+## Dua Lipa
+
+## [Bella Hadid Anoints the It-Sneaker of the Summer](https://www.highsnobiety.com/p/bella-hadid-adidas-sl72-outfit/)
+
+Move over, Sambas — there's a new adidas it-shoe in town, and Bella Hadid just gave it her blessing.The SL72 is a lightweight, low-cut sneaker first introduced…
+
+*Published on: Fri, 12 Jul 2024 15:14:00 GMT*
+
+
+## Dua Lipa
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Fri, 12 Jul 2024 15:40:45 GMT*
+
+
+## Dua Lipa
+
+## [New Balance's Chunkiest-Ever Running Shoe Goes Full HOKA](https://www.highsnobiety.com/p/new-balance-1080-v15-shoe/)
+
+New Balance's 1080 running shoes have been getting great as of late. So great, in fact, that you might mistake them for HOKA.Now, that's high praise — hardly a…
+
+*Published on: Fri, 12 Jul 2024 15:58:45 GMT*
 
 
 ## Drake
@@ -2654,6 +4220,33 @@ It is frankly impossible to have missed the many, many, many ads, memes, and off
 *Published on: Fri, 12 Jul 2024 14:16:25 GMT*
 
 
+## Drake
+
+## [Bella Hadid Anoints the It-Sneaker of the Summer](https://www.highsnobiety.com/p/bella-hadid-adidas-sl72-outfit/)
+
+Move over, Sambas — there's a new adidas it-shoe in town, and Bella Hadid just gave it her blessing.The SL72 is a lightweight, low-cut sneaker first introduced…
+
+*Published on: Fri, 12 Jul 2024 15:14:00 GMT*
+
+
+## Drake
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Fri, 12 Jul 2024 15:40:45 GMT*
+
+
+## Drake
+
+## [New Balance's Chunkiest-Ever Running Shoe Goes Full HOKA](https://www.highsnobiety.com/p/new-balance-1080-v15-shoe/)
+
+New Balance's 1080 running shoes have been getting great as of late. So great, in fact, that you might mistake them for HOKA.Now, that's high praise — hardly a…
+
+*Published on: Fri, 12 Jul 2024 15:58:45 GMT*
+
+
 ## Jenner
 
 ## [Kith's Beautifully Braided Birkenstocks Are Back](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
@@ -2697,6 +4290,33 @@ A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do c
 It is frankly impossible to have missed the many, many, many ads, memes, and official events Charli xcx's new full-length, BRAT , has birthed. Be it vast, gene…
 
 *Published on: Fri, 12 Jul 2024 14:16:25 GMT*
+
+
+## Jenner
+
+## [Bella Hadid Anoints the It-Sneaker of the Summer](https://www.highsnobiety.com/p/bella-hadid-adidas-sl72-outfit/)
+
+Move over, Sambas — there's a new adidas it-shoe in town, and Bella Hadid just gave it her blessing.The SL72 is a lightweight, low-cut sneaker first introduced…
+
+*Published on: Fri, 12 Jul 2024 15:14:00 GMT*
+
+
+## Jenner
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Fri, 12 Jul 2024 15:40:45 GMT*
+
+
+## Jenner
+
+## [New Balance's Chunkiest-Ever Running Shoe Goes Full HOKA](https://www.highsnobiety.com/p/new-balance-1080-v15-shoe/)
+
+New Balance's 1080 running shoes have been getting great as of late. So great, in fact, that you might mistake them for HOKA.Now, that's high praise — hardly a…
+
+*Published on: Fri, 12 Jul 2024 15:58:45 GMT*
 
 
 ## J. Cole
@@ -2744,6 +4364,33 @@ It is frankly impossible to have missed the many, many, many ads, memes, and off
 *Published on: Fri, 12 Jul 2024 14:16:25 GMT*
 
 
+## J. Cole
+
+## [Bella Hadid Anoints the It-Sneaker of the Summer](https://www.highsnobiety.com/p/bella-hadid-adidas-sl72-outfit/)
+
+Move over, Sambas — there's a new adidas it-shoe in town, and Bella Hadid just gave it her blessing.The SL72 is a lightweight, low-cut sneaker first introduced…
+
+*Published on: Fri, 12 Jul 2024 15:14:00 GMT*
+
+
+## J. Cole
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Fri, 12 Jul 2024 15:40:45 GMT*
+
+
+## J. Cole
+
+## [New Balance's Chunkiest-Ever Running Shoe Goes Full HOKA](https://www.highsnobiety.com/p/new-balance-1080-v15-shoe/)
+
+New Balance's 1080 running shoes have been getting great as of late. So great, in fact, that you might mistake them for HOKA.Now, that's high praise — hardly a…
+
+*Published on: Fri, 12 Jul 2024 15:58:45 GMT*
+
+
 ## Jerrod Carmichael
 
 ## [Kith's Beautifully Braided Birkenstocks Are Back](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
@@ -2787,6 +4434,33 @@ A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do c
 It is frankly impossible to have missed the many, many, many ads, memes, and official events Charli xcx's new full-length, BRAT , has birthed. Be it vast, gene…
 
 *Published on: Fri, 12 Jul 2024 14:16:25 GMT*
+
+
+## Jerrod Carmichael
+
+## [Bella Hadid Anoints the It-Sneaker of the Summer](https://www.highsnobiety.com/p/bella-hadid-adidas-sl72-outfit/)
+
+Move over, Sambas — there's a new adidas it-shoe in town, and Bella Hadid just gave it her blessing.The SL72 is a lightweight, low-cut sneaker first introduced…
+
+*Published on: Fri, 12 Jul 2024 15:14:00 GMT*
+
+
+## Jerrod Carmichael
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Fri, 12 Jul 2024 15:40:45 GMT*
+
+
+## Jerrod Carmichael
+
+## [New Balance's Chunkiest-Ever Running Shoe Goes Full HOKA](https://www.highsnobiety.com/p/new-balance-1080-v15-shoe/)
+
+New Balance's 1080 running shoes have been getting great as of late. So great, in fact, that you might mistake them for HOKA.Now, that's high praise — hardly a…
+
+*Published on: Fri, 12 Jul 2024 15:58:45 GMT*
 
 
 ## Jennifer Lawrence
@@ -2834,6 +4508,33 @@ It is frankly impossible to have missed the many, many, many ads, memes, and off
 *Published on: Fri, 12 Jul 2024 14:16:25 GMT*
 
 
+## Jennifer Lawrence
+
+## [Bella Hadid Anoints the It-Sneaker of the Summer](https://www.highsnobiety.com/p/bella-hadid-adidas-sl72-outfit/)
+
+Move over, Sambas — there's a new adidas it-shoe in town, and Bella Hadid just gave it her blessing.The SL72 is a lightweight, low-cut sneaker first introduced…
+
+*Published on: Fri, 12 Jul 2024 15:14:00 GMT*
+
+
+## Jennifer Lawrence
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Fri, 12 Jul 2024 15:40:45 GMT*
+
+
+## Jennifer Lawrence
+
+## [New Balance's Chunkiest-Ever Running Shoe Goes Full HOKA](https://www.highsnobiety.com/p/new-balance-1080-v15-shoe/)
+
+New Balance's 1080 running shoes have been getting great as of late. So great, in fact, that you might mistake them for HOKA.Now, that's high praise — hardly a…
+
+*Published on: Fri, 12 Jul 2024 15:58:45 GMT*
+
+
 ## Joe Biden
 
 ## [Kith's Beautifully Braided Birkenstocks Are Back](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
@@ -2877,6 +4578,33 @@ A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do c
 It is frankly impossible to have missed the many, many, many ads, memes, and official events Charli xcx's new full-length, BRAT , has birthed. Be it vast, gene…
 
 *Published on: Fri, 12 Jul 2024 14:16:25 GMT*
+
+
+## Joe Biden
+
+## [Bella Hadid Anoints the It-Sneaker of the Summer](https://www.highsnobiety.com/p/bella-hadid-adidas-sl72-outfit/)
+
+Move over, Sambas — there's a new adidas it-shoe in town, and Bella Hadid just gave it her blessing.The SL72 is a lightweight, low-cut sneaker first introduced…
+
+*Published on: Fri, 12 Jul 2024 15:14:00 GMT*
+
+
+## Joe Biden
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Fri, 12 Jul 2024 15:40:45 GMT*
+
+
+## Joe Biden
+
+## [New Balance's Chunkiest-Ever Running Shoe Goes Full HOKA](https://www.highsnobiety.com/p/new-balance-1080-v15-shoe/)
+
+New Balance's 1080 running shoes have been getting great as of late. So great, in fact, that you might mistake them for HOKA.Now, that's high praise — hardly a…
+
+*Published on: Fri, 12 Jul 2024 15:58:45 GMT*
 
 
 ## J.K. Simmons
@@ -2924,6 +4652,33 @@ It is frankly impossible to have missed the many, many, many ads, memes, and off
 *Published on: Fri, 12 Jul 2024 14:16:25 GMT*
 
 
+## J.K. Simmons
+
+## [Bella Hadid Anoints the It-Sneaker of the Summer](https://www.highsnobiety.com/p/bella-hadid-adidas-sl72-outfit/)
+
+Move over, Sambas — there's a new adidas it-shoe in town, and Bella Hadid just gave it her blessing.The SL72 is a lightweight, low-cut sneaker first introduced…
+
+*Published on: Fri, 12 Jul 2024 15:14:00 GMT*
+
+
+## J.K. Simmons
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Fri, 12 Jul 2024 15:40:45 GMT*
+
+
+## J.K. Simmons
+
+## [New Balance's Chunkiest-Ever Running Shoe Goes Full HOKA](https://www.highsnobiety.com/p/new-balance-1080-v15-shoe/)
+
+New Balance's 1080 running shoes have been getting great as of late. So great, in fact, that you might mistake them for HOKA.Now, that's high praise — hardly a…
+
+*Published on: Fri, 12 Jul 2024 15:58:45 GMT*
+
+
 ## Kamala Harris
 
 ## [Kith's Beautifully Braided Birkenstocks Are Back](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
@@ -2967,6 +4722,33 @@ A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do c
 It is frankly impossible to have missed the many, many, many ads, memes, and official events Charli xcx's new full-length, BRAT , has birthed. Be it vast, gene…
 
 *Published on: Fri, 12 Jul 2024 14:16:25 GMT*
+
+
+## Kamala Harris
+
+## [Bella Hadid Anoints the It-Sneaker of the Summer](https://www.highsnobiety.com/p/bella-hadid-adidas-sl72-outfit/)
+
+Move over, Sambas — there's a new adidas it-shoe in town, and Bella Hadid just gave it her blessing.The SL72 is a lightweight, low-cut sneaker first introduced…
+
+*Published on: Fri, 12 Jul 2024 15:14:00 GMT*
+
+
+## Kamala Harris
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Fri, 12 Jul 2024 15:40:45 GMT*
+
+
+## Kamala Harris
+
+## [New Balance's Chunkiest-Ever Running Shoe Goes Full HOKA](https://www.highsnobiety.com/p/new-balance-1080-v15-shoe/)
+
+New Balance's 1080 running shoes have been getting great as of late. So great, in fact, that you might mistake them for HOKA.Now, that's high praise — hardly a…
+
+*Published on: Fri, 12 Jul 2024 15:58:45 GMT*
 
 
 ## John C Reilly
@@ -3014,6 +4796,33 @@ It is frankly impossible to have missed the many, many, many ads, memes, and off
 *Published on: Fri, 12 Jul 2024 14:16:25 GMT*
 
 
+## John C Reilly
+
+## [Bella Hadid Anoints the It-Sneaker of the Summer](https://www.highsnobiety.com/p/bella-hadid-adidas-sl72-outfit/)
+
+Move over, Sambas — there's a new adidas it-shoe in town, and Bella Hadid just gave it her blessing.The SL72 is a lightweight, low-cut sneaker first introduced…
+
+*Published on: Fri, 12 Jul 2024 15:14:00 GMT*
+
+
+## John C Reilly
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Fri, 12 Jul 2024 15:40:45 GMT*
+
+
+## John C Reilly
+
+## [New Balance's Chunkiest-Ever Running Shoe Goes Full HOKA](https://www.highsnobiety.com/p/new-balance-1080-v15-shoe/)
+
+New Balance's 1080 running shoes have been getting great as of late. So great, in fact, that you might mistake them for HOKA.Now, that's high praise — hardly a…
+
+*Published on: Fri, 12 Jul 2024 15:58:45 GMT*
+
+
 ## Kardashian
 
 ## [Kith's Beautifully Braided Birkenstocks Are Back](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
@@ -3057,6 +4866,33 @@ A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do c
 It is frankly impossible to have missed the many, many, many ads, memes, and official events Charli xcx's new full-length, BRAT , has birthed. Be it vast, gene…
 
 *Published on: Fri, 12 Jul 2024 14:16:25 GMT*
+
+
+## Kardashian
+
+## [Bella Hadid Anoints the It-Sneaker of the Summer](https://www.highsnobiety.com/p/bella-hadid-adidas-sl72-outfit/)
+
+Move over, Sambas — there's a new adidas it-shoe in town, and Bella Hadid just gave it her blessing.The SL72 is a lightweight, low-cut sneaker first introduced…
+
+*Published on: Fri, 12 Jul 2024 15:14:00 GMT*
+
+
+## Kardashian
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Fri, 12 Jul 2024 15:40:45 GMT*
+
+
+## Kardashian
+
+## [New Balance's Chunkiest-Ever Running Shoe Goes Full HOKA](https://www.highsnobiety.com/p/new-balance-1080-v15-shoe/)
+
+New Balance's 1080 running shoes have been getting great as of late. So great, in fact, that you might mistake them for HOKA.Now, that's high praise — hardly a…
+
+*Published on: Fri, 12 Jul 2024 15:58:45 GMT*
 
 
 ## Kanye
@@ -3104,6 +4940,33 @@ It is frankly impossible to have missed the many, many, many ads, memes, and off
 *Published on: Fri, 12 Jul 2024 14:16:25 GMT*
 
 
+## Kanye
+
+## [Bella Hadid Anoints the It-Sneaker of the Summer](https://www.highsnobiety.com/p/bella-hadid-adidas-sl72-outfit/)
+
+Move over, Sambas — there's a new adidas it-shoe in town, and Bella Hadid just gave it her blessing.The SL72 is a lightweight, low-cut sneaker first introduced…
+
+*Published on: Fri, 12 Jul 2024 15:14:00 GMT*
+
+
+## Kanye
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Fri, 12 Jul 2024 15:40:45 GMT*
+
+
+## Kanye
+
+## [New Balance's Chunkiest-Ever Running Shoe Goes Full HOKA](https://www.highsnobiety.com/p/new-balance-1080-v15-shoe/)
+
+New Balance's 1080 running shoes have been getting great as of late. So great, in fact, that you might mistake them for HOKA.Now, that's high praise — hardly a…
+
+*Published on: Fri, 12 Jul 2024 15:58:45 GMT*
+
+
 ## Zendaya
 
 ## [Kith's Beautifully Braided Birkenstocks Are Back](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
@@ -3147,6 +5010,33 @@ A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do c
 It is frankly impossible to have missed the many, many, many ads, memes, and official events Charli xcx's new full-length, BRAT , has birthed. Be it vast, gene…
 
 *Published on: Fri, 12 Jul 2024 14:16:25 GMT*
+
+
+## Zendaya
+
+## [Bella Hadid Anoints the It-Sneaker of the Summer](https://www.highsnobiety.com/p/bella-hadid-adidas-sl72-outfit/)
+
+Move over, Sambas — there's a new adidas it-shoe in town, and Bella Hadid just gave it her blessing.The SL72 is a lightweight, low-cut sneaker first introduced…
+
+*Published on: Fri, 12 Jul 2024 15:14:00 GMT*
+
+
+## Zendaya
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Fri, 12 Jul 2024 15:40:45 GMT*
+
+
+## Zendaya
+
+## [New Balance's Chunkiest-Ever Running Shoe Goes Full HOKA](https://www.highsnobiety.com/p/new-balance-1080-v15-shoe/)
+
+New Balance's 1080 running shoes have been getting great as of late. So great, in fact, that you might mistake them for HOKA.Now, that's high praise — hardly a…
+
+*Published on: Fri, 12 Jul 2024 15:58:45 GMT*
 
 
 ## Will Ferrell
@@ -3194,6 +5084,33 @@ It is frankly impossible to have missed the many, many, many ads, memes, and off
 *Published on: Fri, 12 Jul 2024 14:16:25 GMT*
 
 
+## Will Ferrell
+
+## [Bella Hadid Anoints the It-Sneaker of the Summer](https://www.highsnobiety.com/p/bella-hadid-adidas-sl72-outfit/)
+
+Move over, Sambas — there's a new adidas it-shoe in town, and Bella Hadid just gave it her blessing.The SL72 is a lightweight, low-cut sneaker first introduced…
+
+*Published on: Fri, 12 Jul 2024 15:14:00 GMT*
+
+
+## Will Ferrell
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Fri, 12 Jul 2024 15:40:45 GMT*
+
+
+## Will Ferrell
+
+## [New Balance's Chunkiest-Ever Running Shoe Goes Full HOKA](https://www.highsnobiety.com/p/new-balance-1080-v15-shoe/)
+
+New Balance's 1080 running shoes have been getting great as of late. So great, in fact, that you might mistake them for HOKA.Now, that's high praise — hardly a…
+
+*Published on: Fri, 12 Jul 2024 15:58:45 GMT*
+
+
 ## Zazie Beetz
 
 ## [Kith's Beautifully Braided Birkenstocks Are Back](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
@@ -3237,6 +5154,33 @@ A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do c
 It is frankly impossible to have missed the many, many, many ads, memes, and official events Charli xcx's new full-length, BRAT , has birthed. Be it vast, gene…
 
 *Published on: Fri, 12 Jul 2024 14:16:25 GMT*
+
+
+## Zazie Beetz
+
+## [Bella Hadid Anoints the It-Sneaker of the Summer](https://www.highsnobiety.com/p/bella-hadid-adidas-sl72-outfit/)
+
+Move over, Sambas — there's a new adidas it-shoe in town, and Bella Hadid just gave it her blessing.The SL72 is a lightweight, low-cut sneaker first introduced…
+
+*Published on: Fri, 12 Jul 2024 15:14:00 GMT*
+
+
+## Zazie Beetz
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Fri, 12 Jul 2024 15:40:45 GMT*
+
+
+## Zazie Beetz
+
+## [New Balance's Chunkiest-Ever Running Shoe Goes Full HOKA](https://www.highsnobiety.com/p/new-balance-1080-v15-shoe/)
+
+New Balance's 1080 running shoes have been getting great as of late. So great, in fact, that you might mistake them for HOKA.Now, that's high praise — hardly a…
+
+*Published on: Fri, 12 Jul 2024 15:58:45 GMT*
 
 
 ## Bob Odenkirk
@@ -3284,6 +5228,33 @@ It is frankly impossible to have missed the many, many, many ads, memes, and off
 *Published on: Fri, 12 Jul 2024 14:16:25 GMT*
 
 
+## Bob Odenkirk
+
+## [Bella Hadid Anoints the It-Sneaker of the Summer](https://www.highsnobiety.com/p/bella-hadid-adidas-sl72-outfit/)
+
+Move over, Sambas — there's a new adidas it-shoe in town, and Bella Hadid just gave it her blessing.The SL72 is a lightweight, low-cut sneaker first introduced…
+
+*Published on: Fri, 12 Jul 2024 15:14:00 GMT*
+
+
+## Bob Odenkirk
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Fri, 12 Jul 2024 15:40:45 GMT*
+
+
+## Bob Odenkirk
+
+## [New Balance's Chunkiest-Ever Running Shoe Goes Full HOKA](https://www.highsnobiety.com/p/new-balance-1080-v15-shoe/)
+
+New Balance's 1080 running shoes have been getting great as of late. So great, in fact, that you might mistake them for HOKA.Now, that's high praise — hardly a…
+
+*Published on: Fri, 12 Jul 2024 15:58:45 GMT*
+
+
 ## Brad Pitt
 
 ## [Kith's Beautifully Braided Birkenstocks Are Back](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
@@ -3327,6 +5298,33 @@ A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do c
 It is frankly impossible to have missed the many, many, many ads, memes, and official events Charli xcx's new full-length, BRAT , has birthed. Be it vast, gene…
 
 *Published on: Fri, 12 Jul 2024 14:16:25 GMT*
+
+
+## Brad Pitt
+
+## [Bella Hadid Anoints the It-Sneaker of the Summer](https://www.highsnobiety.com/p/bella-hadid-adidas-sl72-outfit/)
+
+Move over, Sambas — there's a new adidas it-shoe in town, and Bella Hadid just gave it her blessing.The SL72 is a lightweight, low-cut sneaker first introduced…
+
+*Published on: Fri, 12 Jul 2024 15:14:00 GMT*
+
+
+## Brad Pitt
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Fri, 12 Jul 2024 15:40:45 GMT*
+
+
+## Brad Pitt
+
+## [New Balance's Chunkiest-Ever Running Shoe Goes Full HOKA](https://www.highsnobiety.com/p/new-balance-1080-v15-shoe/)
+
+New Balance's 1080 running shoes have been getting great as of late. So great, in fact, that you might mistake them for HOKA.Now, that's high praise — hardly a…
+
+*Published on: Fri, 12 Jul 2024 15:58:45 GMT*
 
 
 ## Beyoncé
@@ -3374,6 +5372,33 @@ It is frankly impossible to have missed the many, many, many ads, memes, and off
 *Published on: Fri, 12 Jul 2024 14:16:25 GMT*
 
 
+## Beyoncé
+
+## [Bella Hadid Anoints the It-Sneaker of the Summer](https://www.highsnobiety.com/p/bella-hadid-adidas-sl72-outfit/)
+
+Move over, Sambas — there's a new adidas it-shoe in town, and Bella Hadid just gave it her blessing.The SL72 is a lightweight, low-cut sneaker first introduced…
+
+*Published on: Fri, 12 Jul 2024 15:14:00 GMT*
+
+
+## Beyoncé
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Fri, 12 Jul 2024 15:40:45 GMT*
+
+
+## Beyoncé
+
+## [New Balance's Chunkiest-Ever Running Shoe Goes Full HOKA](https://www.highsnobiety.com/p/new-balance-1080-v15-shoe/)
+
+New Balance's 1080 running shoes have been getting great as of late. So great, in fact, that you might mistake them for HOKA.Now, that's high praise — hardly a…
+
+*Published on: Fri, 12 Jul 2024 15:58:45 GMT*
+
+
 ## Bia
 
 ## [Kith's Beautifully Braided Birkenstocks Are Back](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
@@ -3417,6 +5442,33 @@ A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do c
 It is frankly impossible to have missed the many, many, many ads, memes, and official events Charli xcx's new full-length, BRAT , has birthed. Be it vast, gene…
 
 *Published on: Fri, 12 Jul 2024 14:16:25 GMT*
+
+
+## Bia
+
+## [Bella Hadid Anoints the It-Sneaker of the Summer](https://www.highsnobiety.com/p/bella-hadid-adidas-sl72-outfit/)
+
+Move over, Sambas — there's a new adidas it-shoe in town, and Bella Hadid just gave it her blessing.The SL72 is a lightweight, low-cut sneaker first introduced…
+
+*Published on: Fri, 12 Jul 2024 15:14:00 GMT*
+
+
+## Bia
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Fri, 12 Jul 2024 15:40:45 GMT*
+
+
+## Bia
+
+## [New Balance's Chunkiest-Ever Running Shoe Goes Full HOKA](https://www.highsnobiety.com/p/new-balance-1080-v15-shoe/)
+
+New Balance's 1080 running shoes have been getting great as of late. So great, in fact, that you might mistake them for HOKA.Now, that's high praise — hardly a…
+
+*Published on: Fri, 12 Jul 2024 15:58:45 GMT*
 
 
 ## Avantika
@@ -3464,6 +5516,33 @@ It is frankly impossible to have missed the many, many, many ads, memes, and off
 *Published on: Fri, 12 Jul 2024 14:16:25 GMT*
 
 
+## Avantika
+
+## [Bella Hadid Anoints the It-Sneaker of the Summer](https://www.highsnobiety.com/p/bella-hadid-adidas-sl72-outfit/)
+
+Move over, Sambas — there's a new adidas it-shoe in town, and Bella Hadid just gave it her blessing.The SL72 is a lightweight, low-cut sneaker first introduced…
+
+*Published on: Fri, 12 Jul 2024 15:14:00 GMT*
+
+
+## Avantika
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Fri, 12 Jul 2024 15:40:45 GMT*
+
+
+## Avantika
+
+## [New Balance's Chunkiest-Ever Running Shoe Goes Full HOKA](https://www.highsnobiety.com/p/new-balance-1080-v15-shoe/)
+
+New Balance's 1080 running shoes have been getting great as of late. So great, in fact, that you might mistake them for HOKA.Now, that's high praise — hardly a…
+
+*Published on: Fri, 12 Jul 2024 15:58:45 GMT*
+
+
 ## Bernie Sanders
 
 ## [Kith's Beautifully Braided Birkenstocks Are Back](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
@@ -3507,6 +5586,33 @@ A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do c
 It is frankly impossible to have missed the many, many, many ads, memes, and official events Charli xcx's new full-length, BRAT , has birthed. Be it vast, gene…
 
 *Published on: Fri, 12 Jul 2024 14:16:25 GMT*
+
+
+## Bernie Sanders
+
+## [Bella Hadid Anoints the It-Sneaker of the Summer](https://www.highsnobiety.com/p/bella-hadid-adidas-sl72-outfit/)
+
+Move over, Sambas — there's a new adidas it-shoe in town, and Bella Hadid just gave it her blessing.The SL72 is a lightweight, low-cut sneaker first introduced…
+
+*Published on: Fri, 12 Jul 2024 15:14:00 GMT*
+
+
+## Bernie Sanders
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Fri, 12 Jul 2024 15:40:45 GMT*
+
+
+## Bernie Sanders
+
+## [New Balance's Chunkiest-Ever Running Shoe Goes Full HOKA](https://www.highsnobiety.com/p/new-balance-1080-v15-shoe/)
+
+New Balance's 1080 running shoes have been getting great as of late. So great, in fact, that you might mistake them for HOKA.Now, that's high praise — hardly a…
+
+*Published on: Fri, 12 Jul 2024 15:58:45 GMT*
 
 
 ## Big Sean
@@ -3554,6 +5660,33 @@ It is frankly impossible to have missed the many, many, many ads, memes, and off
 *Published on: Fri, 12 Jul 2024 14:16:25 GMT*
 
 
+## Big Sean
+
+## [Bella Hadid Anoints the It-Sneaker of the Summer](https://www.highsnobiety.com/p/bella-hadid-adidas-sl72-outfit/)
+
+Move over, Sambas — there's a new adidas it-shoe in town, and Bella Hadid just gave it her blessing.The SL72 is a lightweight, low-cut sneaker first introduced…
+
+*Published on: Fri, 12 Jul 2024 15:14:00 GMT*
+
+
+## Big Sean
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Fri, 12 Jul 2024 15:40:45 GMT*
+
+
+## Big Sean
+
+## [New Balance's Chunkiest-Ever Running Shoe Goes Full HOKA](https://www.highsnobiety.com/p/new-balance-1080-v15-shoe/)
+
+New Balance's 1080 running shoes have been getting great as of late. So great, in fact, that you might mistake them for HOKA.Now, that's high praise — hardly a…
+
+*Published on: Fri, 12 Jul 2024 15:58:45 GMT*
+
+
 ## BlockBoy JB
 
 ## [Kith's Beautifully Braided Birkenstocks Are Back](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
@@ -3597,6 +5730,33 @@ A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do c
 It is frankly impossible to have missed the many, many, many ads, memes, and official events Charli xcx's new full-length, BRAT , has birthed. Be it vast, gene…
 
 *Published on: Fri, 12 Jul 2024 14:16:25 GMT*
+
+
+## BlockBoy JB
+
+## [Bella Hadid Anoints the It-Sneaker of the Summer](https://www.highsnobiety.com/p/bella-hadid-adidas-sl72-outfit/)
+
+Move over, Sambas — there's a new adidas it-shoe in town, and Bella Hadid just gave it her blessing.The SL72 is a lightweight, low-cut sneaker first introduced…
+
+*Published on: Fri, 12 Jul 2024 15:14:00 GMT*
+
+
+## BlockBoy JB
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Fri, 12 Jul 2024 15:40:45 GMT*
+
+
+## BlockBoy JB
+
+## [New Balance's Chunkiest-Ever Running Shoe Goes Full HOKA](https://www.highsnobiety.com/p/new-balance-1080-v15-shoe/)
+
+New Balance's 1080 running shoes have been getting great as of late. So great, in fact, that you might mistake them for HOKA.Now, that's high praise — hardly a…
+
+*Published on: Fri, 12 Jul 2024 15:58:45 GMT*
 
 
 ## Biden
@@ -3644,6 +5804,33 @@ It is frankly impossible to have missed the many, many, many ads, memes, and off
 *Published on: Fri, 12 Jul 2024 14:16:25 GMT*
 
 
+## Biden
+
+## [Bella Hadid Anoints the It-Sneaker of the Summer](https://www.highsnobiety.com/p/bella-hadid-adidas-sl72-outfit/)
+
+Move over, Sambas — there's a new adidas it-shoe in town, and Bella Hadid just gave it her blessing.The SL72 is a lightweight, low-cut sneaker first introduced…
+
+*Published on: Fri, 12 Jul 2024 15:14:00 GMT*
+
+
+## Biden
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Fri, 12 Jul 2024 15:40:45 GMT*
+
+
+## Biden
+
+## [New Balance's Chunkiest-Ever Running Shoe Goes Full HOKA](https://www.highsnobiety.com/p/new-balance-1080-v15-shoe/)
+
+New Balance's 1080 running shoes have been getting great as of late. So great, in fact, that you might mistake them for HOKA.Now, that's high praise — hardly a…
+
+*Published on: Fri, 12 Jul 2024 15:58:45 GMT*
+
+
 ## Bieber
 
 ## [Kith's Beautifully Braided Birkenstocks Are Back](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
@@ -3687,6 +5874,33 @@ A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do c
 It is frankly impossible to have missed the many, many, many ads, memes, and official events Charli xcx's new full-length, BRAT , has birthed. Be it vast, gene…
 
 *Published on: Fri, 12 Jul 2024 14:16:25 GMT*
+
+
+## Bieber
+
+## [Bella Hadid Anoints the It-Sneaker of the Summer](https://www.highsnobiety.com/p/bella-hadid-adidas-sl72-outfit/)
+
+Move over, Sambas — there's a new adidas it-shoe in town, and Bella Hadid just gave it her blessing.The SL72 is a lightweight, low-cut sneaker first introduced…
+
+*Published on: Fri, 12 Jul 2024 15:14:00 GMT*
+
+
+## Bieber
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Fri, 12 Jul 2024 15:40:45 GMT*
+
+
+## Bieber
+
+## [New Balance's Chunkiest-Ever Running Shoe Goes Full HOKA](https://www.highsnobiety.com/p/new-balance-1080-v15-shoe/)
+
+New Balance's 1080 running shoes have been getting great as of late. So great, in fact, that you might mistake them for HOKA.Now, that's high praise — hardly a…
+
+*Published on: Fri, 12 Jul 2024 15:58:45 GMT*
 
 
 ## Paulina Porizkov
@@ -3734,6 +5948,33 @@ It is frankly impossible to have missed the many, many, many ads, memes, and off
 *Published on: Fri, 12 Jul 2024 14:16:25 GMT*
 
 
+## Paulina Porizkov
+
+## [Bella Hadid Anoints the It-Sneaker of the Summer](https://www.highsnobiety.com/p/bella-hadid-adidas-sl72-outfit/)
+
+Move over, Sambas — there's a new adidas it-shoe in town, and Bella Hadid just gave it her blessing.The SL72 is a lightweight, low-cut sneaker first introduced…
+
+*Published on: Fri, 12 Jul 2024 15:14:00 GMT*
+
+
+## Paulina Porizkov
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Fri, 12 Jul 2024 15:40:45 GMT*
+
+
+## Paulina Porizkov
+
+## [New Balance's Chunkiest-Ever Running Shoe Goes Full HOKA](https://www.highsnobiety.com/p/new-balance-1080-v15-shoe/)
+
+New Balance's 1080 running shoes have been getting great as of late. So great, in fact, that you might mistake them for HOKA.Now, that's high praise — hardly a…
+
+*Published on: Fri, 12 Jul 2024 15:58:45 GMT*
+
+
 ## Paris Hilton
 
 ## [Kith's Beautifully Braided Birkenstocks Are Back](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
@@ -3777,6 +6018,33 @@ A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do c
 It is frankly impossible to have missed the many, many, many ads, memes, and official events Charli xcx's new full-length, BRAT , has birthed. Be it vast, gene…
 
 *Published on: Fri, 12 Jul 2024 14:16:25 GMT*
+
+
+## Paris Hilton
+
+## [Bella Hadid Anoints the It-Sneaker of the Summer](https://www.highsnobiety.com/p/bella-hadid-adidas-sl72-outfit/)
+
+Move over, Sambas — there's a new adidas it-shoe in town, and Bella Hadid just gave it her blessing.The SL72 is a lightweight, low-cut sneaker first introduced…
+
+*Published on: Fri, 12 Jul 2024 15:14:00 GMT*
+
+
+## Paris Hilton
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Fri, 12 Jul 2024 15:40:45 GMT*
+
+
+## Paris Hilton
+
+## [New Balance's Chunkiest-Ever Running Shoe Goes Full HOKA](https://www.highsnobiety.com/p/new-balance-1080-v15-shoe/)
+
+New Balance's 1080 running shoes have been getting great as of late. So great, in fact, that you might mistake them for HOKA.Now, that's high praise — hardly a…
+
+*Published on: Fri, 12 Jul 2024 15:58:45 GMT*
 
 
 ## Metro Boomin
@@ -3824,6 +6092,33 @@ It is frankly impossible to have missed the many, many, many ads, memes, and off
 *Published on: Fri, 12 Jul 2024 14:16:25 GMT*
 
 
+## Metro Boomin
+
+## [Bella Hadid Anoints the It-Sneaker of the Summer](https://www.highsnobiety.com/p/bella-hadid-adidas-sl72-outfit/)
+
+Move over, Sambas — there's a new adidas it-shoe in town, and Bella Hadid just gave it her blessing.The SL72 is a lightweight, low-cut sneaker first introduced…
+
+*Published on: Fri, 12 Jul 2024 15:14:00 GMT*
+
+
+## Metro Boomin
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Fri, 12 Jul 2024 15:40:45 GMT*
+
+
+## Metro Boomin
+
+## [New Balance's Chunkiest-Ever Running Shoe Goes Full HOKA](https://www.highsnobiety.com/p/new-balance-1080-v15-shoe/)
+
+New Balance's 1080 running shoes have been getting great as of late. So great, in fact, that you might mistake them for HOKA.Now, that's high praise — hardly a…
+
+*Published on: Fri, 12 Jul 2024 15:58:45 GMT*
+
+
 ## Meghan Markle
 
 ## [Kith's Beautifully Braided Birkenstocks Are Back](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
@@ -3867,6 +6162,33 @@ A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do c
 It is frankly impossible to have missed the many, many, many ads, memes, and official events Charli xcx's new full-length, BRAT , has birthed. Be it vast, gene…
 
 *Published on: Fri, 12 Jul 2024 14:16:25 GMT*
+
+
+## Meghan Markle
+
+## [Bella Hadid Anoints the It-Sneaker of the Summer](https://www.highsnobiety.com/p/bella-hadid-adidas-sl72-outfit/)
+
+Move over, Sambas — there's a new adidas it-shoe in town, and Bella Hadid just gave it her blessing.The SL72 is a lightweight, low-cut sneaker first introduced…
+
+*Published on: Fri, 12 Jul 2024 15:14:00 GMT*
+
+
+## Meghan Markle
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Fri, 12 Jul 2024 15:40:45 GMT*
+
+
+## Meghan Markle
+
+## [New Balance's Chunkiest-Ever Running Shoe Goes Full HOKA](https://www.highsnobiety.com/p/new-balance-1080-v15-shoe/)
+
+New Balance's 1080 running shoes have been getting great as of late. So great, in fact, that you might mistake them for HOKA.Now, that's high praise — hardly a…
+
+*Published on: Fri, 12 Jul 2024 15:58:45 GMT*
 
 
 ## Megan Thee Stallion
@@ -3914,6 +6236,33 @@ It is frankly impossible to have missed the many, many, many ads, memes, and off
 *Published on: Fri, 12 Jul 2024 14:16:25 GMT*
 
 
+## Megan Thee Stallion
+
+## [Bella Hadid Anoints the It-Sneaker of the Summer](https://www.highsnobiety.com/p/bella-hadid-adidas-sl72-outfit/)
+
+Move over, Sambas — there's a new adidas it-shoe in town, and Bella Hadid just gave it her blessing.The SL72 is a lightweight, low-cut sneaker first introduced…
+
+*Published on: Fri, 12 Jul 2024 15:14:00 GMT*
+
+
+## Megan Thee Stallion
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Fri, 12 Jul 2024 15:40:45 GMT*
+
+
+## Megan Thee Stallion
+
+## [New Balance's Chunkiest-Ever Running Shoe Goes Full HOKA](https://www.highsnobiety.com/p/new-balance-1080-v15-shoe/)
+
+New Balance's 1080 running shoes have been getting great as of late. So great, in fact, that you might mistake them for HOKA.Now, that's high praise — hardly a…
+
+*Published on: Fri, 12 Jul 2024 15:58:45 GMT*
+
+
 ## Maya Rudolph
 
 ## [Kith's Beautifully Braided Birkenstocks Are Back](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
@@ -3957,6 +6306,33 @@ A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do c
 It is frankly impossible to have missed the many, many, many ads, memes, and official events Charli xcx's new full-length, BRAT , has birthed. Be it vast, gene…
 
 *Published on: Fri, 12 Jul 2024 14:16:25 GMT*
+
+
+## Maya Rudolph
+
+## [Bella Hadid Anoints the It-Sneaker of the Summer](https://www.highsnobiety.com/p/bella-hadid-adidas-sl72-outfit/)
+
+Move over, Sambas — there's a new adidas it-shoe in town, and Bella Hadid just gave it her blessing.The SL72 is a lightweight, low-cut sneaker first introduced…
+
+*Published on: Fri, 12 Jul 2024 15:14:00 GMT*
+
+
+## Maya Rudolph
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Fri, 12 Jul 2024 15:40:45 GMT*
+
+
+## Maya Rudolph
+
+## [New Balance's Chunkiest-Ever Running Shoe Goes Full HOKA](https://www.highsnobiety.com/p/new-balance-1080-v15-shoe/)
+
+New Balance's 1080 running shoes have been getting great as of late. So great, in fact, that you might mistake them for HOKA.Now, that's high praise — hardly a…
+
+*Published on: Fri, 12 Jul 2024 15:58:45 GMT*
 
 
 ## Olivia Rodrigo
@@ -4004,6 +6380,33 @@ It is frankly impossible to have missed the many, many, many ads, memes, and off
 *Published on: Fri, 12 Jul 2024 14:16:25 GMT*
 
 
+## Olivia Rodrigo
+
+## [Bella Hadid Anoints the It-Sneaker of the Summer](https://www.highsnobiety.com/p/bella-hadid-adidas-sl72-outfit/)
+
+Move over, Sambas — there's a new adidas it-shoe in town, and Bella Hadid just gave it her blessing.The SL72 is a lightweight, low-cut sneaker first introduced…
+
+*Published on: Fri, 12 Jul 2024 15:14:00 GMT*
+
+
+## Olivia Rodrigo
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Fri, 12 Jul 2024 15:40:45 GMT*
+
+
+## Olivia Rodrigo
+
+## [New Balance's Chunkiest-Ever Running Shoe Goes Full HOKA](https://www.highsnobiety.com/p/new-balance-1080-v15-shoe/)
+
+New Balance's 1080 running shoes have been getting great as of late. So great, in fact, that you might mistake them for HOKA.Now, that's high praise — hardly a…
+
+*Published on: Fri, 12 Jul 2024 15:58:45 GMT*
+
+
 ## Obama
 
 ## [Kith's Beautifully Braided Birkenstocks Are Back](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
@@ -4049,6 +6452,33 @@ It is frankly impossible to have missed the many, many, many ads, memes, and off
 *Published on: Fri, 12 Jul 2024 14:16:25 GMT*
 
 
+## Obama
+
+## [Bella Hadid Anoints the It-Sneaker of the Summer](https://www.highsnobiety.com/p/bella-hadid-adidas-sl72-outfit/)
+
+Move over, Sambas — there's a new adidas it-shoe in town, and Bella Hadid just gave it her blessing.The SL72 is a lightweight, low-cut sneaker first introduced…
+
+*Published on: Fri, 12 Jul 2024 15:14:00 GMT*
+
+
+## Obama
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Fri, 12 Jul 2024 15:40:45 GMT*
+
+
+## Obama
+
+## [New Balance's Chunkiest-Ever Running Shoe Goes Full HOKA](https://www.highsnobiety.com/p/new-balance-1080-v15-shoe/)
+
+New Balance's 1080 running shoes have been getting great as of late. So great, in fact, that you might mistake them for HOKA.Now, that's high praise — hardly a…
+
+*Published on: Fri, 12 Jul 2024 15:58:45 GMT*
+
+
 ## Nicki Minaj
 
 ## [Kith's Beautifully Braided Birkenstocks Are Back](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
@@ -4094,6 +6524,33 @@ It is frankly impossible to have missed the many, many, many ads, memes, and off
 *Published on: Fri, 12 Jul 2024 14:16:25 GMT*
 
 
+## Nicki Minaj
+
+## [Bella Hadid Anoints the It-Sneaker of the Summer](https://www.highsnobiety.com/p/bella-hadid-adidas-sl72-outfit/)
+
+Move over, Sambas — there's a new adidas it-shoe in town, and Bella Hadid just gave it her blessing.The SL72 is a lightweight, low-cut sneaker first introduced…
+
+*Published on: Fri, 12 Jul 2024 15:14:00 GMT*
+
+
+## Nicki Minaj
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Fri, 12 Jul 2024 15:40:45 GMT*
+
+
+## Nicki Minaj
+
+## [New Balance's Chunkiest-Ever Running Shoe Goes Full HOKA](https://www.highsnobiety.com/p/new-balance-1080-v15-shoe/)
+
+New Balance's 1080 running shoes have been getting great as of late. So great, in fact, that you might mistake them for HOKA.Now, that's high praise — hardly a…
+
+*Published on: Fri, 12 Jul 2024 15:58:45 GMT*
+
+
 ## MrBeast
 
 ## [Kith's Beautifully Braided Birkenstocks Are Back](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
@@ -4137,5 +6594,32 @@ A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do c
 It is frankly impossible to have missed the many, many, many ads, memes, and official events Charli xcx's new full-length, BRAT , has birthed. Be it vast, gene…
 
 *Published on: Fri, 12 Jul 2024 14:16:25 GMT*
+
+
+## MrBeast
+
+## [Bella Hadid Anoints the It-Sneaker of the Summer](https://www.highsnobiety.com/p/bella-hadid-adidas-sl72-outfit/)
+
+Move over, Sambas — there's a new adidas it-shoe in town, and Bella Hadid just gave it her blessing.The SL72 is a lightweight, low-cut sneaker first introduced…
+
+*Published on: Fri, 12 Jul 2024 15:14:00 GMT*
+
+
+## MrBeast
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Fri, 12 Jul 2024 15:40:45 GMT*
+
+
+## MrBeast
+
+## [New Balance's Chunkiest-Ever Running Shoe Goes Full HOKA](https://www.highsnobiety.com/p/new-balance-1080-v15-shoe/)
+
+New Balance's 1080 running shoes have been getting great as of late. So great, in fact, that you might mistake them for HOKA.Now, that's high praise — hardly a…
+
+*Published on: Fri, 12 Jul 2024 15:58:45 GMT*
 
 
