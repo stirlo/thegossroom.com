@@ -1,33 +1,6 @@
 # Latest Stories
 ## Tim Cook
 
-## [An "Altra"-Marathon: Is This Niche Trail Brand up Next?](https://www.highsnobiety.com/p/altra-sneakers-trend-2024/)
-
-Salomon and HOKA might have to clear the trail because big Altra steppers are creeping up on the path to fashion's next beloved trail runner.First, let me clar…
-
-*Published on: Thu, 11 Jul 2024 09:30:27 GMT*
-
-
-## Tim Cook
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
-
-*Published on: Thu, 11 Jul 2024 10:05:57 GMT*
-
-
-## Tim Cook
-
-## [ASICS’ Techy Sneaker Collab Is Beautifully Chaotic](https://www.highsnobiety.com/p/asics-p-andrade-gel-kayano-14/)
-
-ASICS’ Gel Kayano 14 model is an old-school running shoe and, when decked out in silver paneling with sporty mesh, it’s a fine example of how chunky, Y2K runni…
-
-*Published on: Thu, 11 Jul 2024 11:28:34 GMT*
-
-
-## Tim Cook
-
 ## [Kith's Beautifully Braided Birkenstocks Are Back](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
 
 And just like that, KITH's deliciously braided Birkenstocks are back.KITH's leading man, Ronnie Fieg, first shared a teaser of his Birkenstock London Braided c…
@@ -39,7 +12,7 @@ And just like that, KITH's deliciously braided Birkenstocks are back.KITH's lead
 
 ## [Maika Monroe's ‘Longlegs’ Press Tour Is Scarily Stylish](https://www.highsnobiety.com/p/maika-monroe-style-outfits/)
 
-Lee Harper, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
+Lee Harker, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
 
 *Published on: Thu, 11 Jul 2024 15:31:37 GMT*
 
@@ -53,31 +26,22 @@ New Balance is one of the few skate shoe companies to challenge Vans' reign as d
 *Published on: Fri, 12 Jul 2024 09:42:39 GMT*
 
 
-## Taylor Swift
+## Tim Cook
 
-## [An "Altra"-Marathon: Is This Niche Trail Brand up Next?](https://www.highsnobiety.com/p/altra-sneakers-trend-2024/)
+## [How Is A$AP Rocky Best-Dressed Even During a Heatwave?](https://www.highsnobiety.com/p/asap-rocky-july-2024-nyc-outfit/)
 
-Salomon and HOKA might have to clear the trail because big Altra steppers are creeping up on the path to fashion's next beloved trail runner.First, let me clar…
+A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do celebs keep hitting big 'fits in the middle of a heatwave?Admittedly, safe bet t…
 
-*Published on: Thu, 11 Jul 2024 09:30:27 GMT*
-
-
-## Taylor Swift
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
-
-*Published on: Thu, 11 Jul 2024 10:05:57 GMT*
+*Published on: Fri, 12 Jul 2024 12:02:58 GMT*
 
 
-## Taylor Swift
+## Tim Cook
 
-## [ASICS’ Techy Sneaker Collab Is Beautifully Chaotic](https://www.highsnobiety.com/p/asics-p-andrade-gel-kayano-14/)
+## [It's BRAT Summer, Sure. But Softies Get (and Want to Look) Hot, Too.](https://www.highsnobiety.com/p/summer-songs-outfits/)
 
-ASICS’ Gel Kayano 14 model is an old-school running shoe and, when decked out in silver paneling with sporty mesh, it’s a fine example of how chunky, Y2K runni…
+It is frankly impossible to have missed the many, many, many ads, memes, and official events Charli xcx's new full-length, BRAT , has birthed. Be it vast, gene…
 
-*Published on: Thu, 11 Jul 2024 11:28:34 GMT*
+*Published on: Fri, 12 Jul 2024 14:16:25 GMT*
 
 
 ## Taylor Swift
@@ -93,7 +57,7 @@ And just like that, KITH's deliciously braided Birkenstocks are back.KITH's lead
 
 ## [Maika Monroe's ‘Longlegs’ Press Tour Is Scarily Stylish](https://www.highsnobiety.com/p/maika-monroe-style-outfits/)
 
-Lee Harper, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
+Lee Harker, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
 
 *Published on: Thu, 11 Jul 2024 15:31:37 GMT*
 
@@ -107,31 +71,22 @@ New Balance is one of the few skate shoe companies to challenge Vans' reign as d
 *Published on: Fri, 12 Jul 2024 09:42:39 GMT*
 
 
-## Tom Brady
+## Taylor Swift
 
-## [An "Altra"-Marathon: Is This Niche Trail Brand up Next?](https://www.highsnobiety.com/p/altra-sneakers-trend-2024/)
+## [How Is A$AP Rocky Best-Dressed Even During a Heatwave?](https://www.highsnobiety.com/p/asap-rocky-july-2024-nyc-outfit/)
 
-Salomon and HOKA might have to clear the trail because big Altra steppers are creeping up on the path to fashion's next beloved trail runner.First, let me clar…
+A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do celebs keep hitting big 'fits in the middle of a heatwave?Admittedly, safe bet t…
 
-*Published on: Thu, 11 Jul 2024 09:30:27 GMT*
-
-
-## Tom Brady
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
-
-*Published on: Thu, 11 Jul 2024 10:05:57 GMT*
+*Published on: Fri, 12 Jul 2024 12:02:58 GMT*
 
 
-## Tom Brady
+## Taylor Swift
 
-## [ASICS’ Techy Sneaker Collab Is Beautifully Chaotic](https://www.highsnobiety.com/p/asics-p-andrade-gel-kayano-14/)
+## [It's BRAT Summer, Sure. But Softies Get (and Want to Look) Hot, Too.](https://www.highsnobiety.com/p/summer-songs-outfits/)
 
-ASICS’ Gel Kayano 14 model is an old-school running shoe and, when decked out in silver paneling with sporty mesh, it’s a fine example of how chunky, Y2K runni…
+It is frankly impossible to have missed the many, many, many ads, memes, and official events Charli xcx's new full-length, BRAT , has birthed. Be it vast, gene…
 
-*Published on: Thu, 11 Jul 2024 11:28:34 GMT*
+*Published on: Fri, 12 Jul 2024 14:16:25 GMT*
 
 
 ## Tom Brady
@@ -147,7 +102,7 @@ And just like that, KITH's deliciously braided Birkenstocks are back.KITH's lead
 
 ## [Maika Monroe's ‘Longlegs’ Press Tour Is Scarily Stylish](https://www.highsnobiety.com/p/maika-monroe-style-outfits/)
 
-Lee Harper, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
+Lee Harker, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
 
 *Published on: Thu, 11 Jul 2024 15:31:37 GMT*
 
@@ -161,31 +116,22 @@ New Balance is one of the few skate shoe companies to challenge Vans' reign as d
 *Published on: Fri, 12 Jul 2024 09:42:39 GMT*
 
 
-## Tina Fey
+## Tom Brady
 
-## [An "Altra"-Marathon: Is This Niche Trail Brand up Next?](https://www.highsnobiety.com/p/altra-sneakers-trend-2024/)
+## [How Is A$AP Rocky Best-Dressed Even During a Heatwave?](https://www.highsnobiety.com/p/asap-rocky-july-2024-nyc-outfit/)
 
-Salomon and HOKA might have to clear the trail because big Altra steppers are creeping up on the path to fashion's next beloved trail runner.First, let me clar…
+A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do celebs keep hitting big 'fits in the middle of a heatwave?Admittedly, safe bet t…
 
-*Published on: Thu, 11 Jul 2024 09:30:27 GMT*
-
-
-## Tina Fey
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
-
-*Published on: Thu, 11 Jul 2024 10:05:57 GMT*
+*Published on: Fri, 12 Jul 2024 12:02:58 GMT*
 
 
-## Tina Fey
+## Tom Brady
 
-## [ASICS’ Techy Sneaker Collab Is Beautifully Chaotic](https://www.highsnobiety.com/p/asics-p-andrade-gel-kayano-14/)
+## [It's BRAT Summer, Sure. But Softies Get (and Want to Look) Hot, Too.](https://www.highsnobiety.com/p/summer-songs-outfits/)
 
-ASICS’ Gel Kayano 14 model is an old-school running shoe and, when decked out in silver paneling with sporty mesh, it’s a fine example of how chunky, Y2K runni…
+It is frankly impossible to have missed the many, many, many ads, memes, and official events Charli xcx's new full-length, BRAT , has birthed. Be it vast, gene…
 
-*Published on: Thu, 11 Jul 2024 11:28:34 GMT*
+*Published on: Fri, 12 Jul 2024 14:16:25 GMT*
 
 
 ## Tina Fey
@@ -201,7 +147,7 @@ And just like that, KITH's deliciously braided Birkenstocks are back.KITH's lead
 
 ## [Maika Monroe's ‘Longlegs’ Press Tour Is Scarily Stylish](https://www.highsnobiety.com/p/maika-monroe-style-outfits/)
 
-Lee Harper, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
+Lee Harker, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
 
 *Published on: Thu, 11 Jul 2024 15:31:37 GMT*
 
@@ -215,31 +161,22 @@ New Balance is one of the few skate shoe companies to challenge Vans' reign as d
 *Published on: Fri, 12 Jul 2024 09:42:39 GMT*
 
 
-## Steven Yuen
+## Tina Fey
 
-## [An "Altra"-Marathon: Is This Niche Trail Brand up Next?](https://www.highsnobiety.com/p/altra-sneakers-trend-2024/)
+## [How Is A$AP Rocky Best-Dressed Even During a Heatwave?](https://www.highsnobiety.com/p/asap-rocky-july-2024-nyc-outfit/)
 
-Salomon and HOKA might have to clear the trail because big Altra steppers are creeping up on the path to fashion's next beloved trail runner.First, let me clar…
+A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do celebs keep hitting big 'fits in the middle of a heatwave?Admittedly, safe bet t…
 
-*Published on: Thu, 11 Jul 2024 09:30:27 GMT*
-
-
-## Steven Yuen
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
-
-*Published on: Thu, 11 Jul 2024 10:05:57 GMT*
+*Published on: Fri, 12 Jul 2024 12:02:58 GMT*
 
 
-## Steven Yuen
+## Tina Fey
 
-## [ASICS’ Techy Sneaker Collab Is Beautifully Chaotic](https://www.highsnobiety.com/p/asics-p-andrade-gel-kayano-14/)
+## [It's BRAT Summer, Sure. But Softies Get (and Want to Look) Hot, Too.](https://www.highsnobiety.com/p/summer-songs-outfits/)
 
-ASICS’ Gel Kayano 14 model is an old-school running shoe and, when decked out in silver paneling with sporty mesh, it’s a fine example of how chunky, Y2K runni…
+It is frankly impossible to have missed the many, many, many ads, memes, and official events Charli xcx's new full-length, BRAT , has birthed. Be it vast, gene…
 
-*Published on: Thu, 11 Jul 2024 11:28:34 GMT*
+*Published on: Fri, 12 Jul 2024 14:16:25 GMT*
 
 
 ## Steven Yuen
@@ -255,7 +192,7 @@ And just like that, KITH's deliciously braided Birkenstocks are back.KITH's lead
 
 ## [Maika Monroe's ‘Longlegs’ Press Tour Is Scarily Stylish](https://www.highsnobiety.com/p/maika-monroe-style-outfits/)
 
-Lee Harper, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
+Lee Harker, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
 
 *Published on: Thu, 11 Jul 2024 15:31:37 GMT*
 
@@ -269,31 +206,22 @@ New Balance is one of the few skate shoe companies to challenge Vans' reign as d
 *Published on: Fri, 12 Jul 2024 09:42:39 GMT*
 
 
-## Sommer Ray
+## Steven Yuen
 
-## [An "Altra"-Marathon: Is This Niche Trail Brand up Next?](https://www.highsnobiety.com/p/altra-sneakers-trend-2024/)
+## [How Is A$AP Rocky Best-Dressed Even During a Heatwave?](https://www.highsnobiety.com/p/asap-rocky-july-2024-nyc-outfit/)
 
-Salomon and HOKA might have to clear the trail because big Altra steppers are creeping up on the path to fashion's next beloved trail runner.First, let me clar…
+A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do celebs keep hitting big 'fits in the middle of a heatwave?Admittedly, safe bet t…
 
-*Published on: Thu, 11 Jul 2024 09:30:27 GMT*
-
-
-## Sommer Ray
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
-
-*Published on: Thu, 11 Jul 2024 10:05:57 GMT*
+*Published on: Fri, 12 Jul 2024 12:02:58 GMT*
 
 
-## Sommer Ray
+## Steven Yuen
 
-## [ASICS’ Techy Sneaker Collab Is Beautifully Chaotic](https://www.highsnobiety.com/p/asics-p-andrade-gel-kayano-14/)
+## [It's BRAT Summer, Sure. But Softies Get (and Want to Look) Hot, Too.](https://www.highsnobiety.com/p/summer-songs-outfits/)
 
-ASICS’ Gel Kayano 14 model is an old-school running shoe and, when decked out in silver paneling with sporty mesh, it’s a fine example of how chunky, Y2K runni…
+It is frankly impossible to have missed the many, many, many ads, memes, and official events Charli xcx's new full-length, BRAT , has birthed. Be it vast, gene…
 
-*Published on: Thu, 11 Jul 2024 11:28:34 GMT*
+*Published on: Fri, 12 Jul 2024 14:16:25 GMT*
 
 
 ## Sommer Ray
@@ -309,7 +237,7 @@ And just like that, KITH's deliciously braided Birkenstocks are back.KITH's lead
 
 ## [Maika Monroe's ‘Longlegs’ Press Tour Is Scarily Stylish](https://www.highsnobiety.com/p/maika-monroe-style-outfits/)
 
-Lee Harper, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
+Lee Harker, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
 
 *Published on: Thu, 11 Jul 2024 15:31:37 GMT*
 
@@ -323,31 +251,22 @@ New Balance is one of the few skate shoe companies to challenge Vans' reign as d
 *Published on: Fri, 12 Jul 2024 09:42:39 GMT*
 
 
-## Sza
+## Sommer Ray
 
-## [An "Altra"-Marathon: Is This Niche Trail Brand up Next?](https://www.highsnobiety.com/p/altra-sneakers-trend-2024/)
+## [How Is A$AP Rocky Best-Dressed Even During a Heatwave?](https://www.highsnobiety.com/p/asap-rocky-july-2024-nyc-outfit/)
 
-Salomon and HOKA might have to clear the trail because big Altra steppers are creeping up on the path to fashion's next beloved trail runner.First, let me clar…
+A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do celebs keep hitting big 'fits in the middle of a heatwave?Admittedly, safe bet t…
 
-*Published on: Thu, 11 Jul 2024 09:30:27 GMT*
-
-
-## Sza
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
-
-*Published on: Thu, 11 Jul 2024 10:05:57 GMT*
+*Published on: Fri, 12 Jul 2024 12:02:58 GMT*
 
 
-## Sza
+## Sommer Ray
 
-## [ASICS’ Techy Sneaker Collab Is Beautifully Chaotic](https://www.highsnobiety.com/p/asics-p-andrade-gel-kayano-14/)
+## [It's BRAT Summer, Sure. But Softies Get (and Want to Look) Hot, Too.](https://www.highsnobiety.com/p/summer-songs-outfits/)
 
-ASICS’ Gel Kayano 14 model is an old-school running shoe and, when decked out in silver paneling with sporty mesh, it’s a fine example of how chunky, Y2K runni…
+It is frankly impossible to have missed the many, many, many ads, memes, and official events Charli xcx's new full-length, BRAT , has birthed. Be it vast, gene…
 
-*Published on: Thu, 11 Jul 2024 11:28:34 GMT*
+*Published on: Fri, 12 Jul 2024 14:16:25 GMT*
 
 
 ## Sza
@@ -363,7 +282,7 @@ And just like that, KITH's deliciously braided Birkenstocks are back.KITH's lead
 
 ## [Maika Monroe's ‘Longlegs’ Press Tour Is Scarily Stylish](https://www.highsnobiety.com/p/maika-monroe-style-outfits/)
 
-Lee Harper, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
+Lee Harker, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
 
 *Published on: Thu, 11 Jul 2024 15:31:37 GMT*
 
@@ -377,31 +296,22 @@ New Balance is one of the few skate shoe companies to challenge Vans' reign as d
 *Published on: Fri, 12 Jul 2024 09:42:39 GMT*
 
 
-## Sydney Sweeney
+## Sza
 
-## [An "Altra"-Marathon: Is This Niche Trail Brand up Next?](https://www.highsnobiety.com/p/altra-sneakers-trend-2024/)
+## [How Is A$AP Rocky Best-Dressed Even During a Heatwave?](https://www.highsnobiety.com/p/asap-rocky-july-2024-nyc-outfit/)
 
-Salomon and HOKA might have to clear the trail because big Altra steppers are creeping up on the path to fashion's next beloved trail runner.First, let me clar…
+A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do celebs keep hitting big 'fits in the middle of a heatwave?Admittedly, safe bet t…
 
-*Published on: Thu, 11 Jul 2024 09:30:27 GMT*
-
-
-## Sydney Sweeney
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
-
-*Published on: Thu, 11 Jul 2024 10:05:57 GMT*
+*Published on: Fri, 12 Jul 2024 12:02:58 GMT*
 
 
-## Sydney Sweeney
+## Sza
 
-## [ASICS’ Techy Sneaker Collab Is Beautifully Chaotic](https://www.highsnobiety.com/p/asics-p-andrade-gel-kayano-14/)
+## [It's BRAT Summer, Sure. But Softies Get (and Want to Look) Hot, Too.](https://www.highsnobiety.com/p/summer-songs-outfits/)
 
-ASICS’ Gel Kayano 14 model is an old-school running shoe and, when decked out in silver paneling with sporty mesh, it’s a fine example of how chunky, Y2K runni…
+It is frankly impossible to have missed the many, many, many ads, memes, and official events Charli xcx's new full-length, BRAT , has birthed. Be it vast, gene…
 
-*Published on: Thu, 11 Jul 2024 11:28:34 GMT*
+*Published on: Fri, 12 Jul 2024 14:16:25 GMT*
 
 
 ## Sydney Sweeney
@@ -417,7 +327,7 @@ And just like that, KITH's deliciously braided Birkenstocks are back.KITH's lead
 
 ## [Maika Monroe's ‘Longlegs’ Press Tour Is Scarily Stylish](https://www.highsnobiety.com/p/maika-monroe-style-outfits/)
 
-Lee Harper, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
+Lee Harker, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
 
 *Published on: Thu, 11 Jul 2024 15:31:37 GMT*
 
@@ -431,31 +341,22 @@ New Balance is one of the few skate shoe companies to challenge Vans' reign as d
 *Published on: Fri, 12 Jul 2024 09:42:39 GMT*
 
 
-## Walton Goggins
+## Sydney Sweeney
 
-## [An "Altra"-Marathon: Is This Niche Trail Brand up Next?](https://www.highsnobiety.com/p/altra-sneakers-trend-2024/)
+## [How Is A$AP Rocky Best-Dressed Even During a Heatwave?](https://www.highsnobiety.com/p/asap-rocky-july-2024-nyc-outfit/)
 
-Salomon and HOKA might have to clear the trail because big Altra steppers are creeping up on the path to fashion's next beloved trail runner.First, let me clar…
+A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do celebs keep hitting big 'fits in the middle of a heatwave?Admittedly, safe bet t…
 
-*Published on: Thu, 11 Jul 2024 09:30:27 GMT*
-
-
-## Walton Goggins
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
-
-*Published on: Thu, 11 Jul 2024 10:05:57 GMT*
+*Published on: Fri, 12 Jul 2024 12:02:58 GMT*
 
 
-## Walton Goggins
+## Sydney Sweeney
 
-## [ASICS’ Techy Sneaker Collab Is Beautifully Chaotic](https://www.highsnobiety.com/p/asics-p-andrade-gel-kayano-14/)
+## [It's BRAT Summer, Sure. But Softies Get (and Want to Look) Hot, Too.](https://www.highsnobiety.com/p/summer-songs-outfits/)
 
-ASICS’ Gel Kayano 14 model is an old-school running shoe and, when decked out in silver paneling with sporty mesh, it’s a fine example of how chunky, Y2K runni…
+It is frankly impossible to have missed the many, many, many ads, memes, and official events Charli xcx's new full-length, BRAT , has birthed. Be it vast, gene…
 
-*Published on: Thu, 11 Jul 2024 11:28:34 GMT*
+*Published on: Fri, 12 Jul 2024 14:16:25 GMT*
 
 
 ## Walton Goggins
@@ -471,7 +372,7 @@ And just like that, KITH's deliciously braided Birkenstocks are back.KITH's lead
 
 ## [Maika Monroe's ‘Longlegs’ Press Tour Is Scarily Stylish](https://www.highsnobiety.com/p/maika-monroe-style-outfits/)
 
-Lee Harper, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
+Lee Harker, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
 
 *Published on: Thu, 11 Jul 2024 15:31:37 GMT*
 
@@ -485,31 +386,22 @@ New Balance is one of the few skate shoe companies to challenge Vans' reign as d
 *Published on: Fri, 12 Jul 2024 09:42:39 GMT*
 
 
-## Tom Holland
+## Walton Goggins
 
-## [An "Altra"-Marathon: Is This Niche Trail Brand up Next?](https://www.highsnobiety.com/p/altra-sneakers-trend-2024/)
+## [How Is A$AP Rocky Best-Dressed Even During a Heatwave?](https://www.highsnobiety.com/p/asap-rocky-july-2024-nyc-outfit/)
 
-Salomon and HOKA might have to clear the trail because big Altra steppers are creeping up on the path to fashion's next beloved trail runner.First, let me clar…
+A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do celebs keep hitting big 'fits in the middle of a heatwave?Admittedly, safe bet t…
 
-*Published on: Thu, 11 Jul 2024 09:30:27 GMT*
-
-
-## Tom Holland
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
-
-*Published on: Thu, 11 Jul 2024 10:05:57 GMT*
+*Published on: Fri, 12 Jul 2024 12:02:58 GMT*
 
 
-## Tom Holland
+## Walton Goggins
 
-## [ASICS’ Techy Sneaker Collab Is Beautifully Chaotic](https://www.highsnobiety.com/p/asics-p-andrade-gel-kayano-14/)
+## [It's BRAT Summer, Sure. But Softies Get (and Want to Look) Hot, Too.](https://www.highsnobiety.com/p/summer-songs-outfits/)
 
-ASICS’ Gel Kayano 14 model is an old-school running shoe and, when decked out in silver paneling with sporty mesh, it’s a fine example of how chunky, Y2K runni…
+It is frankly impossible to have missed the many, many, many ads, memes, and official events Charli xcx's new full-length, BRAT , has birthed. Be it vast, gene…
 
-*Published on: Thu, 11 Jul 2024 11:28:34 GMT*
+*Published on: Fri, 12 Jul 2024 14:16:25 GMT*
 
 
 ## Tom Holland
@@ -525,7 +417,7 @@ And just like that, KITH's deliciously braided Birkenstocks are back.KITH's lead
 
 ## [Maika Monroe's ‘Longlegs’ Press Tour Is Scarily Stylish](https://www.highsnobiety.com/p/maika-monroe-style-outfits/)
 
-Lee Harper, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
+Lee Harker, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
 
 *Published on: Thu, 11 Jul 2024 15:31:37 GMT*
 
@@ -539,31 +431,22 @@ New Balance is one of the few skate shoe companies to challenge Vans' reign as d
 *Published on: Fri, 12 Jul 2024 09:42:39 GMT*
 
 
-## Gucci Mane
+## Tom Holland
 
-## [An "Altra"-Marathon: Is This Niche Trail Brand up Next?](https://www.highsnobiety.com/p/altra-sneakers-trend-2024/)
+## [How Is A$AP Rocky Best-Dressed Even During a Heatwave?](https://www.highsnobiety.com/p/asap-rocky-july-2024-nyc-outfit/)
 
-Salomon and HOKA might have to clear the trail because big Altra steppers are creeping up on the path to fashion's next beloved trail runner.First, let me clar…
+A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do celebs keep hitting big 'fits in the middle of a heatwave?Admittedly, safe bet t…
 
-*Published on: Thu, 11 Jul 2024 09:30:27 GMT*
-
-
-## Gucci Mane
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
-
-*Published on: Thu, 11 Jul 2024 10:05:57 GMT*
+*Published on: Fri, 12 Jul 2024 12:02:58 GMT*
 
 
-## Gucci Mane
+## Tom Holland
 
-## [ASICS’ Techy Sneaker Collab Is Beautifully Chaotic](https://www.highsnobiety.com/p/asics-p-andrade-gel-kayano-14/)
+## [It's BRAT Summer, Sure. But Softies Get (and Want to Look) Hot, Too.](https://www.highsnobiety.com/p/summer-songs-outfits/)
 
-ASICS’ Gel Kayano 14 model is an old-school running shoe and, when decked out in silver paneling with sporty mesh, it’s a fine example of how chunky, Y2K runni…
+It is frankly impossible to have missed the many, many, many ads, memes, and official events Charli xcx's new full-length, BRAT , has birthed. Be it vast, gene…
 
-*Published on: Thu, 11 Jul 2024 11:28:34 GMT*
+*Published on: Fri, 12 Jul 2024 14:16:25 GMT*
 
 
 ## Gucci Mane
@@ -579,7 +462,7 @@ And just like that, KITH's deliciously braided Birkenstocks are back.KITH's lead
 
 ## [Maika Monroe's ‘Longlegs’ Press Tour Is Scarily Stylish](https://www.highsnobiety.com/p/maika-monroe-style-outfits/)
 
-Lee Harper, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
+Lee Harker, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
 
 *Published on: Thu, 11 Jul 2024 15:31:37 GMT*
 
@@ -593,31 +476,22 @@ New Balance is one of the few skate shoe companies to challenge Vans' reign as d
 *Published on: Fri, 12 Jul 2024 09:42:39 GMT*
 
 
-## Harry Styles
+## Gucci Mane
 
-## [An "Altra"-Marathon: Is This Niche Trail Brand up Next?](https://www.highsnobiety.com/p/altra-sneakers-trend-2024/)
+## [How Is A$AP Rocky Best-Dressed Even During a Heatwave?](https://www.highsnobiety.com/p/asap-rocky-july-2024-nyc-outfit/)
 
-Salomon and HOKA might have to clear the trail because big Altra steppers are creeping up on the path to fashion's next beloved trail runner.First, let me clar…
+A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do celebs keep hitting big 'fits in the middle of a heatwave?Admittedly, safe bet t…
 
-*Published on: Thu, 11 Jul 2024 09:30:27 GMT*
-
-
-## Harry Styles
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
-
-*Published on: Thu, 11 Jul 2024 10:05:57 GMT*
+*Published on: Fri, 12 Jul 2024 12:02:58 GMT*
 
 
-## Harry Styles
+## Gucci Mane
 
-## [ASICS’ Techy Sneaker Collab Is Beautifully Chaotic](https://www.highsnobiety.com/p/asics-p-andrade-gel-kayano-14/)
+## [It's BRAT Summer, Sure. But Softies Get (and Want to Look) Hot, Too.](https://www.highsnobiety.com/p/summer-songs-outfits/)
 
-ASICS’ Gel Kayano 14 model is an old-school running shoe and, when decked out in silver paneling with sporty mesh, it’s a fine example of how chunky, Y2K runni…
+It is frankly impossible to have missed the many, many, many ads, memes, and official events Charli xcx's new full-length, BRAT , has birthed. Be it vast, gene…
 
-*Published on: Thu, 11 Jul 2024 11:28:34 GMT*
+*Published on: Fri, 12 Jul 2024 14:16:25 GMT*
 
 
 ## Harry Styles
@@ -633,7 +507,7 @@ And just like that, KITH's deliciously braided Birkenstocks are back.KITH's lead
 
 ## [Maika Monroe's ‘Longlegs’ Press Tour Is Scarily Stylish](https://www.highsnobiety.com/p/maika-monroe-style-outfits/)
 
-Lee Harper, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
+Lee Harker, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
 
 *Published on: Thu, 11 Jul 2024 15:31:37 GMT*
 
@@ -647,31 +521,22 @@ New Balance is one of the few skate shoe companies to challenge Vans' reign as d
 *Published on: Fri, 12 Jul 2024 09:42:39 GMT*
 
 
-## Jake Paul
+## Harry Styles
 
-## [An "Altra"-Marathon: Is This Niche Trail Brand up Next?](https://www.highsnobiety.com/p/altra-sneakers-trend-2024/)
+## [How Is A$AP Rocky Best-Dressed Even During a Heatwave?](https://www.highsnobiety.com/p/asap-rocky-july-2024-nyc-outfit/)
 
-Salomon and HOKA might have to clear the trail because big Altra steppers are creeping up on the path to fashion's next beloved trail runner.First, let me clar…
+A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do celebs keep hitting big 'fits in the middle of a heatwave?Admittedly, safe bet t…
 
-*Published on: Thu, 11 Jul 2024 09:30:27 GMT*
-
-
-## Jake Paul
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
-
-*Published on: Thu, 11 Jul 2024 10:05:57 GMT*
+*Published on: Fri, 12 Jul 2024 12:02:58 GMT*
 
 
-## Jake Paul
+## Harry Styles
 
-## [ASICS’ Techy Sneaker Collab Is Beautifully Chaotic](https://www.highsnobiety.com/p/asics-p-andrade-gel-kayano-14/)
+## [It's BRAT Summer, Sure. But Softies Get (and Want to Look) Hot, Too.](https://www.highsnobiety.com/p/summer-songs-outfits/)
 
-ASICS’ Gel Kayano 14 model is an old-school running shoe and, when decked out in silver paneling with sporty mesh, it’s a fine example of how chunky, Y2K runni…
+It is frankly impossible to have missed the many, many, many ads, memes, and official events Charli xcx's new full-length, BRAT , has birthed. Be it vast, gene…
 
-*Published on: Thu, 11 Jul 2024 11:28:34 GMT*
+*Published on: Fri, 12 Jul 2024 14:16:25 GMT*
 
 
 ## Jake Paul
@@ -687,7 +552,7 @@ And just like that, KITH's deliciously braided Birkenstocks are back.KITH's lead
 
 ## [Maika Monroe's ‘Longlegs’ Press Tour Is Scarily Stylish](https://www.highsnobiety.com/p/maika-monroe-style-outfits/)
 
-Lee Harper, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
+Lee Harker, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
 
 *Published on: Thu, 11 Jul 2024 15:31:37 GMT*
 
@@ -701,31 +566,22 @@ New Balance is one of the few skate shoe companies to challenge Vans' reign as d
 *Published on: Fri, 12 Jul 2024 09:42:39 GMT*
 
 
-## Jameela Jamil
+## Jake Paul
 
-## [An "Altra"-Marathon: Is This Niche Trail Brand up Next?](https://www.highsnobiety.com/p/altra-sneakers-trend-2024/)
+## [How Is A$AP Rocky Best-Dressed Even During a Heatwave?](https://www.highsnobiety.com/p/asap-rocky-july-2024-nyc-outfit/)
 
-Salomon and HOKA might have to clear the trail because big Altra steppers are creeping up on the path to fashion's next beloved trail runner.First, let me clar…
+A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do celebs keep hitting big 'fits in the middle of a heatwave?Admittedly, safe bet t…
 
-*Published on: Thu, 11 Jul 2024 09:30:27 GMT*
-
-
-## Jameela Jamil
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
-
-*Published on: Thu, 11 Jul 2024 10:05:57 GMT*
+*Published on: Fri, 12 Jul 2024 12:02:58 GMT*
 
 
-## Jameela Jamil
+## Jake Paul
 
-## [ASICS’ Techy Sneaker Collab Is Beautifully Chaotic](https://www.highsnobiety.com/p/asics-p-andrade-gel-kayano-14/)
+## [It's BRAT Summer, Sure. But Softies Get (and Want to Look) Hot, Too.](https://www.highsnobiety.com/p/summer-songs-outfits/)
 
-ASICS’ Gel Kayano 14 model is an old-school running shoe and, when decked out in silver paneling with sporty mesh, it’s a fine example of how chunky, Y2K runni…
+It is frankly impossible to have missed the many, many, many ads, memes, and official events Charli xcx's new full-length, BRAT , has birthed. Be it vast, gene…
 
-*Published on: Thu, 11 Jul 2024 11:28:34 GMT*
+*Published on: Fri, 12 Jul 2024 14:16:25 GMT*
 
 
 ## Jameela Jamil
@@ -741,7 +597,7 @@ And just like that, KITH's deliciously braided Birkenstocks are back.KITH's lead
 
 ## [Maika Monroe's ‘Longlegs’ Press Tour Is Scarily Stylish](https://www.highsnobiety.com/p/maika-monroe-style-outfits/)
 
-Lee Harper, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
+Lee Harker, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
 
 *Published on: Thu, 11 Jul 2024 15:31:37 GMT*
 
@@ -755,31 +611,22 @@ New Balance is one of the few skate shoe companies to challenge Vans' reign as d
 *Published on: Fri, 12 Jul 2024 09:42:39 GMT*
 
 
-## Elon Musk
+## Jameela Jamil
 
-## [An "Altra"-Marathon: Is This Niche Trail Brand up Next?](https://www.highsnobiety.com/p/altra-sneakers-trend-2024/)
+## [How Is A$AP Rocky Best-Dressed Even During a Heatwave?](https://www.highsnobiety.com/p/asap-rocky-july-2024-nyc-outfit/)
 
-Salomon and HOKA might have to clear the trail because big Altra steppers are creeping up on the path to fashion's next beloved trail runner.First, let me clar…
+A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do celebs keep hitting big 'fits in the middle of a heatwave?Admittedly, safe bet t…
 
-*Published on: Thu, 11 Jul 2024 09:30:27 GMT*
-
-
-## Elon Musk
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
-
-*Published on: Thu, 11 Jul 2024 10:05:57 GMT*
+*Published on: Fri, 12 Jul 2024 12:02:58 GMT*
 
 
-## Elon Musk
+## Jameela Jamil
 
-## [ASICS’ Techy Sneaker Collab Is Beautifully Chaotic](https://www.highsnobiety.com/p/asics-p-andrade-gel-kayano-14/)
+## [It's BRAT Summer, Sure. But Softies Get (and Want to Look) Hot, Too.](https://www.highsnobiety.com/p/summer-songs-outfits/)
 
-ASICS’ Gel Kayano 14 model is an old-school running shoe and, when decked out in silver paneling with sporty mesh, it’s a fine example of how chunky, Y2K runni…
+It is frankly impossible to have missed the many, many, many ads, memes, and official events Charli xcx's new full-length, BRAT , has birthed. Be it vast, gene…
 
-*Published on: Thu, 11 Jul 2024 11:28:34 GMT*
+*Published on: Fri, 12 Jul 2024 14:16:25 GMT*
 
 
 ## Elon Musk
@@ -795,7 +642,7 @@ And just like that, KITH's deliciously braided Birkenstocks are back.KITH's lead
 
 ## [Maika Monroe's ‘Longlegs’ Press Tour Is Scarily Stylish](https://www.highsnobiety.com/p/maika-monroe-style-outfits/)
 
-Lee Harper, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
+Lee Harker, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
 
 *Published on: Thu, 11 Jul 2024 15:31:37 GMT*
 
@@ -809,31 +656,22 @@ New Balance is one of the few skate shoe companies to challenge Vans' reign as d
 *Published on: Fri, 12 Jul 2024 09:42:39 GMT*
 
 
-## Gabrielle Union
+## Elon Musk
 
-## [An "Altra"-Marathon: Is This Niche Trail Brand up Next?](https://www.highsnobiety.com/p/altra-sneakers-trend-2024/)
+## [How Is A$AP Rocky Best-Dressed Even During a Heatwave?](https://www.highsnobiety.com/p/asap-rocky-july-2024-nyc-outfit/)
 
-Salomon and HOKA might have to clear the trail because big Altra steppers are creeping up on the path to fashion's next beloved trail runner.First, let me clar…
+A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do celebs keep hitting big 'fits in the middle of a heatwave?Admittedly, safe bet t…
 
-*Published on: Thu, 11 Jul 2024 09:30:27 GMT*
-
-
-## Gabrielle Union
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
-
-*Published on: Thu, 11 Jul 2024 10:05:57 GMT*
+*Published on: Fri, 12 Jul 2024 12:02:58 GMT*
 
 
-## Gabrielle Union
+## Elon Musk
 
-## [ASICS’ Techy Sneaker Collab Is Beautifully Chaotic](https://www.highsnobiety.com/p/asics-p-andrade-gel-kayano-14/)
+## [It's BRAT Summer, Sure. But Softies Get (and Want to Look) Hot, Too.](https://www.highsnobiety.com/p/summer-songs-outfits/)
 
-ASICS’ Gel Kayano 14 model is an old-school running shoe and, when decked out in silver paneling with sporty mesh, it’s a fine example of how chunky, Y2K runni…
+It is frankly impossible to have missed the many, many, many ads, memes, and official events Charli xcx's new full-length, BRAT , has birthed. Be it vast, gene…
 
-*Published on: Thu, 11 Jul 2024 11:28:34 GMT*
+*Published on: Fri, 12 Jul 2024 14:16:25 GMT*
 
 
 ## Gabrielle Union
@@ -849,7 +687,7 @@ And just like that, KITH's deliciously braided Birkenstocks are back.KITH's lead
 
 ## [Maika Monroe's ‘Longlegs’ Press Tour Is Scarily Stylish](https://www.highsnobiety.com/p/maika-monroe-style-outfits/)
 
-Lee Harper, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
+Lee Harker, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
 
 *Published on: Thu, 11 Jul 2024 15:31:37 GMT*
 
@@ -863,31 +701,22 @@ New Balance is one of the few skate shoe companies to challenge Vans' reign as d
 *Published on: Fri, 12 Jul 2024 09:42:39 GMT*
 
 
-## Giancarlo Esposito
+## Gabrielle Union
 
-## [An "Altra"-Marathon: Is This Niche Trail Brand up Next?](https://www.highsnobiety.com/p/altra-sneakers-trend-2024/)
+## [How Is A$AP Rocky Best-Dressed Even During a Heatwave?](https://www.highsnobiety.com/p/asap-rocky-july-2024-nyc-outfit/)
 
-Salomon and HOKA might have to clear the trail because big Altra steppers are creeping up on the path to fashion's next beloved trail runner.First, let me clar…
+A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do celebs keep hitting big 'fits in the middle of a heatwave?Admittedly, safe bet t…
 
-*Published on: Thu, 11 Jul 2024 09:30:27 GMT*
-
-
-## Giancarlo Esposito
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
-
-*Published on: Thu, 11 Jul 2024 10:05:57 GMT*
+*Published on: Fri, 12 Jul 2024 12:02:58 GMT*
 
 
-## Giancarlo Esposito
+## Gabrielle Union
 
-## [ASICS’ Techy Sneaker Collab Is Beautifully Chaotic](https://www.highsnobiety.com/p/asics-p-andrade-gel-kayano-14/)
+## [It's BRAT Summer, Sure. But Softies Get (and Want to Look) Hot, Too.](https://www.highsnobiety.com/p/summer-songs-outfits/)
 
-ASICS’ Gel Kayano 14 model is an old-school running shoe and, when decked out in silver paneling with sporty mesh, it’s a fine example of how chunky, Y2K runni…
+It is frankly impossible to have missed the many, many, many ads, memes, and official events Charli xcx's new full-length, BRAT , has birthed. Be it vast, gene…
 
-*Published on: Thu, 11 Jul 2024 11:28:34 GMT*
+*Published on: Fri, 12 Jul 2024 14:16:25 GMT*
 
 
 ## Giancarlo Esposito
@@ -903,7 +732,7 @@ And just like that, KITH's deliciously braided Birkenstocks are back.KITH's lead
 
 ## [Maika Monroe's ‘Longlegs’ Press Tour Is Scarily Stylish](https://www.highsnobiety.com/p/maika-monroe-style-outfits/)
 
-Lee Harper, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
+Lee Harker, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
 
 *Published on: Thu, 11 Jul 2024 15:31:37 GMT*
 
@@ -917,31 +746,22 @@ New Balance is one of the few skate shoe companies to challenge Vans' reign as d
 *Published on: Fri, 12 Jul 2024 09:42:39 GMT*
 
 
-## Gillian Jacobs
+## Giancarlo Esposito
 
-## [An "Altra"-Marathon: Is This Niche Trail Brand up Next?](https://www.highsnobiety.com/p/altra-sneakers-trend-2024/)
+## [How Is A$AP Rocky Best-Dressed Even During a Heatwave?](https://www.highsnobiety.com/p/asap-rocky-july-2024-nyc-outfit/)
 
-Salomon and HOKA might have to clear the trail because big Altra steppers are creeping up on the path to fashion's next beloved trail runner.First, let me clar…
+A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do celebs keep hitting big 'fits in the middle of a heatwave?Admittedly, safe bet t…
 
-*Published on: Thu, 11 Jul 2024 09:30:27 GMT*
-
-
-## Gillian Jacobs
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
-
-*Published on: Thu, 11 Jul 2024 10:05:57 GMT*
+*Published on: Fri, 12 Jul 2024 12:02:58 GMT*
 
 
-## Gillian Jacobs
+## Giancarlo Esposito
 
-## [ASICS’ Techy Sneaker Collab Is Beautifully Chaotic](https://www.highsnobiety.com/p/asics-p-andrade-gel-kayano-14/)
+## [It's BRAT Summer, Sure. But Softies Get (and Want to Look) Hot, Too.](https://www.highsnobiety.com/p/summer-songs-outfits/)
 
-ASICS’ Gel Kayano 14 model is an old-school running shoe and, when decked out in silver paneling with sporty mesh, it’s a fine example of how chunky, Y2K runni…
+It is frankly impossible to have missed the many, many, many ads, memes, and official events Charli xcx's new full-length, BRAT , has birthed. Be it vast, gene…
 
-*Published on: Thu, 11 Jul 2024 11:28:34 GMT*
+*Published on: Fri, 12 Jul 2024 14:16:25 GMT*
 
 
 ## Gillian Jacobs
@@ -957,7 +777,7 @@ And just like that, KITH's deliciously braided Birkenstocks are back.KITH's lead
 
 ## [Maika Monroe's ‘Longlegs’ Press Tour Is Scarily Stylish](https://www.highsnobiety.com/p/maika-monroe-style-outfits/)
 
-Lee Harper, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
+Lee Harker, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
 
 *Published on: Thu, 11 Jul 2024 15:31:37 GMT*
 
@@ -971,31 +791,22 @@ New Balance is one of the few skate shoe companies to challenge Vans' reign as d
 *Published on: Fri, 12 Jul 2024 09:42:39 GMT*
 
 
-## Jason Mantzoukas
+## Gillian Jacobs
 
-## [An "Altra"-Marathon: Is This Niche Trail Brand up Next?](https://www.highsnobiety.com/p/altra-sneakers-trend-2024/)
+## [How Is A$AP Rocky Best-Dressed Even During a Heatwave?](https://www.highsnobiety.com/p/asap-rocky-july-2024-nyc-outfit/)
 
-Salomon and HOKA might have to clear the trail because big Altra steppers are creeping up on the path to fashion's next beloved trail runner.First, let me clar…
+A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do celebs keep hitting big 'fits in the middle of a heatwave?Admittedly, safe bet t…
 
-*Published on: Thu, 11 Jul 2024 09:30:27 GMT*
-
-
-## Jason Mantzoukas
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
-
-*Published on: Thu, 11 Jul 2024 10:05:57 GMT*
+*Published on: Fri, 12 Jul 2024 12:02:58 GMT*
 
 
-## Jason Mantzoukas
+## Gillian Jacobs
 
-## [ASICS’ Techy Sneaker Collab Is Beautifully Chaotic](https://www.highsnobiety.com/p/asics-p-andrade-gel-kayano-14/)
+## [It's BRAT Summer, Sure. But Softies Get (and Want to Look) Hot, Too.](https://www.highsnobiety.com/p/summer-songs-outfits/)
 
-ASICS’ Gel Kayano 14 model is an old-school running shoe and, when decked out in silver paneling with sporty mesh, it’s a fine example of how chunky, Y2K runni…
+It is frankly impossible to have missed the many, many, many ads, memes, and official events Charli xcx's new full-length, BRAT , has birthed. Be it vast, gene…
 
-*Published on: Thu, 11 Jul 2024 11:28:34 GMT*
+*Published on: Fri, 12 Jul 2024 14:16:25 GMT*
 
 
 ## Jason Mantzoukas
@@ -1011,7 +822,7 @@ And just like that, KITH's deliciously braided Birkenstocks are back.KITH's lead
 
 ## [Maika Monroe's ‘Longlegs’ Press Tour Is Scarily Stylish](https://www.highsnobiety.com/p/maika-monroe-style-outfits/)
 
-Lee Harper, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
+Lee Harker, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
 
 *Published on: Thu, 11 Jul 2024 15:31:37 GMT*
 
@@ -1025,31 +836,22 @@ New Balance is one of the few skate shoe companies to challenge Vans' reign as d
 *Published on: Fri, 12 Jul 2024 09:42:39 GMT*
 
 
-## JB Smoove
+## Jason Mantzoukas
 
-## [An "Altra"-Marathon: Is This Niche Trail Brand up Next?](https://www.highsnobiety.com/p/altra-sneakers-trend-2024/)
+## [How Is A$AP Rocky Best-Dressed Even During a Heatwave?](https://www.highsnobiety.com/p/asap-rocky-july-2024-nyc-outfit/)
 
-Salomon and HOKA might have to clear the trail because big Altra steppers are creeping up on the path to fashion's next beloved trail runner.First, let me clar…
+A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do celebs keep hitting big 'fits in the middle of a heatwave?Admittedly, safe bet t…
 
-*Published on: Thu, 11 Jul 2024 09:30:27 GMT*
-
-
-## JB Smoove
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
-
-*Published on: Thu, 11 Jul 2024 10:05:57 GMT*
+*Published on: Fri, 12 Jul 2024 12:02:58 GMT*
 
 
-## JB Smoove
+## Jason Mantzoukas
 
-## [ASICS’ Techy Sneaker Collab Is Beautifully Chaotic](https://www.highsnobiety.com/p/asics-p-andrade-gel-kayano-14/)
+## [It's BRAT Summer, Sure. But Softies Get (and Want to Look) Hot, Too.](https://www.highsnobiety.com/p/summer-songs-outfits/)
 
-ASICS’ Gel Kayano 14 model is an old-school running shoe and, when decked out in silver paneling with sporty mesh, it’s a fine example of how chunky, Y2K runni…
+It is frankly impossible to have missed the many, many, many ads, memes, and official events Charli xcx's new full-length, BRAT , has birthed. Be it vast, gene…
 
-*Published on: Thu, 11 Jul 2024 11:28:34 GMT*
+*Published on: Fri, 12 Jul 2024 14:16:25 GMT*
 
 
 ## JB Smoove
@@ -1065,7 +867,7 @@ And just like that, KITH's deliciously braided Birkenstocks are back.KITH's lead
 
 ## [Maika Monroe's ‘Longlegs’ Press Tour Is Scarily Stylish](https://www.highsnobiety.com/p/maika-monroe-style-outfits/)
 
-Lee Harper, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
+Lee Harker, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
 
 *Published on: Thu, 11 Jul 2024 15:31:37 GMT*
 
@@ -1079,31 +881,22 @@ New Balance is one of the few skate shoe companies to challenge Vans' reign as d
 *Published on: Fri, 12 Jul 2024 09:42:39 GMT*
 
 
-## Madison Pettis
+## JB Smoove
 
-## [An "Altra"-Marathon: Is This Niche Trail Brand up Next?](https://www.highsnobiety.com/p/altra-sneakers-trend-2024/)
+## [How Is A$AP Rocky Best-Dressed Even During a Heatwave?](https://www.highsnobiety.com/p/asap-rocky-july-2024-nyc-outfit/)
 
-Salomon and HOKA might have to clear the trail because big Altra steppers are creeping up on the path to fashion's next beloved trail runner.First, let me clar…
+A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do celebs keep hitting big 'fits in the middle of a heatwave?Admittedly, safe bet t…
 
-*Published on: Thu, 11 Jul 2024 09:30:27 GMT*
-
-
-## Madison Pettis
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
-
-*Published on: Thu, 11 Jul 2024 10:05:57 GMT*
+*Published on: Fri, 12 Jul 2024 12:02:58 GMT*
 
 
-## Madison Pettis
+## JB Smoove
 
-## [ASICS’ Techy Sneaker Collab Is Beautifully Chaotic](https://www.highsnobiety.com/p/asics-p-andrade-gel-kayano-14/)
+## [It's BRAT Summer, Sure. But Softies Get (and Want to Look) Hot, Too.](https://www.highsnobiety.com/p/summer-songs-outfits/)
 
-ASICS’ Gel Kayano 14 model is an old-school running shoe and, when decked out in silver paneling with sporty mesh, it’s a fine example of how chunky, Y2K runni…
+It is frankly impossible to have missed the many, many, many ads, memes, and official events Charli xcx's new full-length, BRAT , has birthed. Be it vast, gene…
 
-*Published on: Thu, 11 Jul 2024 11:28:34 GMT*
+*Published on: Fri, 12 Jul 2024 14:16:25 GMT*
 
 
 ## Madison Pettis
@@ -1119,7 +912,7 @@ And just like that, KITH's deliciously braided Birkenstocks are back.KITH's lead
 
 ## [Maika Monroe's ‘Longlegs’ Press Tour Is Scarily Stylish](https://www.highsnobiety.com/p/maika-monroe-style-outfits/)
 
-Lee Harper, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
+Lee Harker, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
 
 *Published on: Thu, 11 Jul 2024 15:31:37 GMT*
 
@@ -1133,31 +926,22 @@ New Balance is one of the few skate shoe companies to challenge Vans' reign as d
 *Published on: Fri, 12 Jul 2024 09:42:39 GMT*
 
 
-## Austin Butler
+## Madison Pettis
 
-## [An "Altra"-Marathon: Is This Niche Trail Brand up Next?](https://www.highsnobiety.com/p/altra-sneakers-trend-2024/)
+## [How Is A$AP Rocky Best-Dressed Even During a Heatwave?](https://www.highsnobiety.com/p/asap-rocky-july-2024-nyc-outfit/)
 
-Salomon and HOKA might have to clear the trail because big Altra steppers are creeping up on the path to fashion's next beloved trail runner.First, let me clar…
+A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do celebs keep hitting big 'fits in the middle of a heatwave?Admittedly, safe bet t…
 
-*Published on: Thu, 11 Jul 2024 09:30:27 GMT*
-
-
-## Austin Butler
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
-
-*Published on: Thu, 11 Jul 2024 10:05:57 GMT*
+*Published on: Fri, 12 Jul 2024 12:02:58 GMT*
 
 
-## Austin Butler
+## Madison Pettis
 
-## [ASICS’ Techy Sneaker Collab Is Beautifully Chaotic](https://www.highsnobiety.com/p/asics-p-andrade-gel-kayano-14/)
+## [It's BRAT Summer, Sure. But Softies Get (and Want to Look) Hot, Too.](https://www.highsnobiety.com/p/summer-songs-outfits/)
 
-ASICS’ Gel Kayano 14 model is an old-school running shoe and, when decked out in silver paneling with sporty mesh, it’s a fine example of how chunky, Y2K runni…
+It is frankly impossible to have missed the many, many, many ads, memes, and official events Charli xcx's new full-length, BRAT , has birthed. Be it vast, gene…
 
-*Published on: Thu, 11 Jul 2024 11:28:34 GMT*
+*Published on: Fri, 12 Jul 2024 14:16:25 GMT*
 
 
 ## Austin Butler
@@ -1173,7 +957,7 @@ And just like that, KITH's deliciously braided Birkenstocks are back.KITH's lead
 
 ## [Maika Monroe's ‘Longlegs’ Press Tour Is Scarily Stylish](https://www.highsnobiety.com/p/maika-monroe-style-outfits/)
 
-Lee Harper, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
+Lee Harker, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
 
 *Published on: Thu, 11 Jul 2024 15:31:37 GMT*
 
@@ -1187,31 +971,22 @@ New Balance is one of the few skate shoe companies to challenge Vans' reign as d
 *Published on: Fri, 12 Jul 2024 09:42:39 GMT*
 
 
-## Mark Zuckerberg
+## Austin Butler
 
-## [An "Altra"-Marathon: Is This Niche Trail Brand up Next?](https://www.highsnobiety.com/p/altra-sneakers-trend-2024/)
+## [How Is A$AP Rocky Best-Dressed Even During a Heatwave?](https://www.highsnobiety.com/p/asap-rocky-july-2024-nyc-outfit/)
 
-Salomon and HOKA might have to clear the trail because big Altra steppers are creeping up on the path to fashion's next beloved trail runner.First, let me clar…
+A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do celebs keep hitting big 'fits in the middle of a heatwave?Admittedly, safe bet t…
 
-*Published on: Thu, 11 Jul 2024 09:30:27 GMT*
-
-
-## Mark Zuckerberg
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
-
-*Published on: Thu, 11 Jul 2024 10:05:57 GMT*
+*Published on: Fri, 12 Jul 2024 12:02:58 GMT*
 
 
-## Mark Zuckerberg
+## Austin Butler
 
-## [ASICS’ Techy Sneaker Collab Is Beautifully Chaotic](https://www.highsnobiety.com/p/asics-p-andrade-gel-kayano-14/)
+## [It's BRAT Summer, Sure. But Softies Get (and Want to Look) Hot, Too.](https://www.highsnobiety.com/p/summer-songs-outfits/)
 
-ASICS’ Gel Kayano 14 model is an old-school running shoe and, when decked out in silver paneling with sporty mesh, it’s a fine example of how chunky, Y2K runni…
+It is frankly impossible to have missed the many, many, many ads, memes, and official events Charli xcx's new full-length, BRAT , has birthed. Be it vast, gene…
 
-*Published on: Thu, 11 Jul 2024 11:28:34 GMT*
+*Published on: Fri, 12 Jul 2024 14:16:25 GMT*
 
 
 ## Mark Zuckerberg
@@ -1227,7 +1002,7 @@ And just like that, KITH's deliciously braided Birkenstocks are back.KITH's lead
 
 ## [Maika Monroe's ‘Longlegs’ Press Tour Is Scarily Stylish](https://www.highsnobiety.com/p/maika-monroe-style-outfits/)
 
-Lee Harper, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
+Lee Harker, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
 
 *Published on: Thu, 11 Jul 2024 15:31:37 GMT*
 
@@ -1241,31 +1016,22 @@ New Balance is one of the few skate shoe companies to challenge Vans' reign as d
 *Published on: Fri, 12 Jul 2024 09:42:39 GMT*
 
 
-## Ariana Grande
+## Mark Zuckerberg
 
-## [An "Altra"-Marathon: Is This Niche Trail Brand up Next?](https://www.highsnobiety.com/p/altra-sneakers-trend-2024/)
+## [How Is A$AP Rocky Best-Dressed Even During a Heatwave?](https://www.highsnobiety.com/p/asap-rocky-july-2024-nyc-outfit/)
 
-Salomon and HOKA might have to clear the trail because big Altra steppers are creeping up on the path to fashion's next beloved trail runner.First, let me clar…
+A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do celebs keep hitting big 'fits in the middle of a heatwave?Admittedly, safe bet t…
 
-*Published on: Thu, 11 Jul 2024 09:30:27 GMT*
-
-
-## Ariana Grande
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
-
-*Published on: Thu, 11 Jul 2024 10:05:57 GMT*
+*Published on: Fri, 12 Jul 2024 12:02:58 GMT*
 
 
-## Ariana Grande
+## Mark Zuckerberg
 
-## [ASICS’ Techy Sneaker Collab Is Beautifully Chaotic](https://www.highsnobiety.com/p/asics-p-andrade-gel-kayano-14/)
+## [It's BRAT Summer, Sure. But Softies Get (and Want to Look) Hot, Too.](https://www.highsnobiety.com/p/summer-songs-outfits/)
 
-ASICS’ Gel Kayano 14 model is an old-school running shoe and, when decked out in silver paneling with sporty mesh, it’s a fine example of how chunky, Y2K runni…
+It is frankly impossible to have missed the many, many, many ads, memes, and official events Charli xcx's new full-length, BRAT , has birthed. Be it vast, gene…
 
-*Published on: Thu, 11 Jul 2024 11:28:34 GMT*
+*Published on: Fri, 12 Jul 2024 14:16:25 GMT*
 
 
 ## Ariana Grande
@@ -1281,7 +1047,7 @@ And just like that, KITH's deliciously braided Birkenstocks are back.KITH's lead
 
 ## [Maika Monroe's ‘Longlegs’ Press Tour Is Scarily Stylish](https://www.highsnobiety.com/p/maika-monroe-style-outfits/)
 
-Lee Harper, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
+Lee Harker, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
 
 *Published on: Thu, 11 Jul 2024 15:31:37 GMT*
 
@@ -1295,31 +1061,22 @@ New Balance is one of the few skate shoe companies to challenge Vans' reign as d
 *Published on: Fri, 12 Jul 2024 09:42:39 GMT*
 
 
-## Livvy Dunne
+## Ariana Grande
 
-## [An "Altra"-Marathon: Is This Niche Trail Brand up Next?](https://www.highsnobiety.com/p/altra-sneakers-trend-2024/)
+## [How Is A$AP Rocky Best-Dressed Even During a Heatwave?](https://www.highsnobiety.com/p/asap-rocky-july-2024-nyc-outfit/)
 
-Salomon and HOKA might have to clear the trail because big Altra steppers are creeping up on the path to fashion's next beloved trail runner.First, let me clar…
+A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do celebs keep hitting big 'fits in the middle of a heatwave?Admittedly, safe bet t…
 
-*Published on: Thu, 11 Jul 2024 09:30:27 GMT*
-
-
-## Livvy Dunne
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
-
-*Published on: Thu, 11 Jul 2024 10:05:57 GMT*
+*Published on: Fri, 12 Jul 2024 12:02:58 GMT*
 
 
-## Livvy Dunne
+## Ariana Grande
 
-## [ASICS’ Techy Sneaker Collab Is Beautifully Chaotic](https://www.highsnobiety.com/p/asics-p-andrade-gel-kayano-14/)
+## [It's BRAT Summer, Sure. But Softies Get (and Want to Look) Hot, Too.](https://www.highsnobiety.com/p/summer-songs-outfits/)
 
-ASICS’ Gel Kayano 14 model is an old-school running shoe and, when decked out in silver paneling with sporty mesh, it’s a fine example of how chunky, Y2K runni…
+It is frankly impossible to have missed the many, many, many ads, memes, and official events Charli xcx's new full-length, BRAT , has birthed. Be it vast, gene…
 
-*Published on: Thu, 11 Jul 2024 11:28:34 GMT*
+*Published on: Fri, 12 Jul 2024 14:16:25 GMT*
 
 
 ## Livvy Dunne
@@ -1335,7 +1092,7 @@ And just like that, KITH's deliciously braided Birkenstocks are back.KITH's lead
 
 ## [Maika Monroe's ‘Longlegs’ Press Tour Is Scarily Stylish](https://www.highsnobiety.com/p/maika-monroe-style-outfits/)
 
-Lee Harper, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
+Lee Harker, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
 
 *Published on: Thu, 11 Jul 2024 15:31:37 GMT*
 
@@ -1349,31 +1106,22 @@ New Balance is one of the few skate shoe companies to challenge Vans' reign as d
 *Published on: Fri, 12 Jul 2024 09:42:39 GMT*
 
 
-## Ali Wong
+## Livvy Dunne
 
-## [An "Altra"-Marathon: Is This Niche Trail Brand up Next?](https://www.highsnobiety.com/p/altra-sneakers-trend-2024/)
+## [How Is A$AP Rocky Best-Dressed Even During a Heatwave?](https://www.highsnobiety.com/p/asap-rocky-july-2024-nyc-outfit/)
 
-Salomon and HOKA might have to clear the trail because big Altra steppers are creeping up on the path to fashion's next beloved trail runner.First, let me clar…
+A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do celebs keep hitting big 'fits in the middle of a heatwave?Admittedly, safe bet t…
 
-*Published on: Thu, 11 Jul 2024 09:30:27 GMT*
-
-
-## Ali Wong
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
-
-*Published on: Thu, 11 Jul 2024 10:05:57 GMT*
+*Published on: Fri, 12 Jul 2024 12:02:58 GMT*
 
 
-## Ali Wong
+## Livvy Dunne
 
-## [ASICS’ Techy Sneaker Collab Is Beautifully Chaotic](https://www.highsnobiety.com/p/asics-p-andrade-gel-kayano-14/)
+## [It's BRAT Summer, Sure. But Softies Get (and Want to Look) Hot, Too.](https://www.highsnobiety.com/p/summer-songs-outfits/)
 
-ASICS’ Gel Kayano 14 model is an old-school running shoe and, when decked out in silver paneling with sporty mesh, it’s a fine example of how chunky, Y2K runni…
+It is frankly impossible to have missed the many, many, many ads, memes, and official events Charli xcx's new full-length, BRAT , has birthed. Be it vast, gene…
 
-*Published on: Thu, 11 Jul 2024 11:28:34 GMT*
+*Published on: Fri, 12 Jul 2024 14:16:25 GMT*
 
 
 ## Ali Wong
@@ -1389,7 +1137,7 @@ And just like that, KITH's deliciously braided Birkenstocks are back.KITH's lead
 
 ## [Maika Monroe's ‘Longlegs’ Press Tour Is Scarily Stylish](https://www.highsnobiety.com/p/maika-monroe-style-outfits/)
 
-Lee Harper, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
+Lee Harker, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
 
 *Published on: Thu, 11 Jul 2024 15:31:37 GMT*
 
@@ -1403,31 +1151,22 @@ New Balance is one of the few skate shoe companies to challenge Vans' reign as d
 *Published on: Fri, 12 Jul 2024 09:42:39 GMT*
 
 
-## Lizzo
+## Ali Wong
 
-## [An "Altra"-Marathon: Is This Niche Trail Brand up Next?](https://www.highsnobiety.com/p/altra-sneakers-trend-2024/)
+## [How Is A$AP Rocky Best-Dressed Even During a Heatwave?](https://www.highsnobiety.com/p/asap-rocky-july-2024-nyc-outfit/)
 
-Salomon and HOKA might have to clear the trail because big Altra steppers are creeping up on the path to fashion's next beloved trail runner.First, let me clar…
+A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do celebs keep hitting big 'fits in the middle of a heatwave?Admittedly, safe bet t…
 
-*Published on: Thu, 11 Jul 2024 09:30:27 GMT*
-
-
-## Lizzo
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
-
-*Published on: Thu, 11 Jul 2024 10:05:57 GMT*
+*Published on: Fri, 12 Jul 2024 12:02:58 GMT*
 
 
-## Lizzo
+## Ali Wong
 
-## [ASICS’ Techy Sneaker Collab Is Beautifully Chaotic](https://www.highsnobiety.com/p/asics-p-andrade-gel-kayano-14/)
+## [It's BRAT Summer, Sure. But Softies Get (and Want to Look) Hot, Too.](https://www.highsnobiety.com/p/summer-songs-outfits/)
 
-ASICS’ Gel Kayano 14 model is an old-school running shoe and, when decked out in silver paneling with sporty mesh, it’s a fine example of how chunky, Y2K runni…
+It is frankly impossible to have missed the many, many, many ads, memes, and official events Charli xcx's new full-length, BRAT , has birthed. Be it vast, gene…
 
-*Published on: Thu, 11 Jul 2024 11:28:34 GMT*
+*Published on: Fri, 12 Jul 2024 14:16:25 GMT*
 
 
 ## Lizzo
@@ -1443,7 +1182,7 @@ And just like that, KITH's deliciously braided Birkenstocks are back.KITH's lead
 
 ## [Maika Monroe's ‘Longlegs’ Press Tour Is Scarily Stylish](https://www.highsnobiety.com/p/maika-monroe-style-outfits/)
 
-Lee Harper, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
+Lee Harker, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
 
 *Published on: Thu, 11 Jul 2024 15:31:37 GMT*
 
@@ -1457,31 +1196,22 @@ New Balance is one of the few skate shoe companies to challenge Vans' reign as d
 *Published on: Fri, 12 Jul 2024 09:42:39 GMT*
 
 
-## Alison Brie
+## Lizzo
 
-## [An "Altra"-Marathon: Is This Niche Trail Brand up Next?](https://www.highsnobiety.com/p/altra-sneakers-trend-2024/)
+## [How Is A$AP Rocky Best-Dressed Even During a Heatwave?](https://www.highsnobiety.com/p/asap-rocky-july-2024-nyc-outfit/)
 
-Salomon and HOKA might have to clear the trail because big Altra steppers are creeping up on the path to fashion's next beloved trail runner.First, let me clar…
+A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do celebs keep hitting big 'fits in the middle of a heatwave?Admittedly, safe bet t…
 
-*Published on: Thu, 11 Jul 2024 09:30:27 GMT*
-
-
-## Alison Brie
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
-
-*Published on: Thu, 11 Jul 2024 10:05:57 GMT*
+*Published on: Fri, 12 Jul 2024 12:02:58 GMT*
 
 
-## Alison Brie
+## Lizzo
 
-## [ASICS’ Techy Sneaker Collab Is Beautifully Chaotic](https://www.highsnobiety.com/p/asics-p-andrade-gel-kayano-14/)
+## [It's BRAT Summer, Sure. But Softies Get (and Want to Look) Hot, Too.](https://www.highsnobiety.com/p/summer-songs-outfits/)
 
-ASICS’ Gel Kayano 14 model is an old-school running shoe and, when decked out in silver paneling with sporty mesh, it’s a fine example of how chunky, Y2K runni…
+It is frankly impossible to have missed the many, many, many ads, memes, and official events Charli xcx's new full-length, BRAT , has birthed. Be it vast, gene…
 
-*Published on: Thu, 11 Jul 2024 11:28:34 GMT*
+*Published on: Fri, 12 Jul 2024 14:16:25 GMT*
 
 
 ## Alison Brie
@@ -1497,7 +1227,7 @@ And just like that, KITH's deliciously braided Birkenstocks are back.KITH's lead
 
 ## [Maika Monroe's ‘Longlegs’ Press Tour Is Scarily Stylish](https://www.highsnobiety.com/p/maika-monroe-style-outfits/)
 
-Lee Harper, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
+Lee Harker, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
 
 *Published on: Thu, 11 Jul 2024 15:31:37 GMT*
 
@@ -1511,31 +1241,22 @@ New Balance is one of the few skate shoe companies to challenge Vans' reign as d
 *Published on: Fri, 12 Jul 2024 09:42:39 GMT*
 
 
-## Lil Wayne
+## Alison Brie
 
-## [An "Altra"-Marathon: Is This Niche Trail Brand up Next?](https://www.highsnobiety.com/p/altra-sneakers-trend-2024/)
+## [How Is A$AP Rocky Best-Dressed Even During a Heatwave?](https://www.highsnobiety.com/p/asap-rocky-july-2024-nyc-outfit/)
 
-Salomon and HOKA might have to clear the trail because big Altra steppers are creeping up on the path to fashion's next beloved trail runner.First, let me clar…
+A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do celebs keep hitting big 'fits in the middle of a heatwave?Admittedly, safe bet t…
 
-*Published on: Thu, 11 Jul 2024 09:30:27 GMT*
-
-
-## Lil Wayne
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
-
-*Published on: Thu, 11 Jul 2024 10:05:57 GMT*
+*Published on: Fri, 12 Jul 2024 12:02:58 GMT*
 
 
-## Lil Wayne
+## Alison Brie
 
-## [ASICS’ Techy Sneaker Collab Is Beautifully Chaotic](https://www.highsnobiety.com/p/asics-p-andrade-gel-kayano-14/)
+## [It's BRAT Summer, Sure. But Softies Get (and Want to Look) Hot, Too.](https://www.highsnobiety.com/p/summer-songs-outfits/)
 
-ASICS’ Gel Kayano 14 model is an old-school running shoe and, when decked out in silver paneling with sporty mesh, it’s a fine example of how chunky, Y2K runni…
+It is frankly impossible to have missed the many, many, many ads, memes, and official events Charli xcx's new full-length, BRAT , has birthed. Be it vast, gene…
 
-*Published on: Thu, 11 Jul 2024 11:28:34 GMT*
+*Published on: Fri, 12 Jul 2024 14:16:25 GMT*
 
 
 ## Lil Wayne
@@ -1551,7 +1272,7 @@ And just like that, KITH's deliciously braided Birkenstocks are back.KITH's lead
 
 ## [Maika Monroe's ‘Longlegs’ Press Tour Is Scarily Stylish](https://www.highsnobiety.com/p/maika-monroe-style-outfits/)
 
-Lee Harper, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
+Lee Harker, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
 
 *Published on: Thu, 11 Jul 2024 15:31:37 GMT*
 
@@ -1565,31 +1286,22 @@ New Balance is one of the few skate shoe companies to challenge Vans' reign as d
 *Published on: Fri, 12 Jul 2024 09:42:39 GMT*
 
 
-## Adele
+## Lil Wayne
 
-## [An "Altra"-Marathon: Is This Niche Trail Brand up Next?](https://www.highsnobiety.com/p/altra-sneakers-trend-2024/)
+## [How Is A$AP Rocky Best-Dressed Even During a Heatwave?](https://www.highsnobiety.com/p/asap-rocky-july-2024-nyc-outfit/)
 
-Salomon and HOKA might have to clear the trail because big Altra steppers are creeping up on the path to fashion's next beloved trail runner.First, let me clar…
+A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do celebs keep hitting big 'fits in the middle of a heatwave?Admittedly, safe bet t…
 
-*Published on: Thu, 11 Jul 2024 09:30:27 GMT*
-
-
-## Adele
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
-
-*Published on: Thu, 11 Jul 2024 10:05:57 GMT*
+*Published on: Fri, 12 Jul 2024 12:02:58 GMT*
 
 
-## Adele
+## Lil Wayne
 
-## [ASICS’ Techy Sneaker Collab Is Beautifully Chaotic](https://www.highsnobiety.com/p/asics-p-andrade-gel-kayano-14/)
+## [It's BRAT Summer, Sure. But Softies Get (and Want to Look) Hot, Too.](https://www.highsnobiety.com/p/summer-songs-outfits/)
 
-ASICS’ Gel Kayano 14 model is an old-school running shoe and, when decked out in silver paneling with sporty mesh, it’s a fine example of how chunky, Y2K runni…
+It is frankly impossible to have missed the many, many, many ads, memes, and official events Charli xcx's new full-length, BRAT , has birthed. Be it vast, gene…
 
-*Published on: Thu, 11 Jul 2024 11:28:34 GMT*
+*Published on: Fri, 12 Jul 2024 14:16:25 GMT*
 
 
 ## Adele
@@ -1605,7 +1317,7 @@ And just like that, KITH's deliciously braided Birkenstocks are back.KITH's lead
 
 ## [Maika Monroe's ‘Longlegs’ Press Tour Is Scarily Stylish](https://www.highsnobiety.com/p/maika-monroe-style-outfits/)
 
-Lee Harper, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
+Lee Harker, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
 
 *Published on: Thu, 11 Jul 2024 15:31:37 GMT*
 
@@ -1619,31 +1331,22 @@ New Balance is one of the few skate shoe companies to challenge Vans' reign as d
 *Published on: Fri, 12 Jul 2024 09:42:39 GMT*
 
 
-## Lindsay Lohan
+## Adele
 
-## [An "Altra"-Marathon: Is This Niche Trail Brand up Next?](https://www.highsnobiety.com/p/altra-sneakers-trend-2024/)
+## [How Is A$AP Rocky Best-Dressed Even During a Heatwave?](https://www.highsnobiety.com/p/asap-rocky-july-2024-nyc-outfit/)
 
-Salomon and HOKA might have to clear the trail because big Altra steppers are creeping up on the path to fashion's next beloved trail runner.First, let me clar…
+A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do celebs keep hitting big 'fits in the middle of a heatwave?Admittedly, safe bet t…
 
-*Published on: Thu, 11 Jul 2024 09:30:27 GMT*
-
-
-## Lindsay Lohan
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
-
-*Published on: Thu, 11 Jul 2024 10:05:57 GMT*
+*Published on: Fri, 12 Jul 2024 12:02:58 GMT*
 
 
-## Lindsay Lohan
+## Adele
 
-## [ASICS’ Techy Sneaker Collab Is Beautifully Chaotic](https://www.highsnobiety.com/p/asics-p-andrade-gel-kayano-14/)
+## [It's BRAT Summer, Sure. But Softies Get (and Want to Look) Hot, Too.](https://www.highsnobiety.com/p/summer-songs-outfits/)
 
-ASICS’ Gel Kayano 14 model is an old-school running shoe and, when decked out in silver paneling with sporty mesh, it’s a fine example of how chunky, Y2K runni…
+It is frankly impossible to have missed the many, many, many ads, memes, and official events Charli xcx's new full-length, BRAT , has birthed. Be it vast, gene…
 
-*Published on: Thu, 11 Jul 2024 11:28:34 GMT*
+*Published on: Fri, 12 Jul 2024 14:16:25 GMT*
 
 
 ## Lindsay Lohan
@@ -1659,7 +1362,7 @@ And just like that, KITH's deliciously braided Birkenstocks are back.KITH's lead
 
 ## [Maika Monroe's ‘Longlegs’ Press Tour Is Scarily Stylish](https://www.highsnobiety.com/p/maika-monroe-style-outfits/)
 
-Lee Harper, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
+Lee Harker, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
 
 *Published on: Thu, 11 Jul 2024 15:31:37 GMT*
 
@@ -1673,31 +1376,22 @@ New Balance is one of the few skate shoe companies to challenge Vans' reign as d
 *Published on: Fri, 12 Jul 2024 09:42:39 GMT*
 
 
-## Addison Rae
+## Lindsay Lohan
 
-## [An "Altra"-Marathon: Is This Niche Trail Brand up Next?](https://www.highsnobiety.com/p/altra-sneakers-trend-2024/)
+## [How Is A$AP Rocky Best-Dressed Even During a Heatwave?](https://www.highsnobiety.com/p/asap-rocky-july-2024-nyc-outfit/)
 
-Salomon and HOKA might have to clear the trail because big Altra steppers are creeping up on the path to fashion's next beloved trail runner.First, let me clar…
+A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do celebs keep hitting big 'fits in the middle of a heatwave?Admittedly, safe bet t…
 
-*Published on: Thu, 11 Jul 2024 09:30:27 GMT*
-
-
-## Addison Rae
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
-
-*Published on: Thu, 11 Jul 2024 10:05:57 GMT*
+*Published on: Fri, 12 Jul 2024 12:02:58 GMT*
 
 
-## Addison Rae
+## Lindsay Lohan
 
-## [ASICS’ Techy Sneaker Collab Is Beautifully Chaotic](https://www.highsnobiety.com/p/asics-p-andrade-gel-kayano-14/)
+## [It's BRAT Summer, Sure. But Softies Get (and Want to Look) Hot, Too.](https://www.highsnobiety.com/p/summer-songs-outfits/)
 
-ASICS’ Gel Kayano 14 model is an old-school running shoe and, when decked out in silver paneling with sporty mesh, it’s a fine example of how chunky, Y2K runni…
+It is frankly impossible to have missed the many, many, many ads, memes, and official events Charli xcx's new full-length, BRAT , has birthed. Be it vast, gene…
 
-*Published on: Thu, 11 Jul 2024 11:28:34 GMT*
+*Published on: Fri, 12 Jul 2024 14:16:25 GMT*
 
 
 ## Addison Rae
@@ -1713,7 +1407,7 @@ And just like that, KITH's deliciously braided Birkenstocks are back.KITH's lead
 
 ## [Maika Monroe's ‘Longlegs’ Press Tour Is Scarily Stylish](https://www.highsnobiety.com/p/maika-monroe-style-outfits/)
 
-Lee Harper, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
+Lee Harker, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
 
 *Published on: Thu, 11 Jul 2024 15:31:37 GMT*
 
@@ -1727,31 +1421,22 @@ New Balance is one of the few skate shoe companies to challenge Vans' reign as d
 *Published on: Fri, 12 Jul 2024 09:42:39 GMT*
 
 
-## Latto
+## Addison Rae
 
-## [An "Altra"-Marathon: Is This Niche Trail Brand up Next?](https://www.highsnobiety.com/p/altra-sneakers-trend-2024/)
+## [How Is A$AP Rocky Best-Dressed Even During a Heatwave?](https://www.highsnobiety.com/p/asap-rocky-july-2024-nyc-outfit/)
 
-Salomon and HOKA might have to clear the trail because big Altra steppers are creeping up on the path to fashion's next beloved trail runner.First, let me clar…
+A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do celebs keep hitting big 'fits in the middle of a heatwave?Admittedly, safe bet t…
 
-*Published on: Thu, 11 Jul 2024 09:30:27 GMT*
-
-
-## Latto
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
-
-*Published on: Thu, 11 Jul 2024 10:05:57 GMT*
+*Published on: Fri, 12 Jul 2024 12:02:58 GMT*
 
 
-## Latto
+## Addison Rae
 
-## [ASICS’ Techy Sneaker Collab Is Beautifully Chaotic](https://www.highsnobiety.com/p/asics-p-andrade-gel-kayano-14/)
+## [It's BRAT Summer, Sure. But Softies Get (and Want to Look) Hot, Too.](https://www.highsnobiety.com/p/summer-songs-outfits/)
 
-ASICS’ Gel Kayano 14 model is an old-school running shoe and, when decked out in silver paneling with sporty mesh, it’s a fine example of how chunky, Y2K runni…
+It is frankly impossible to have missed the many, many, many ads, memes, and official events Charli xcx's new full-length, BRAT , has birthed. Be it vast, gene…
 
-*Published on: Thu, 11 Jul 2024 11:28:34 GMT*
+*Published on: Fri, 12 Jul 2024 14:16:25 GMT*
 
 
 ## Latto
@@ -1767,7 +1452,7 @@ And just like that, KITH's deliciously braided Birkenstocks are back.KITH's lead
 
 ## [Maika Monroe's ‘Longlegs’ Press Tour Is Scarily Stylish](https://www.highsnobiety.com/p/maika-monroe-style-outfits/)
 
-Lee Harper, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
+Lee Harker, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
 
 *Published on: Thu, 11 Jul 2024 15:31:37 GMT*
 
@@ -1781,31 +1466,22 @@ New Balance is one of the few skate shoe companies to challenge Vans' reign as d
 *Published on: Fri, 12 Jul 2024 09:42:39 GMT*
 
 
-## Aaron Paul
+## Latto
 
-## [An "Altra"-Marathon: Is This Niche Trail Brand up Next?](https://www.highsnobiety.com/p/altra-sneakers-trend-2024/)
+## [How Is A$AP Rocky Best-Dressed Even During a Heatwave?](https://www.highsnobiety.com/p/asap-rocky-july-2024-nyc-outfit/)
 
-Salomon and HOKA might have to clear the trail because big Altra steppers are creeping up on the path to fashion's next beloved trail runner.First, let me clar…
+A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do celebs keep hitting big 'fits in the middle of a heatwave?Admittedly, safe bet t…
 
-*Published on: Thu, 11 Jul 2024 09:30:27 GMT*
-
-
-## Aaron Paul
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
-
-*Published on: Thu, 11 Jul 2024 10:05:57 GMT*
+*Published on: Fri, 12 Jul 2024 12:02:58 GMT*
 
 
-## Aaron Paul
+## Latto
 
-## [ASICS’ Techy Sneaker Collab Is Beautifully Chaotic](https://www.highsnobiety.com/p/asics-p-andrade-gel-kayano-14/)
+## [It's BRAT Summer, Sure. But Softies Get (and Want to Look) Hot, Too.](https://www.highsnobiety.com/p/summer-songs-outfits/)
 
-ASICS’ Gel Kayano 14 model is an old-school running shoe and, when decked out in silver paneling with sporty mesh, it’s a fine example of how chunky, Y2K runni…
+It is frankly impossible to have missed the many, many, many ads, memes, and official events Charli xcx's new full-length, BRAT , has birthed. Be it vast, gene…
 
-*Published on: Thu, 11 Jul 2024 11:28:34 GMT*
+*Published on: Fri, 12 Jul 2024 14:16:25 GMT*
 
 
 ## Aaron Paul
@@ -1821,7 +1497,7 @@ And just like that, KITH's deliciously braided Birkenstocks are back.KITH's lead
 
 ## [Maika Monroe's ‘Longlegs’ Press Tour Is Scarily Stylish](https://www.highsnobiety.com/p/maika-monroe-style-outfits/)
 
-Lee Harper, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
+Lee Harker, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
 
 *Published on: Thu, 11 Jul 2024 15:31:37 GMT*
 
@@ -1835,31 +1511,22 @@ New Balance is one of the few skate shoe companies to challenge Vans' reign as d
 *Published on: Fri, 12 Jul 2024 09:42:39 GMT*
 
 
-## LeBron James
+## Aaron Paul
 
-## [An "Altra"-Marathon: Is This Niche Trail Brand up Next?](https://www.highsnobiety.com/p/altra-sneakers-trend-2024/)
+## [How Is A$AP Rocky Best-Dressed Even During a Heatwave?](https://www.highsnobiety.com/p/asap-rocky-july-2024-nyc-outfit/)
 
-Salomon and HOKA might have to clear the trail because big Altra steppers are creeping up on the path to fashion's next beloved trail runner.First, let me clar…
+A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do celebs keep hitting big 'fits in the middle of a heatwave?Admittedly, safe bet t…
 
-*Published on: Thu, 11 Jul 2024 09:30:27 GMT*
-
-
-## LeBron James
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
-
-*Published on: Thu, 11 Jul 2024 10:05:57 GMT*
+*Published on: Fri, 12 Jul 2024 12:02:58 GMT*
 
 
-## LeBron James
+## Aaron Paul
 
-## [ASICS’ Techy Sneaker Collab Is Beautifully Chaotic](https://www.highsnobiety.com/p/asics-p-andrade-gel-kayano-14/)
+## [It's BRAT Summer, Sure. But Softies Get (and Want to Look) Hot, Too.](https://www.highsnobiety.com/p/summer-songs-outfits/)
 
-ASICS’ Gel Kayano 14 model is an old-school running shoe and, when decked out in silver paneling with sporty mesh, it’s a fine example of how chunky, Y2K runni…
+It is frankly impossible to have missed the many, many, many ads, memes, and official events Charli xcx's new full-length, BRAT , has birthed. Be it vast, gene…
 
-*Published on: Thu, 11 Jul 2024 11:28:34 GMT*
+*Published on: Fri, 12 Jul 2024 14:16:25 GMT*
 
 
 ## LeBron James
@@ -1875,7 +1542,7 @@ And just like that, KITH's deliciously braided Birkenstocks are back.KITH's lead
 
 ## [Maika Monroe's ‘Longlegs’ Press Tour Is Scarily Stylish](https://www.highsnobiety.com/p/maika-monroe-style-outfits/)
 
-Lee Harper, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
+Lee Harker, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
 
 *Published on: Thu, 11 Jul 2024 15:31:37 GMT*
 
@@ -1889,31 +1556,22 @@ New Balance is one of the few skate shoe companies to challenge Vans' reign as d
 *Published on: Fri, 12 Jul 2024 09:42:39 GMT*
 
 
-## 50 Cent
+## LeBron James
 
-## [An "Altra"-Marathon: Is This Niche Trail Brand up Next?](https://www.highsnobiety.com/p/altra-sneakers-trend-2024/)
+## [How Is A$AP Rocky Best-Dressed Even During a Heatwave?](https://www.highsnobiety.com/p/asap-rocky-july-2024-nyc-outfit/)
 
-Salomon and HOKA might have to clear the trail because big Altra steppers are creeping up on the path to fashion's next beloved trail runner.First, let me clar…
+A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do celebs keep hitting big 'fits in the middle of a heatwave?Admittedly, safe bet t…
 
-*Published on: Thu, 11 Jul 2024 09:30:27 GMT*
-
-
-## 50 Cent
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
-
-*Published on: Thu, 11 Jul 2024 10:05:57 GMT*
+*Published on: Fri, 12 Jul 2024 12:02:58 GMT*
 
 
-## 50 Cent
+## LeBron James
 
-## [ASICS’ Techy Sneaker Collab Is Beautifully Chaotic](https://www.highsnobiety.com/p/asics-p-andrade-gel-kayano-14/)
+## [It's BRAT Summer, Sure. But Softies Get (and Want to Look) Hot, Too.](https://www.highsnobiety.com/p/summer-songs-outfits/)
 
-ASICS’ Gel Kayano 14 model is an old-school running shoe and, when decked out in silver paneling with sporty mesh, it’s a fine example of how chunky, Y2K runni…
+It is frankly impossible to have missed the many, many, many ads, memes, and official events Charli xcx's new full-length, BRAT , has birthed. Be it vast, gene…
 
-*Published on: Thu, 11 Jul 2024 11:28:34 GMT*
+*Published on: Fri, 12 Jul 2024 14:16:25 GMT*
 
 
 ## 50 Cent
@@ -1929,7 +1587,7 @@ And just like that, KITH's deliciously braided Birkenstocks are back.KITH's lead
 
 ## [Maika Monroe's ‘Longlegs’ Press Tour Is Scarily Stylish](https://www.highsnobiety.com/p/maika-monroe-style-outfits/)
 
-Lee Harper, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
+Lee Harker, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
 
 *Published on: Thu, 11 Jul 2024 15:31:37 GMT*
 
@@ -1943,31 +1601,22 @@ New Balance is one of the few skate shoe companies to challenge Vans' reign as d
 *Published on: Fri, 12 Jul 2024 09:42:39 GMT*
 
 
-## Kesha
+## 50 Cent
 
-## [An "Altra"-Marathon: Is This Niche Trail Brand up Next?](https://www.highsnobiety.com/p/altra-sneakers-trend-2024/)
+## [How Is A$AP Rocky Best-Dressed Even During a Heatwave?](https://www.highsnobiety.com/p/asap-rocky-july-2024-nyc-outfit/)
 
-Salomon and HOKA might have to clear the trail because big Altra steppers are creeping up on the path to fashion's next beloved trail runner.First, let me clar…
+A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do celebs keep hitting big 'fits in the middle of a heatwave?Admittedly, safe bet t…
 
-*Published on: Thu, 11 Jul 2024 09:30:27 GMT*
-
-
-## Kesha
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
-
-*Published on: Thu, 11 Jul 2024 10:05:57 GMT*
+*Published on: Fri, 12 Jul 2024 12:02:58 GMT*
 
 
-## Kesha
+## 50 Cent
 
-## [ASICS’ Techy Sneaker Collab Is Beautifully Chaotic](https://www.highsnobiety.com/p/asics-p-andrade-gel-kayano-14/)
+## [It's BRAT Summer, Sure. But Softies Get (and Want to Look) Hot, Too.](https://www.highsnobiety.com/p/summer-songs-outfits/)
 
-ASICS’ Gel Kayano 14 model is an old-school running shoe and, when decked out in silver paneling with sporty mesh, it’s a fine example of how chunky, Y2K runni…
+It is frankly impossible to have missed the many, many, many ads, memes, and official events Charli xcx's new full-length, BRAT , has birthed. Be it vast, gene…
 
-*Published on: Thu, 11 Jul 2024 11:28:34 GMT*
+*Published on: Fri, 12 Jul 2024 14:16:25 GMT*
 
 
 ## Kesha
@@ -1983,7 +1632,7 @@ And just like that, KITH's deliciously braided Birkenstocks are back.KITH's lead
 
 ## [Maika Monroe's ‘Longlegs’ Press Tour Is Scarily Stylish](https://www.highsnobiety.com/p/maika-monroe-style-outfits/)
 
-Lee Harper, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
+Lee Harker, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
 
 *Published on: Thu, 11 Jul 2024 15:31:37 GMT*
 
@@ -1997,31 +1646,22 @@ New Balance is one of the few skate shoe companies to challenge Vans' reign as d
 *Published on: Fri, 12 Jul 2024 09:42:39 GMT*
 
 
-## 21 Savage
+## Kesha
 
-## [An "Altra"-Marathon: Is This Niche Trail Brand up Next?](https://www.highsnobiety.com/p/altra-sneakers-trend-2024/)
+## [How Is A$AP Rocky Best-Dressed Even During a Heatwave?](https://www.highsnobiety.com/p/asap-rocky-july-2024-nyc-outfit/)
 
-Salomon and HOKA might have to clear the trail because big Altra steppers are creeping up on the path to fashion's next beloved trail runner.First, let me clar…
+A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do celebs keep hitting big 'fits in the middle of a heatwave?Admittedly, safe bet t…
 
-*Published on: Thu, 11 Jul 2024 09:30:27 GMT*
-
-
-## 21 Savage
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
-
-*Published on: Thu, 11 Jul 2024 10:05:57 GMT*
+*Published on: Fri, 12 Jul 2024 12:02:58 GMT*
 
 
-## 21 Savage
+## Kesha
 
-## [ASICS’ Techy Sneaker Collab Is Beautifully Chaotic](https://www.highsnobiety.com/p/asics-p-andrade-gel-kayano-14/)
+## [It's BRAT Summer, Sure. But Softies Get (and Want to Look) Hot, Too.](https://www.highsnobiety.com/p/summer-songs-outfits/)
 
-ASICS’ Gel Kayano 14 model is an old-school running shoe and, when decked out in silver paneling with sporty mesh, it’s a fine example of how chunky, Y2K runni…
+It is frankly impossible to have missed the many, many, many ads, memes, and official events Charli xcx's new full-length, BRAT , has birthed. Be it vast, gene…
 
-*Published on: Thu, 11 Jul 2024 11:28:34 GMT*
+*Published on: Fri, 12 Jul 2024 14:16:25 GMT*
 
 
 ## 21 Savage
@@ -2037,7 +1677,7 @@ And just like that, KITH's deliciously braided Birkenstocks are back.KITH's lead
 
 ## [Maika Monroe's ‘Longlegs’ Press Tour Is Scarily Stylish](https://www.highsnobiety.com/p/maika-monroe-style-outfits/)
 
-Lee Harper, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
+Lee Harker, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
 
 *Published on: Thu, 11 Jul 2024 15:31:37 GMT*
 
@@ -2051,31 +1691,22 @@ New Balance is one of the few skate shoe companies to challenge Vans' reign as d
 *Published on: Fri, 12 Jul 2024 09:42:39 GMT*
 
 
-## Larry David
+## 21 Savage
 
-## [An "Altra"-Marathon: Is This Niche Trail Brand up Next?](https://www.highsnobiety.com/p/altra-sneakers-trend-2024/)
+## [How Is A$AP Rocky Best-Dressed Even During a Heatwave?](https://www.highsnobiety.com/p/asap-rocky-july-2024-nyc-outfit/)
 
-Salomon and HOKA might have to clear the trail because big Altra steppers are creeping up on the path to fashion's next beloved trail runner.First, let me clar…
+A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do celebs keep hitting big 'fits in the middle of a heatwave?Admittedly, safe bet t…
 
-*Published on: Thu, 11 Jul 2024 09:30:27 GMT*
-
-
-## Larry David
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
-
-*Published on: Thu, 11 Jul 2024 10:05:57 GMT*
+*Published on: Fri, 12 Jul 2024 12:02:58 GMT*
 
 
-## Larry David
+## 21 Savage
 
-## [ASICS’ Techy Sneaker Collab Is Beautifully Chaotic](https://www.highsnobiety.com/p/asics-p-andrade-gel-kayano-14/)
+## [It's BRAT Summer, Sure. But Softies Get (and Want to Look) Hot, Too.](https://www.highsnobiety.com/p/summer-songs-outfits/)
 
-ASICS’ Gel Kayano 14 model is an old-school running shoe and, when decked out in silver paneling with sporty mesh, it’s a fine example of how chunky, Y2K runni…
+It is frankly impossible to have missed the many, many, many ads, memes, and official events Charli xcx's new full-length, BRAT , has birthed. Be it vast, gene…
 
-*Published on: Thu, 11 Jul 2024 11:28:34 GMT*
+*Published on: Fri, 12 Jul 2024 14:16:25 GMT*
 
 
 ## Larry David
@@ -2091,7 +1722,7 @@ And just like that, KITH's deliciously braided Birkenstocks are back.KITH's lead
 
 ## [Maika Monroe's ‘Longlegs’ Press Tour Is Scarily Stylish](https://www.highsnobiety.com/p/maika-monroe-style-outfits/)
 
-Lee Harper, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
+Lee Harker, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
 
 *Published on: Thu, 11 Jul 2024 15:31:37 GMT*
 
@@ -2105,31 +1736,22 @@ New Balance is one of the few skate shoe companies to challenge Vans' reign as d
 *Published on: Fri, 12 Jul 2024 09:42:39 GMT*
 
 
-## Seth Rogan
+## Larry David
 
-## [An "Altra"-Marathon: Is This Niche Trail Brand up Next?](https://www.highsnobiety.com/p/altra-sneakers-trend-2024/)
+## [How Is A$AP Rocky Best-Dressed Even During a Heatwave?](https://www.highsnobiety.com/p/asap-rocky-july-2024-nyc-outfit/)
 
-Salomon and HOKA might have to clear the trail because big Altra steppers are creeping up on the path to fashion's next beloved trail runner.First, let me clar…
+A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do celebs keep hitting big 'fits in the middle of a heatwave?Admittedly, safe bet t…
 
-*Published on: Thu, 11 Jul 2024 09:30:27 GMT*
-
-
-## Seth Rogan
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
-
-*Published on: Thu, 11 Jul 2024 10:05:57 GMT*
+*Published on: Fri, 12 Jul 2024 12:02:58 GMT*
 
 
-## Seth Rogan
+## Larry David
 
-## [ASICS’ Techy Sneaker Collab Is Beautifully Chaotic](https://www.highsnobiety.com/p/asics-p-andrade-gel-kayano-14/)
+## [It's BRAT Summer, Sure. But Softies Get (and Want to Look) Hot, Too.](https://www.highsnobiety.com/p/summer-songs-outfits/)
 
-ASICS’ Gel Kayano 14 model is an old-school running shoe and, when decked out in silver paneling with sporty mesh, it’s a fine example of how chunky, Y2K runni…
+It is frankly impossible to have missed the many, many, many ads, memes, and official events Charli xcx's new full-length, BRAT , has birthed. Be it vast, gene…
 
-*Published on: Thu, 11 Jul 2024 11:28:34 GMT*
+*Published on: Fri, 12 Jul 2024 14:16:25 GMT*
 
 
 ## Seth Rogan
@@ -2145,7 +1767,7 @@ And just like that, KITH's deliciously braided Birkenstocks are back.KITH's lead
 
 ## [Maika Monroe's ‘Longlegs’ Press Tour Is Scarily Stylish](https://www.highsnobiety.com/p/maika-monroe-style-outfits/)
 
-Lee Harper, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
+Lee Harker, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
 
 *Published on: Thu, 11 Jul 2024 15:31:37 GMT*
 
@@ -2159,31 +1781,22 @@ New Balance is one of the few skate shoe companies to challenge Vans' reign as d
 *Published on: Fri, 12 Jul 2024 09:42:39 GMT*
 
 
-## Simone Biles
+## Seth Rogan
 
-## [An "Altra"-Marathon: Is This Niche Trail Brand up Next?](https://www.highsnobiety.com/p/altra-sneakers-trend-2024/)
+## [How Is A$AP Rocky Best-Dressed Even During a Heatwave?](https://www.highsnobiety.com/p/asap-rocky-july-2024-nyc-outfit/)
 
-Salomon and HOKA might have to clear the trail because big Altra steppers are creeping up on the path to fashion's next beloved trail runner.First, let me clar…
+A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do celebs keep hitting big 'fits in the middle of a heatwave?Admittedly, safe bet t…
 
-*Published on: Thu, 11 Jul 2024 09:30:27 GMT*
-
-
-## Simone Biles
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
-
-*Published on: Thu, 11 Jul 2024 10:05:57 GMT*
+*Published on: Fri, 12 Jul 2024 12:02:58 GMT*
 
 
-## Simone Biles
+## Seth Rogan
 
-## [ASICS’ Techy Sneaker Collab Is Beautifully Chaotic](https://www.highsnobiety.com/p/asics-p-andrade-gel-kayano-14/)
+## [It's BRAT Summer, Sure. But Softies Get (and Want to Look) Hot, Too.](https://www.highsnobiety.com/p/summer-songs-outfits/)
 
-ASICS’ Gel Kayano 14 model is an old-school running shoe and, when decked out in silver paneling with sporty mesh, it’s a fine example of how chunky, Y2K runni…
+It is frankly impossible to have missed the many, many, many ads, memes, and official events Charli xcx's new full-length, BRAT , has birthed. Be it vast, gene…
 
-*Published on: Thu, 11 Jul 2024 11:28:34 GMT*
+*Published on: Fri, 12 Jul 2024 14:16:25 GMT*
 
 
 ## Simone Biles
@@ -2199,7 +1812,7 @@ And just like that, KITH's deliciously braided Birkenstocks are back.KITH's lead
 
 ## [Maika Monroe's ‘Longlegs’ Press Tour Is Scarily Stylish](https://www.highsnobiety.com/p/maika-monroe-style-outfits/)
 
-Lee Harper, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
+Lee Harker, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
 
 *Published on: Thu, 11 Jul 2024 15:31:37 GMT*
 
@@ -2213,31 +1826,22 @@ New Balance is one of the few skate shoe companies to challenge Vans' reign as d
 *Published on: Fri, 12 Jul 2024 09:42:39 GMT*
 
 
-## Pete Davidson
+## Simone Biles
 
-## [An "Altra"-Marathon: Is This Niche Trail Brand up Next?](https://www.highsnobiety.com/p/altra-sneakers-trend-2024/)
+## [How Is A$AP Rocky Best-Dressed Even During a Heatwave?](https://www.highsnobiety.com/p/asap-rocky-july-2024-nyc-outfit/)
 
-Salomon and HOKA might have to clear the trail because big Altra steppers are creeping up on the path to fashion's next beloved trail runner.First, let me clar…
+A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do celebs keep hitting big 'fits in the middle of a heatwave?Admittedly, safe bet t…
 
-*Published on: Thu, 11 Jul 2024 09:30:27 GMT*
-
-
-## Pete Davidson
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
-
-*Published on: Thu, 11 Jul 2024 10:05:57 GMT*
+*Published on: Fri, 12 Jul 2024 12:02:58 GMT*
 
 
-## Pete Davidson
+## Simone Biles
 
-## [ASICS’ Techy Sneaker Collab Is Beautifully Chaotic](https://www.highsnobiety.com/p/asics-p-andrade-gel-kayano-14/)
+## [It's BRAT Summer, Sure. But Softies Get (and Want to Look) Hot, Too.](https://www.highsnobiety.com/p/summer-songs-outfits/)
 
-ASICS’ Gel Kayano 14 model is an old-school running shoe and, when decked out in silver paneling with sporty mesh, it’s a fine example of how chunky, Y2K runni…
+It is frankly impossible to have missed the many, many, many ads, memes, and official events Charli xcx's new full-length, BRAT , has birthed. Be it vast, gene…
 
-*Published on: Thu, 11 Jul 2024 11:28:34 GMT*
+*Published on: Fri, 12 Jul 2024 14:16:25 GMT*
 
 
 ## Pete Davidson
@@ -2253,7 +1857,7 @@ And just like that, KITH's deliciously braided Birkenstocks are back.KITH's lead
 
 ## [Maika Monroe's ‘Longlegs’ Press Tour Is Scarily Stylish](https://www.highsnobiety.com/p/maika-monroe-style-outfits/)
 
-Lee Harper, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
+Lee Harker, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
 
 *Published on: Thu, 11 Jul 2024 15:31:37 GMT*
 
@@ -2267,31 +1871,22 @@ New Balance is one of the few skate shoe companies to challenge Vans' reign as d
 *Published on: Fri, 12 Jul 2024 09:42:39 GMT*
 
 
-## Prince Harry
+## Pete Davidson
 
-## [An "Altra"-Marathon: Is This Niche Trail Brand up Next?](https://www.highsnobiety.com/p/altra-sneakers-trend-2024/)
+## [How Is A$AP Rocky Best-Dressed Even During a Heatwave?](https://www.highsnobiety.com/p/asap-rocky-july-2024-nyc-outfit/)
 
-Salomon and HOKA might have to clear the trail because big Altra steppers are creeping up on the path to fashion's next beloved trail runner.First, let me clar…
+A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do celebs keep hitting big 'fits in the middle of a heatwave?Admittedly, safe bet t…
 
-*Published on: Thu, 11 Jul 2024 09:30:27 GMT*
-
-
-## Prince Harry
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
-
-*Published on: Thu, 11 Jul 2024 10:05:57 GMT*
+*Published on: Fri, 12 Jul 2024 12:02:58 GMT*
 
 
-## Prince Harry
+## Pete Davidson
 
-## [ASICS’ Techy Sneaker Collab Is Beautifully Chaotic](https://www.highsnobiety.com/p/asics-p-andrade-gel-kayano-14/)
+## [It's BRAT Summer, Sure. But Softies Get (and Want to Look) Hot, Too.](https://www.highsnobiety.com/p/summer-songs-outfits/)
 
-ASICS’ Gel Kayano 14 model is an old-school running shoe and, when decked out in silver paneling with sporty mesh, it’s a fine example of how chunky, Y2K runni…
+It is frankly impossible to have missed the many, many, many ads, memes, and official events Charli xcx's new full-length, BRAT , has birthed. Be it vast, gene…
 
-*Published on: Thu, 11 Jul 2024 11:28:34 GMT*
+*Published on: Fri, 12 Jul 2024 14:16:25 GMT*
 
 
 ## Prince Harry
@@ -2307,7 +1902,7 @@ And just like that, KITH's deliciously braided Birkenstocks are back.KITH's lead
 
 ## [Maika Monroe's ‘Longlegs’ Press Tour Is Scarily Stylish](https://www.highsnobiety.com/p/maika-monroe-style-outfits/)
 
-Lee Harper, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
+Lee Harker, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
 
 *Published on: Thu, 11 Jul 2024 15:31:37 GMT*
 
@@ -2321,31 +1916,22 @@ New Balance is one of the few skate shoe companies to challenge Vans' reign as d
 *Published on: Fri, 12 Jul 2024 09:42:39 GMT*
 
 
-## Princess of Wales
+## Prince Harry
 
-## [An "Altra"-Marathon: Is This Niche Trail Brand up Next?](https://www.highsnobiety.com/p/altra-sneakers-trend-2024/)
+## [How Is A$AP Rocky Best-Dressed Even During a Heatwave?](https://www.highsnobiety.com/p/asap-rocky-july-2024-nyc-outfit/)
 
-Salomon and HOKA might have to clear the trail because big Altra steppers are creeping up on the path to fashion's next beloved trail runner.First, let me clar…
+A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do celebs keep hitting big 'fits in the middle of a heatwave?Admittedly, safe bet t…
 
-*Published on: Thu, 11 Jul 2024 09:30:27 GMT*
-
-
-## Princess of Wales
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
-
-*Published on: Thu, 11 Jul 2024 10:05:57 GMT*
+*Published on: Fri, 12 Jul 2024 12:02:58 GMT*
 
 
-## Princess of Wales
+## Prince Harry
 
-## [ASICS’ Techy Sneaker Collab Is Beautifully Chaotic](https://www.highsnobiety.com/p/asics-p-andrade-gel-kayano-14/)
+## [It's BRAT Summer, Sure. But Softies Get (and Want to Look) Hot, Too.](https://www.highsnobiety.com/p/summer-songs-outfits/)
 
-ASICS’ Gel Kayano 14 model is an old-school running shoe and, when decked out in silver paneling with sporty mesh, it’s a fine example of how chunky, Y2K runni…
+It is frankly impossible to have missed the many, many, many ads, memes, and official events Charli xcx's new full-length, BRAT , has birthed. Be it vast, gene…
 
-*Published on: Thu, 11 Jul 2024 11:28:34 GMT*
+*Published on: Fri, 12 Jul 2024 14:16:25 GMT*
 
 
 ## Princess of Wales
@@ -2361,7 +1947,7 @@ And just like that, KITH's deliciously braided Birkenstocks are back.KITH's lead
 
 ## [Maika Monroe's ‘Longlegs’ Press Tour Is Scarily Stylish](https://www.highsnobiety.com/p/maika-monroe-style-outfits/)
 
-Lee Harper, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
+Lee Harker, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
 
 *Published on: Thu, 11 Jul 2024 15:31:37 GMT*
 
@@ -2375,31 +1961,22 @@ New Balance is one of the few skate shoe companies to challenge Vans' reign as d
 *Published on: Fri, 12 Jul 2024 09:42:39 GMT*
 
 
-## Rachel McAdams
+## Princess of Wales
 
-## [An "Altra"-Marathon: Is This Niche Trail Brand up Next?](https://www.highsnobiety.com/p/altra-sneakers-trend-2024/)
+## [How Is A$AP Rocky Best-Dressed Even During a Heatwave?](https://www.highsnobiety.com/p/asap-rocky-july-2024-nyc-outfit/)
 
-Salomon and HOKA might have to clear the trail because big Altra steppers are creeping up on the path to fashion's next beloved trail runner.First, let me clar…
+A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do celebs keep hitting big 'fits in the middle of a heatwave?Admittedly, safe bet t…
 
-*Published on: Thu, 11 Jul 2024 09:30:27 GMT*
-
-
-## Rachel McAdams
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
-
-*Published on: Thu, 11 Jul 2024 10:05:57 GMT*
+*Published on: Fri, 12 Jul 2024 12:02:58 GMT*
 
 
-## Rachel McAdams
+## Princess of Wales
 
-## [ASICS’ Techy Sneaker Collab Is Beautifully Chaotic](https://www.highsnobiety.com/p/asics-p-andrade-gel-kayano-14/)
+## [It's BRAT Summer, Sure. But Softies Get (and Want to Look) Hot, Too.](https://www.highsnobiety.com/p/summer-songs-outfits/)
 
-ASICS’ Gel Kayano 14 model is an old-school running shoe and, when decked out in silver paneling with sporty mesh, it’s a fine example of how chunky, Y2K runni…
+It is frankly impossible to have missed the many, many, many ads, memes, and official events Charli xcx's new full-length, BRAT , has birthed. Be it vast, gene…
 
-*Published on: Thu, 11 Jul 2024 11:28:34 GMT*
+*Published on: Fri, 12 Jul 2024 14:16:25 GMT*
 
 
 ## Rachel McAdams
@@ -2415,7 +1992,7 @@ And just like that, KITH's deliciously braided Birkenstocks are back.KITH's lead
 
 ## [Maika Monroe's ‘Longlegs’ Press Tour Is Scarily Stylish](https://www.highsnobiety.com/p/maika-monroe-style-outfits/)
 
-Lee Harper, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
+Lee Harker, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
 
 *Published on: Thu, 11 Jul 2024 15:31:37 GMT*
 
@@ -2429,31 +2006,22 @@ New Balance is one of the few skate shoe companies to challenge Vans' reign as d
 *Published on: Fri, 12 Jul 2024 09:42:39 GMT*
 
 
-## Reneé Rapp
+## Rachel McAdams
 
-## [An "Altra"-Marathon: Is This Niche Trail Brand up Next?](https://www.highsnobiety.com/p/altra-sneakers-trend-2024/)
+## [How Is A$AP Rocky Best-Dressed Even During a Heatwave?](https://www.highsnobiety.com/p/asap-rocky-july-2024-nyc-outfit/)
 
-Salomon and HOKA might have to clear the trail because big Altra steppers are creeping up on the path to fashion's next beloved trail runner.First, let me clar…
+A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do celebs keep hitting big 'fits in the middle of a heatwave?Admittedly, safe bet t…
 
-*Published on: Thu, 11 Jul 2024 09:30:27 GMT*
-
-
-## Reneé Rapp
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
-
-*Published on: Thu, 11 Jul 2024 10:05:57 GMT*
+*Published on: Fri, 12 Jul 2024 12:02:58 GMT*
 
 
-## Reneé Rapp
+## Rachel McAdams
 
-## [ASICS’ Techy Sneaker Collab Is Beautifully Chaotic](https://www.highsnobiety.com/p/asics-p-andrade-gel-kayano-14/)
+## [It's BRAT Summer, Sure. But Softies Get (and Want to Look) Hot, Too.](https://www.highsnobiety.com/p/summer-songs-outfits/)
 
-ASICS’ Gel Kayano 14 model is an old-school running shoe and, when decked out in silver paneling with sporty mesh, it’s a fine example of how chunky, Y2K runni…
+It is frankly impossible to have missed the many, many, many ads, memes, and official events Charli xcx's new full-length, BRAT , has birthed. Be it vast, gene…
 
-*Published on: Thu, 11 Jul 2024 11:28:34 GMT*
+*Published on: Fri, 12 Jul 2024 14:16:25 GMT*
 
 
 ## Reneé Rapp
@@ -2469,7 +2037,7 @@ And just like that, KITH's deliciously braided Birkenstocks are back.KITH's lead
 
 ## [Maika Monroe's ‘Longlegs’ Press Tour Is Scarily Stylish](https://www.highsnobiety.com/p/maika-monroe-style-outfits/)
 
-Lee Harper, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
+Lee Harker, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
 
 *Published on: Thu, 11 Jul 2024 15:31:37 GMT*
 
@@ -2483,31 +2051,22 @@ New Balance is one of the few skate shoe companies to challenge Vans' reign as d
 *Published on: Fri, 12 Jul 2024 09:42:39 GMT*
 
 
-## Rick Ross
+## Reneé Rapp
 
-## [An "Altra"-Marathon: Is This Niche Trail Brand up Next?](https://www.highsnobiety.com/p/altra-sneakers-trend-2024/)
+## [How Is A$AP Rocky Best-Dressed Even During a Heatwave?](https://www.highsnobiety.com/p/asap-rocky-july-2024-nyc-outfit/)
 
-Salomon and HOKA might have to clear the trail because big Altra steppers are creeping up on the path to fashion's next beloved trail runner.First, let me clar…
+A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do celebs keep hitting big 'fits in the middle of a heatwave?Admittedly, safe bet t…
 
-*Published on: Thu, 11 Jul 2024 09:30:27 GMT*
-
-
-## Rick Ross
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
-
-*Published on: Thu, 11 Jul 2024 10:05:57 GMT*
+*Published on: Fri, 12 Jul 2024 12:02:58 GMT*
 
 
-## Rick Ross
+## Reneé Rapp
 
-## [ASICS’ Techy Sneaker Collab Is Beautifully Chaotic](https://www.highsnobiety.com/p/asics-p-andrade-gel-kayano-14/)
+## [It's BRAT Summer, Sure. But Softies Get (and Want to Look) Hot, Too.](https://www.highsnobiety.com/p/summer-songs-outfits/)
 
-ASICS’ Gel Kayano 14 model is an old-school running shoe and, when decked out in silver paneling with sporty mesh, it’s a fine example of how chunky, Y2K runni…
+It is frankly impossible to have missed the many, many, many ads, memes, and official events Charli xcx's new full-length, BRAT , has birthed. Be it vast, gene…
 
-*Published on: Thu, 11 Jul 2024 11:28:34 GMT*
+*Published on: Fri, 12 Jul 2024 14:16:25 GMT*
 
 
 ## Rick Ross
@@ -2523,7 +2082,7 @@ And just like that, KITH's deliciously braided Birkenstocks are back.KITH's lead
 
 ## [Maika Monroe's ‘Longlegs’ Press Tour Is Scarily Stylish](https://www.highsnobiety.com/p/maika-monroe-style-outfits/)
 
-Lee Harper, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
+Lee Harker, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
 
 *Published on: Thu, 11 Jul 2024 15:31:37 GMT*
 
@@ -2537,31 +2096,22 @@ New Balance is one of the few skate shoe companies to challenge Vans' reign as d
 *Published on: Fri, 12 Jul 2024 09:42:39 GMT*
 
 
-## Sam Ashgari
+## Rick Ross
 
-## [An "Altra"-Marathon: Is This Niche Trail Brand up Next?](https://www.highsnobiety.com/p/altra-sneakers-trend-2024/)
+## [How Is A$AP Rocky Best-Dressed Even During a Heatwave?](https://www.highsnobiety.com/p/asap-rocky-july-2024-nyc-outfit/)
 
-Salomon and HOKA might have to clear the trail because big Altra steppers are creeping up on the path to fashion's next beloved trail runner.First, let me clar…
+A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do celebs keep hitting big 'fits in the middle of a heatwave?Admittedly, safe bet t…
 
-*Published on: Thu, 11 Jul 2024 09:30:27 GMT*
-
-
-## Sam Ashgari
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
-
-*Published on: Thu, 11 Jul 2024 10:05:57 GMT*
+*Published on: Fri, 12 Jul 2024 12:02:58 GMT*
 
 
-## Sam Ashgari
+## Rick Ross
 
-## [ASICS’ Techy Sneaker Collab Is Beautifully Chaotic](https://www.highsnobiety.com/p/asics-p-andrade-gel-kayano-14/)
+## [It's BRAT Summer, Sure. But Softies Get (and Want to Look) Hot, Too.](https://www.highsnobiety.com/p/summer-songs-outfits/)
 
-ASICS’ Gel Kayano 14 model is an old-school running shoe and, when decked out in silver paneling with sporty mesh, it’s a fine example of how chunky, Y2K runni…
+It is frankly impossible to have missed the many, many, many ads, memes, and official events Charli xcx's new full-length, BRAT , has birthed. Be it vast, gene…
 
-*Published on: Thu, 11 Jul 2024 11:28:34 GMT*
+*Published on: Fri, 12 Jul 2024 14:16:25 GMT*
 
 
 ## Sam Ashgari
@@ -2577,7 +2127,7 @@ And just like that, KITH's deliciously braided Birkenstocks are back.KITH's lead
 
 ## [Maika Monroe's ‘Longlegs’ Press Tour Is Scarily Stylish](https://www.highsnobiety.com/p/maika-monroe-style-outfits/)
 
-Lee Harper, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
+Lee Harker, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
 
 *Published on: Thu, 11 Jul 2024 15:31:37 GMT*
 
@@ -2591,31 +2141,22 @@ New Balance is one of the few skate shoe companies to challenge Vans' reign as d
 *Published on: Fri, 12 Jul 2024 09:42:39 GMT*
 
 
-## Sandra Oh
+## Sam Ashgari
 
-## [An "Altra"-Marathon: Is This Niche Trail Brand up Next?](https://www.highsnobiety.com/p/altra-sneakers-trend-2024/)
+## [How Is A$AP Rocky Best-Dressed Even During a Heatwave?](https://www.highsnobiety.com/p/asap-rocky-july-2024-nyc-outfit/)
 
-Salomon and HOKA might have to clear the trail because big Altra steppers are creeping up on the path to fashion's next beloved trail runner.First, let me clar…
+A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do celebs keep hitting big 'fits in the middle of a heatwave?Admittedly, safe bet t…
 
-*Published on: Thu, 11 Jul 2024 09:30:27 GMT*
-
-
-## Sandra Oh
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
-
-*Published on: Thu, 11 Jul 2024 10:05:57 GMT*
+*Published on: Fri, 12 Jul 2024 12:02:58 GMT*
 
 
-## Sandra Oh
+## Sam Ashgari
 
-## [ASICS’ Techy Sneaker Collab Is Beautifully Chaotic](https://www.highsnobiety.com/p/asics-p-andrade-gel-kayano-14/)
+## [It's BRAT Summer, Sure. But Softies Get (and Want to Look) Hot, Too.](https://www.highsnobiety.com/p/summer-songs-outfits/)
 
-ASICS’ Gel Kayano 14 model is an old-school running shoe and, when decked out in silver paneling with sporty mesh, it’s a fine example of how chunky, Y2K runni…
+It is frankly impossible to have missed the many, many, many ads, memes, and official events Charli xcx's new full-length, BRAT , has birthed. Be it vast, gene…
 
-*Published on: Thu, 11 Jul 2024 11:28:34 GMT*
+*Published on: Fri, 12 Jul 2024 14:16:25 GMT*
 
 
 ## Sandra Oh
@@ -2631,7 +2172,7 @@ And just like that, KITH's deliciously braided Birkenstocks are back.KITH's lead
 
 ## [Maika Monroe's ‘Longlegs’ Press Tour Is Scarily Stylish](https://www.highsnobiety.com/p/maika-monroe-style-outfits/)
 
-Lee Harper, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
+Lee Harker, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
 
 *Published on: Thu, 11 Jul 2024 15:31:37 GMT*
 
@@ -2645,31 +2186,22 @@ New Balance is one of the few skate shoe companies to challenge Vans' reign as d
 *Published on: Fri, 12 Jul 2024 09:42:39 GMT*
 
 
-## Donald Trump
+## Sandra Oh
 
-## [An "Altra"-Marathon: Is This Niche Trail Brand up Next?](https://www.highsnobiety.com/p/altra-sneakers-trend-2024/)
+## [How Is A$AP Rocky Best-Dressed Even During a Heatwave?](https://www.highsnobiety.com/p/asap-rocky-july-2024-nyc-outfit/)
 
-Salomon and HOKA might have to clear the trail because big Altra steppers are creeping up on the path to fashion's next beloved trail runner.First, let me clar…
+A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do celebs keep hitting big 'fits in the middle of a heatwave?Admittedly, safe bet t…
 
-*Published on: Thu, 11 Jul 2024 09:30:27 GMT*
-
-
-## Donald Trump
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
-
-*Published on: Thu, 11 Jul 2024 10:05:57 GMT*
+*Published on: Fri, 12 Jul 2024 12:02:58 GMT*
 
 
-## Donald Trump
+## Sandra Oh
 
-## [ASICS’ Techy Sneaker Collab Is Beautifully Chaotic](https://www.highsnobiety.com/p/asics-p-andrade-gel-kayano-14/)
+## [It's BRAT Summer, Sure. But Softies Get (and Want to Look) Hot, Too.](https://www.highsnobiety.com/p/summer-songs-outfits/)
 
-ASICS’ Gel Kayano 14 model is an old-school running shoe and, when decked out in silver paneling with sporty mesh, it’s a fine example of how chunky, Y2K runni…
+It is frankly impossible to have missed the many, many, many ads, memes, and official events Charli xcx's new full-length, BRAT , has birthed. Be it vast, gene…
 
-*Published on: Thu, 11 Jul 2024 11:28:34 GMT*
+*Published on: Fri, 12 Jul 2024 14:16:25 GMT*
 
 
 ## Donald Trump
@@ -2685,7 +2217,7 @@ And just like that, KITH's deliciously braided Birkenstocks are back.KITH's lead
 
 ## [Maika Monroe's ‘Longlegs’ Press Tour Is Scarily Stylish](https://www.highsnobiety.com/p/maika-monroe-style-outfits/)
 
-Lee Harper, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
+Lee Harker, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
 
 *Published on: Thu, 11 Jul 2024 15:31:37 GMT*
 
@@ -2699,31 +2231,22 @@ New Balance is one of the few skate shoe companies to challenge Vans' reign as d
 *Published on: Fri, 12 Jul 2024 09:42:39 GMT*
 
 
-## Diddy
+## Donald Trump
 
-## [An "Altra"-Marathon: Is This Niche Trail Brand up Next?](https://www.highsnobiety.com/p/altra-sneakers-trend-2024/)
+## [How Is A$AP Rocky Best-Dressed Even During a Heatwave?](https://www.highsnobiety.com/p/asap-rocky-july-2024-nyc-outfit/)
 
-Salomon and HOKA might have to clear the trail because big Altra steppers are creeping up on the path to fashion's next beloved trail runner.First, let me clar…
+A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do celebs keep hitting big 'fits in the middle of a heatwave?Admittedly, safe bet t…
 
-*Published on: Thu, 11 Jul 2024 09:30:27 GMT*
-
-
-## Diddy
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
-
-*Published on: Thu, 11 Jul 2024 10:05:57 GMT*
+*Published on: Fri, 12 Jul 2024 12:02:58 GMT*
 
 
-## Diddy
+## Donald Trump
 
-## [ASICS’ Techy Sneaker Collab Is Beautifully Chaotic](https://www.highsnobiety.com/p/asics-p-andrade-gel-kayano-14/)
+## [It's BRAT Summer, Sure. But Softies Get (and Want to Look) Hot, Too.](https://www.highsnobiety.com/p/summer-songs-outfits/)
 
-ASICS’ Gel Kayano 14 model is an old-school running shoe and, when decked out in silver paneling with sporty mesh, it’s a fine example of how chunky, Y2K runni…
+It is frankly impossible to have missed the many, many, many ads, memes, and official events Charli xcx's new full-length, BRAT , has birthed. Be it vast, gene…
 
-*Published on: Thu, 11 Jul 2024 11:28:34 GMT*
+*Published on: Fri, 12 Jul 2024 14:16:25 GMT*
 
 
 ## Diddy
@@ -2739,7 +2262,7 @@ And just like that, KITH's deliciously braided Birkenstocks are back.KITH's lead
 
 ## [Maika Monroe's ‘Longlegs’ Press Tour Is Scarily Stylish](https://www.highsnobiety.com/p/maika-monroe-style-outfits/)
 
-Lee Harper, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
+Lee Harker, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
 
 *Published on: Thu, 11 Jul 2024 15:31:37 GMT*
 
@@ -2753,31 +2276,22 @@ New Balance is one of the few skate shoe companies to challenge Vans' reign as d
 *Published on: Fri, 12 Jul 2024 09:42:39 GMT*
 
 
-## City Girls
+## Diddy
 
-## [An "Altra"-Marathon: Is This Niche Trail Brand up Next?](https://www.highsnobiety.com/p/altra-sneakers-trend-2024/)
+## [How Is A$AP Rocky Best-Dressed Even During a Heatwave?](https://www.highsnobiety.com/p/asap-rocky-july-2024-nyc-outfit/)
 
-Salomon and HOKA might have to clear the trail because big Altra steppers are creeping up on the path to fashion's next beloved trail runner.First, let me clar…
+A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do celebs keep hitting big 'fits in the middle of a heatwave?Admittedly, safe bet t…
 
-*Published on: Thu, 11 Jul 2024 09:30:27 GMT*
-
-
-## City Girls
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
-
-*Published on: Thu, 11 Jul 2024 10:05:57 GMT*
+*Published on: Fri, 12 Jul 2024 12:02:58 GMT*
 
 
-## City Girls
+## Diddy
 
-## [ASICS’ Techy Sneaker Collab Is Beautifully Chaotic](https://www.highsnobiety.com/p/asics-p-andrade-gel-kayano-14/)
+## [It's BRAT Summer, Sure. But Softies Get (and Want to Look) Hot, Too.](https://www.highsnobiety.com/p/summer-songs-outfits/)
 
-ASICS’ Gel Kayano 14 model is an old-school running shoe and, when decked out in silver paneling with sporty mesh, it’s a fine example of how chunky, Y2K runni…
+It is frankly impossible to have missed the many, many, many ads, memes, and official events Charli xcx's new full-length, BRAT , has birthed. Be it vast, gene…
 
-*Published on: Thu, 11 Jul 2024 11:28:34 GMT*
+*Published on: Fri, 12 Jul 2024 14:16:25 GMT*
 
 
 ## City Girls
@@ -2793,7 +2307,7 @@ And just like that, KITH's deliciously braided Birkenstocks are back.KITH's lead
 
 ## [Maika Monroe's ‘Longlegs’ Press Tour Is Scarily Stylish](https://www.highsnobiety.com/p/maika-monroe-style-outfits/)
 
-Lee Harper, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
+Lee Harker, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
 
 *Published on: Thu, 11 Jul 2024 15:31:37 GMT*
 
@@ -2807,31 +2321,22 @@ New Balance is one of the few skate shoe companies to challenge Vans' reign as d
 *Published on: Fri, 12 Jul 2024 09:42:39 GMT*
 
 
-## Chloe Bailey
+## City Girls
 
-## [An "Altra"-Marathon: Is This Niche Trail Brand up Next?](https://www.highsnobiety.com/p/altra-sneakers-trend-2024/)
+## [How Is A$AP Rocky Best-Dressed Even During a Heatwave?](https://www.highsnobiety.com/p/asap-rocky-july-2024-nyc-outfit/)
 
-Salomon and HOKA might have to clear the trail because big Altra steppers are creeping up on the path to fashion's next beloved trail runner.First, let me clar…
+A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do celebs keep hitting big 'fits in the middle of a heatwave?Admittedly, safe bet t…
 
-*Published on: Thu, 11 Jul 2024 09:30:27 GMT*
-
-
-## Chloe Bailey
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
-
-*Published on: Thu, 11 Jul 2024 10:05:57 GMT*
+*Published on: Fri, 12 Jul 2024 12:02:58 GMT*
 
 
-## Chloe Bailey
+## City Girls
 
-## [ASICS’ Techy Sneaker Collab Is Beautifully Chaotic](https://www.highsnobiety.com/p/asics-p-andrade-gel-kayano-14/)
+## [It's BRAT Summer, Sure. But Softies Get (and Want to Look) Hot, Too.](https://www.highsnobiety.com/p/summer-songs-outfits/)
 
-ASICS’ Gel Kayano 14 model is an old-school running shoe and, when decked out in silver paneling with sporty mesh, it’s a fine example of how chunky, Y2K runni…
+It is frankly impossible to have missed the many, many, many ads, memes, and official events Charli xcx's new full-length, BRAT , has birthed. Be it vast, gene…
 
-*Published on: Thu, 11 Jul 2024 11:28:34 GMT*
+*Published on: Fri, 12 Jul 2024 14:16:25 GMT*
 
 
 ## Chloe Bailey
@@ -2847,7 +2352,7 @@ And just like that, KITH's deliciously braided Birkenstocks are back.KITH's lead
 
 ## [Maika Monroe's ‘Longlegs’ Press Tour Is Scarily Stylish](https://www.highsnobiety.com/p/maika-monroe-style-outfits/)
 
-Lee Harper, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
+Lee Harker, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
 
 *Published on: Thu, 11 Jul 2024 15:31:37 GMT*
 
@@ -2861,31 +2366,22 @@ New Balance is one of the few skate shoe companies to challenge Vans' reign as d
 *Published on: Fri, 12 Jul 2024 09:42:39 GMT*
 
 
-## Charli D Amelio
+## Chloe Bailey
 
-## [An "Altra"-Marathon: Is This Niche Trail Brand up Next?](https://www.highsnobiety.com/p/altra-sneakers-trend-2024/)
+## [How Is A$AP Rocky Best-Dressed Even During a Heatwave?](https://www.highsnobiety.com/p/asap-rocky-july-2024-nyc-outfit/)
 
-Salomon and HOKA might have to clear the trail because big Altra steppers are creeping up on the path to fashion's next beloved trail runner.First, let me clar…
+A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do celebs keep hitting big 'fits in the middle of a heatwave?Admittedly, safe bet t…
 
-*Published on: Thu, 11 Jul 2024 09:30:27 GMT*
-
-
-## Charli D Amelio
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
-
-*Published on: Thu, 11 Jul 2024 10:05:57 GMT*
+*Published on: Fri, 12 Jul 2024 12:02:58 GMT*
 
 
-## Charli D Amelio
+## Chloe Bailey
 
-## [ASICS’ Techy Sneaker Collab Is Beautifully Chaotic](https://www.highsnobiety.com/p/asics-p-andrade-gel-kayano-14/)
+## [It's BRAT Summer, Sure. But Softies Get (and Want to Look) Hot, Too.](https://www.highsnobiety.com/p/summer-songs-outfits/)
 
-ASICS’ Gel Kayano 14 model is an old-school running shoe and, when decked out in silver paneling with sporty mesh, it’s a fine example of how chunky, Y2K runni…
+It is frankly impossible to have missed the many, many, many ads, memes, and official events Charli xcx's new full-length, BRAT , has birthed. Be it vast, gene…
 
-*Published on: Thu, 11 Jul 2024 11:28:34 GMT*
+*Published on: Fri, 12 Jul 2024 14:16:25 GMT*
 
 
 ## Charli D Amelio
@@ -2901,7 +2397,7 @@ And just like that, KITH's deliciously braided Birkenstocks are back.KITH's lead
 
 ## [Maika Monroe's ‘Longlegs’ Press Tour Is Scarily Stylish](https://www.highsnobiety.com/p/maika-monroe-style-outfits/)
 
-Lee Harper, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
+Lee Harker, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
 
 *Published on: Thu, 11 Jul 2024 15:31:37 GMT*
 
@@ -2915,31 +2411,22 @@ New Balance is one of the few skate shoe companies to challenge Vans' reign as d
 *Published on: Fri, 12 Jul 2024 09:42:39 GMT*
 
 
-## Cardi B
+## Charli D Amelio
 
-## [An "Altra"-Marathon: Is This Niche Trail Brand up Next?](https://www.highsnobiety.com/p/altra-sneakers-trend-2024/)
+## [How Is A$AP Rocky Best-Dressed Even During a Heatwave?](https://www.highsnobiety.com/p/asap-rocky-july-2024-nyc-outfit/)
 
-Salomon and HOKA might have to clear the trail because big Altra steppers are creeping up on the path to fashion's next beloved trail runner.First, let me clar…
+A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do celebs keep hitting big 'fits in the middle of a heatwave?Admittedly, safe bet t…
 
-*Published on: Thu, 11 Jul 2024 09:30:27 GMT*
-
-
-## Cardi B
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
-
-*Published on: Thu, 11 Jul 2024 10:05:57 GMT*
+*Published on: Fri, 12 Jul 2024 12:02:58 GMT*
 
 
-## Cardi B
+## Charli D Amelio
 
-## [ASICS’ Techy Sneaker Collab Is Beautifully Chaotic](https://www.highsnobiety.com/p/asics-p-andrade-gel-kayano-14/)
+## [It's BRAT Summer, Sure. But Softies Get (and Want to Look) Hot, Too.](https://www.highsnobiety.com/p/summer-songs-outfits/)
 
-ASICS’ Gel Kayano 14 model is an old-school running shoe and, when decked out in silver paneling with sporty mesh, it’s a fine example of how chunky, Y2K runni…
+It is frankly impossible to have missed the many, many, many ads, memes, and official events Charli xcx's new full-length, BRAT , has birthed. Be it vast, gene…
 
-*Published on: Thu, 11 Jul 2024 11:28:34 GMT*
+*Published on: Fri, 12 Jul 2024 14:16:25 GMT*
 
 
 ## Cardi B
@@ -2955,7 +2442,7 @@ And just like that, KITH's deliciously braided Birkenstocks are back.KITH's lead
 
 ## [Maika Monroe's ‘Longlegs’ Press Tour Is Scarily Stylish](https://www.highsnobiety.com/p/maika-monroe-style-outfits/)
 
-Lee Harper, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
+Lee Harker, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
 
 *Published on: Thu, 11 Jul 2024 15:31:37 GMT*
 
@@ -2969,31 +2456,22 @@ New Balance is one of the few skate shoe companies to challenge Vans' reign as d
 *Published on: Fri, 12 Jul 2024 09:42:39 GMT*
 
 
-## Bryan Cranston
+## Cardi B
 
-## [An "Altra"-Marathon: Is This Niche Trail Brand up Next?](https://www.highsnobiety.com/p/altra-sneakers-trend-2024/)
+## [How Is A$AP Rocky Best-Dressed Even During a Heatwave?](https://www.highsnobiety.com/p/asap-rocky-july-2024-nyc-outfit/)
 
-Salomon and HOKA might have to clear the trail because big Altra steppers are creeping up on the path to fashion's next beloved trail runner.First, let me clar…
+A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do celebs keep hitting big 'fits in the middle of a heatwave?Admittedly, safe bet t…
 
-*Published on: Thu, 11 Jul 2024 09:30:27 GMT*
-
-
-## Bryan Cranston
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
-
-*Published on: Thu, 11 Jul 2024 10:05:57 GMT*
+*Published on: Fri, 12 Jul 2024 12:02:58 GMT*
 
 
-## Bryan Cranston
+## Cardi B
 
-## [ASICS’ Techy Sneaker Collab Is Beautifully Chaotic](https://www.highsnobiety.com/p/asics-p-andrade-gel-kayano-14/)
+## [It's BRAT Summer, Sure. But Softies Get (and Want to Look) Hot, Too.](https://www.highsnobiety.com/p/summer-songs-outfits/)
 
-ASICS’ Gel Kayano 14 model is an old-school running shoe and, when decked out in silver paneling with sporty mesh, it’s a fine example of how chunky, Y2K runni…
+It is frankly impossible to have missed the many, many, many ads, memes, and official events Charli xcx's new full-length, BRAT , has birthed. Be it vast, gene…
 
-*Published on: Thu, 11 Jul 2024 11:28:34 GMT*
+*Published on: Fri, 12 Jul 2024 14:16:25 GMT*
 
 
 ## Bryan Cranston
@@ -3009,7 +2487,7 @@ And just like that, KITH's deliciously braided Birkenstocks are back.KITH's lead
 
 ## [Maika Monroe's ‘Longlegs’ Press Tour Is Scarily Stylish](https://www.highsnobiety.com/p/maika-monroe-style-outfits/)
 
-Lee Harper, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
+Lee Harker, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
 
 *Published on: Thu, 11 Jul 2024 15:31:37 GMT*
 
@@ -3023,31 +2501,22 @@ New Balance is one of the few skate shoe companies to challenge Vans' reign as d
 *Published on: Fri, 12 Jul 2024 09:42:39 GMT*
 
 
-## Brielle Biermann
+## Bryan Cranston
 
-## [An "Altra"-Marathon: Is This Niche Trail Brand up Next?](https://www.highsnobiety.com/p/altra-sneakers-trend-2024/)
+## [How Is A$AP Rocky Best-Dressed Even During a Heatwave?](https://www.highsnobiety.com/p/asap-rocky-july-2024-nyc-outfit/)
 
-Salomon and HOKA might have to clear the trail because big Altra steppers are creeping up on the path to fashion's next beloved trail runner.First, let me clar…
+A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do celebs keep hitting big 'fits in the middle of a heatwave?Admittedly, safe bet t…
 
-*Published on: Thu, 11 Jul 2024 09:30:27 GMT*
-
-
-## Brielle Biermann
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
-
-*Published on: Thu, 11 Jul 2024 10:05:57 GMT*
+*Published on: Fri, 12 Jul 2024 12:02:58 GMT*
 
 
-## Brielle Biermann
+## Bryan Cranston
 
-## [ASICS’ Techy Sneaker Collab Is Beautifully Chaotic](https://www.highsnobiety.com/p/asics-p-andrade-gel-kayano-14/)
+## [It's BRAT Summer, Sure. But Softies Get (and Want to Look) Hot, Too.](https://www.highsnobiety.com/p/summer-songs-outfits/)
 
-ASICS’ Gel Kayano 14 model is an old-school running shoe and, when decked out in silver paneling with sporty mesh, it’s a fine example of how chunky, Y2K runni…
+It is frankly impossible to have missed the many, many, many ads, memes, and official events Charli xcx's new full-length, BRAT , has birthed. Be it vast, gene…
 
-*Published on: Thu, 11 Jul 2024 11:28:34 GMT*
+*Published on: Fri, 12 Jul 2024 14:16:25 GMT*
 
 
 ## Brielle Biermann
@@ -3063,7 +2532,7 @@ And just like that, KITH's deliciously braided Birkenstocks are back.KITH's lead
 
 ## [Maika Monroe's ‘Longlegs’ Press Tour Is Scarily Stylish](https://www.highsnobiety.com/p/maika-monroe-style-outfits/)
 
-Lee Harper, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
+Lee Harker, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
 
 *Published on: Thu, 11 Jul 2024 15:31:37 GMT*
 
@@ -3077,31 +2546,22 @@ New Balance is one of the few skate shoe companies to challenge Vans' reign as d
 *Published on: Fri, 12 Jul 2024 09:42:39 GMT*
 
 
-## Dua Lipa
+## Brielle Biermann
 
-## [An "Altra"-Marathon: Is This Niche Trail Brand up Next?](https://www.highsnobiety.com/p/altra-sneakers-trend-2024/)
+## [How Is A$AP Rocky Best-Dressed Even During a Heatwave?](https://www.highsnobiety.com/p/asap-rocky-july-2024-nyc-outfit/)
 
-Salomon and HOKA might have to clear the trail because big Altra steppers are creeping up on the path to fashion's next beloved trail runner.First, let me clar…
+A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do celebs keep hitting big 'fits in the middle of a heatwave?Admittedly, safe bet t…
 
-*Published on: Thu, 11 Jul 2024 09:30:27 GMT*
-
-
-## Dua Lipa
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
-
-*Published on: Thu, 11 Jul 2024 10:05:57 GMT*
+*Published on: Fri, 12 Jul 2024 12:02:58 GMT*
 
 
-## Dua Lipa
+## Brielle Biermann
 
-## [ASICS’ Techy Sneaker Collab Is Beautifully Chaotic](https://www.highsnobiety.com/p/asics-p-andrade-gel-kayano-14/)
+## [It's BRAT Summer, Sure. But Softies Get (and Want to Look) Hot, Too.](https://www.highsnobiety.com/p/summer-songs-outfits/)
 
-ASICS’ Gel Kayano 14 model is an old-school running shoe and, when decked out in silver paneling with sporty mesh, it’s a fine example of how chunky, Y2K runni…
+It is frankly impossible to have missed the many, many, many ads, memes, and official events Charli xcx's new full-length, BRAT , has birthed. Be it vast, gene…
 
-*Published on: Thu, 11 Jul 2024 11:28:34 GMT*
+*Published on: Fri, 12 Jul 2024 14:16:25 GMT*
 
 
 ## Dua Lipa
@@ -3117,7 +2577,7 @@ And just like that, KITH's deliciously braided Birkenstocks are back.KITH's lead
 
 ## [Maika Monroe's ‘Longlegs’ Press Tour Is Scarily Stylish](https://www.highsnobiety.com/p/maika-monroe-style-outfits/)
 
-Lee Harper, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
+Lee Harker, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
 
 *Published on: Thu, 11 Jul 2024 15:31:37 GMT*
 
@@ -3131,31 +2591,22 @@ New Balance is one of the few skate shoe companies to challenge Vans' reign as d
 *Published on: Fri, 12 Jul 2024 09:42:39 GMT*
 
 
-## Drake
+## Dua Lipa
 
-## [An "Altra"-Marathon: Is This Niche Trail Brand up Next?](https://www.highsnobiety.com/p/altra-sneakers-trend-2024/)
+## [How Is A$AP Rocky Best-Dressed Even During a Heatwave?](https://www.highsnobiety.com/p/asap-rocky-july-2024-nyc-outfit/)
 
-Salomon and HOKA might have to clear the trail because big Altra steppers are creeping up on the path to fashion's next beloved trail runner.First, let me clar…
+A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do celebs keep hitting big 'fits in the middle of a heatwave?Admittedly, safe bet t…
 
-*Published on: Thu, 11 Jul 2024 09:30:27 GMT*
-
-
-## Drake
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
-
-*Published on: Thu, 11 Jul 2024 10:05:57 GMT*
+*Published on: Fri, 12 Jul 2024 12:02:58 GMT*
 
 
-## Drake
+## Dua Lipa
 
-## [ASICS’ Techy Sneaker Collab Is Beautifully Chaotic](https://www.highsnobiety.com/p/asics-p-andrade-gel-kayano-14/)
+## [It's BRAT Summer, Sure. But Softies Get (and Want to Look) Hot, Too.](https://www.highsnobiety.com/p/summer-songs-outfits/)
 
-ASICS’ Gel Kayano 14 model is an old-school running shoe and, when decked out in silver paneling with sporty mesh, it’s a fine example of how chunky, Y2K runni…
+It is frankly impossible to have missed the many, many, many ads, memes, and official events Charli xcx's new full-length, BRAT , has birthed. Be it vast, gene…
 
-*Published on: Thu, 11 Jul 2024 11:28:34 GMT*
+*Published on: Fri, 12 Jul 2024 14:16:25 GMT*
 
 
 ## Drake
@@ -3171,7 +2622,7 @@ And just like that, KITH's deliciously braided Birkenstocks are back.KITH's lead
 
 ## [Maika Monroe's ‘Longlegs’ Press Tour Is Scarily Stylish](https://www.highsnobiety.com/p/maika-monroe-style-outfits/)
 
-Lee Harper, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
+Lee Harker, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
 
 *Published on: Thu, 11 Jul 2024 15:31:37 GMT*
 
@@ -3185,31 +2636,22 @@ New Balance is one of the few skate shoe companies to challenge Vans' reign as d
 *Published on: Fri, 12 Jul 2024 09:42:39 GMT*
 
 
-## Jenner
+## Drake
 
-## [An "Altra"-Marathon: Is This Niche Trail Brand up Next?](https://www.highsnobiety.com/p/altra-sneakers-trend-2024/)
+## [How Is A$AP Rocky Best-Dressed Even During a Heatwave?](https://www.highsnobiety.com/p/asap-rocky-july-2024-nyc-outfit/)
 
-Salomon and HOKA might have to clear the trail because big Altra steppers are creeping up on the path to fashion's next beloved trail runner.First, let me clar…
+A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do celebs keep hitting big 'fits in the middle of a heatwave?Admittedly, safe bet t…
 
-*Published on: Thu, 11 Jul 2024 09:30:27 GMT*
-
-
-## Jenner
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
-
-*Published on: Thu, 11 Jul 2024 10:05:57 GMT*
+*Published on: Fri, 12 Jul 2024 12:02:58 GMT*
 
 
-## Jenner
+## Drake
 
-## [ASICS’ Techy Sneaker Collab Is Beautifully Chaotic](https://www.highsnobiety.com/p/asics-p-andrade-gel-kayano-14/)
+## [It's BRAT Summer, Sure. But Softies Get (and Want to Look) Hot, Too.](https://www.highsnobiety.com/p/summer-songs-outfits/)
 
-ASICS’ Gel Kayano 14 model is an old-school running shoe and, when decked out in silver paneling with sporty mesh, it’s a fine example of how chunky, Y2K runni…
+It is frankly impossible to have missed the many, many, many ads, memes, and official events Charli xcx's new full-length, BRAT , has birthed. Be it vast, gene…
 
-*Published on: Thu, 11 Jul 2024 11:28:34 GMT*
+*Published on: Fri, 12 Jul 2024 14:16:25 GMT*
 
 
 ## Jenner
@@ -3225,7 +2667,7 @@ And just like that, KITH's deliciously braided Birkenstocks are back.KITH's lead
 
 ## [Maika Monroe's ‘Longlegs’ Press Tour Is Scarily Stylish](https://www.highsnobiety.com/p/maika-monroe-style-outfits/)
 
-Lee Harper, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
+Lee Harker, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
 
 *Published on: Thu, 11 Jul 2024 15:31:37 GMT*
 
@@ -3239,31 +2681,22 @@ New Balance is one of the few skate shoe companies to challenge Vans' reign as d
 *Published on: Fri, 12 Jul 2024 09:42:39 GMT*
 
 
-## J. Cole
+## Jenner
 
-## [An "Altra"-Marathon: Is This Niche Trail Brand up Next?](https://www.highsnobiety.com/p/altra-sneakers-trend-2024/)
+## [How Is A$AP Rocky Best-Dressed Even During a Heatwave?](https://www.highsnobiety.com/p/asap-rocky-july-2024-nyc-outfit/)
 
-Salomon and HOKA might have to clear the trail because big Altra steppers are creeping up on the path to fashion's next beloved trail runner.First, let me clar…
+A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do celebs keep hitting big 'fits in the middle of a heatwave?Admittedly, safe bet t…
 
-*Published on: Thu, 11 Jul 2024 09:30:27 GMT*
-
-
-## J. Cole
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
-
-*Published on: Thu, 11 Jul 2024 10:05:57 GMT*
+*Published on: Fri, 12 Jul 2024 12:02:58 GMT*
 
 
-## J. Cole
+## Jenner
 
-## [ASICS’ Techy Sneaker Collab Is Beautifully Chaotic](https://www.highsnobiety.com/p/asics-p-andrade-gel-kayano-14/)
+## [It's BRAT Summer, Sure. But Softies Get (and Want to Look) Hot, Too.](https://www.highsnobiety.com/p/summer-songs-outfits/)
 
-ASICS’ Gel Kayano 14 model is an old-school running shoe and, when decked out in silver paneling with sporty mesh, it’s a fine example of how chunky, Y2K runni…
+It is frankly impossible to have missed the many, many, many ads, memes, and official events Charli xcx's new full-length, BRAT , has birthed. Be it vast, gene…
 
-*Published on: Thu, 11 Jul 2024 11:28:34 GMT*
+*Published on: Fri, 12 Jul 2024 14:16:25 GMT*
 
 
 ## J. Cole
@@ -3279,7 +2712,7 @@ And just like that, KITH's deliciously braided Birkenstocks are back.KITH's lead
 
 ## [Maika Monroe's ‘Longlegs’ Press Tour Is Scarily Stylish](https://www.highsnobiety.com/p/maika-monroe-style-outfits/)
 
-Lee Harper, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
+Lee Harker, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
 
 *Published on: Thu, 11 Jul 2024 15:31:37 GMT*
 
@@ -3293,31 +2726,22 @@ New Balance is one of the few skate shoe companies to challenge Vans' reign as d
 *Published on: Fri, 12 Jul 2024 09:42:39 GMT*
 
 
-## Jerrod Carmichael
+## J. Cole
 
-## [An "Altra"-Marathon: Is This Niche Trail Brand up Next?](https://www.highsnobiety.com/p/altra-sneakers-trend-2024/)
+## [How Is A$AP Rocky Best-Dressed Even During a Heatwave?](https://www.highsnobiety.com/p/asap-rocky-july-2024-nyc-outfit/)
 
-Salomon and HOKA might have to clear the trail because big Altra steppers are creeping up on the path to fashion's next beloved trail runner.First, let me clar…
+A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do celebs keep hitting big 'fits in the middle of a heatwave?Admittedly, safe bet t…
 
-*Published on: Thu, 11 Jul 2024 09:30:27 GMT*
-
-
-## Jerrod Carmichael
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
-
-*Published on: Thu, 11 Jul 2024 10:05:57 GMT*
+*Published on: Fri, 12 Jul 2024 12:02:58 GMT*
 
 
-## Jerrod Carmichael
+## J. Cole
 
-## [ASICS’ Techy Sneaker Collab Is Beautifully Chaotic](https://www.highsnobiety.com/p/asics-p-andrade-gel-kayano-14/)
+## [It's BRAT Summer, Sure. But Softies Get (and Want to Look) Hot, Too.](https://www.highsnobiety.com/p/summer-songs-outfits/)
 
-ASICS’ Gel Kayano 14 model is an old-school running shoe and, when decked out in silver paneling with sporty mesh, it’s a fine example of how chunky, Y2K runni…
+It is frankly impossible to have missed the many, many, many ads, memes, and official events Charli xcx's new full-length, BRAT , has birthed. Be it vast, gene…
 
-*Published on: Thu, 11 Jul 2024 11:28:34 GMT*
+*Published on: Fri, 12 Jul 2024 14:16:25 GMT*
 
 
 ## Jerrod Carmichael
@@ -3333,7 +2757,7 @@ And just like that, KITH's deliciously braided Birkenstocks are back.KITH's lead
 
 ## [Maika Monroe's ‘Longlegs’ Press Tour Is Scarily Stylish](https://www.highsnobiety.com/p/maika-monroe-style-outfits/)
 
-Lee Harper, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
+Lee Harker, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
 
 *Published on: Thu, 11 Jul 2024 15:31:37 GMT*
 
@@ -3347,31 +2771,22 @@ New Balance is one of the few skate shoe companies to challenge Vans' reign as d
 *Published on: Fri, 12 Jul 2024 09:42:39 GMT*
 
 
-## Jennifer Lawrence
+## Jerrod Carmichael
 
-## [An "Altra"-Marathon: Is This Niche Trail Brand up Next?](https://www.highsnobiety.com/p/altra-sneakers-trend-2024/)
+## [How Is A$AP Rocky Best-Dressed Even During a Heatwave?](https://www.highsnobiety.com/p/asap-rocky-july-2024-nyc-outfit/)
 
-Salomon and HOKA might have to clear the trail because big Altra steppers are creeping up on the path to fashion's next beloved trail runner.First, let me clar…
+A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do celebs keep hitting big 'fits in the middle of a heatwave?Admittedly, safe bet t…
 
-*Published on: Thu, 11 Jul 2024 09:30:27 GMT*
-
-
-## Jennifer Lawrence
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
-
-*Published on: Thu, 11 Jul 2024 10:05:57 GMT*
+*Published on: Fri, 12 Jul 2024 12:02:58 GMT*
 
 
-## Jennifer Lawrence
+## Jerrod Carmichael
 
-## [ASICS’ Techy Sneaker Collab Is Beautifully Chaotic](https://www.highsnobiety.com/p/asics-p-andrade-gel-kayano-14/)
+## [It's BRAT Summer, Sure. But Softies Get (and Want to Look) Hot, Too.](https://www.highsnobiety.com/p/summer-songs-outfits/)
 
-ASICS’ Gel Kayano 14 model is an old-school running shoe and, when decked out in silver paneling with sporty mesh, it’s a fine example of how chunky, Y2K runni…
+It is frankly impossible to have missed the many, many, many ads, memes, and official events Charli xcx's new full-length, BRAT , has birthed. Be it vast, gene…
 
-*Published on: Thu, 11 Jul 2024 11:28:34 GMT*
+*Published on: Fri, 12 Jul 2024 14:16:25 GMT*
 
 
 ## Jennifer Lawrence
@@ -3387,7 +2802,7 @@ And just like that, KITH's deliciously braided Birkenstocks are back.KITH's lead
 
 ## [Maika Monroe's ‘Longlegs’ Press Tour Is Scarily Stylish](https://www.highsnobiety.com/p/maika-monroe-style-outfits/)
 
-Lee Harper, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
+Lee Harker, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
 
 *Published on: Thu, 11 Jul 2024 15:31:37 GMT*
 
@@ -3401,31 +2816,22 @@ New Balance is one of the few skate shoe companies to challenge Vans' reign as d
 *Published on: Fri, 12 Jul 2024 09:42:39 GMT*
 
 
-## Joe Biden
+## Jennifer Lawrence
 
-## [An "Altra"-Marathon: Is This Niche Trail Brand up Next?](https://www.highsnobiety.com/p/altra-sneakers-trend-2024/)
+## [How Is A$AP Rocky Best-Dressed Even During a Heatwave?](https://www.highsnobiety.com/p/asap-rocky-july-2024-nyc-outfit/)
 
-Salomon and HOKA might have to clear the trail because big Altra steppers are creeping up on the path to fashion's next beloved trail runner.First, let me clar…
+A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do celebs keep hitting big 'fits in the middle of a heatwave?Admittedly, safe bet t…
 
-*Published on: Thu, 11 Jul 2024 09:30:27 GMT*
-
-
-## Joe Biden
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
-
-*Published on: Thu, 11 Jul 2024 10:05:57 GMT*
+*Published on: Fri, 12 Jul 2024 12:02:58 GMT*
 
 
-## Joe Biden
+## Jennifer Lawrence
 
-## [ASICS’ Techy Sneaker Collab Is Beautifully Chaotic](https://www.highsnobiety.com/p/asics-p-andrade-gel-kayano-14/)
+## [It's BRAT Summer, Sure. But Softies Get (and Want to Look) Hot, Too.](https://www.highsnobiety.com/p/summer-songs-outfits/)
 
-ASICS’ Gel Kayano 14 model is an old-school running shoe and, when decked out in silver paneling with sporty mesh, it’s a fine example of how chunky, Y2K runni…
+It is frankly impossible to have missed the many, many, many ads, memes, and official events Charli xcx's new full-length, BRAT , has birthed. Be it vast, gene…
 
-*Published on: Thu, 11 Jul 2024 11:28:34 GMT*
+*Published on: Fri, 12 Jul 2024 14:16:25 GMT*
 
 
 ## Joe Biden
@@ -3441,7 +2847,7 @@ And just like that, KITH's deliciously braided Birkenstocks are back.KITH's lead
 
 ## [Maika Monroe's ‘Longlegs’ Press Tour Is Scarily Stylish](https://www.highsnobiety.com/p/maika-monroe-style-outfits/)
 
-Lee Harper, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
+Lee Harker, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
 
 *Published on: Thu, 11 Jul 2024 15:31:37 GMT*
 
@@ -3455,31 +2861,22 @@ New Balance is one of the few skate shoe companies to challenge Vans' reign as d
 *Published on: Fri, 12 Jul 2024 09:42:39 GMT*
 
 
-## J.K. Simmons
+## Joe Biden
 
-## [An "Altra"-Marathon: Is This Niche Trail Brand up Next?](https://www.highsnobiety.com/p/altra-sneakers-trend-2024/)
+## [How Is A$AP Rocky Best-Dressed Even During a Heatwave?](https://www.highsnobiety.com/p/asap-rocky-july-2024-nyc-outfit/)
 
-Salomon and HOKA might have to clear the trail because big Altra steppers are creeping up on the path to fashion's next beloved trail runner.First, let me clar…
+A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do celebs keep hitting big 'fits in the middle of a heatwave?Admittedly, safe bet t…
 
-*Published on: Thu, 11 Jul 2024 09:30:27 GMT*
-
-
-## J.K. Simmons
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
-
-*Published on: Thu, 11 Jul 2024 10:05:57 GMT*
+*Published on: Fri, 12 Jul 2024 12:02:58 GMT*
 
 
-## J.K. Simmons
+## Joe Biden
 
-## [ASICS’ Techy Sneaker Collab Is Beautifully Chaotic](https://www.highsnobiety.com/p/asics-p-andrade-gel-kayano-14/)
+## [It's BRAT Summer, Sure. But Softies Get (and Want to Look) Hot, Too.](https://www.highsnobiety.com/p/summer-songs-outfits/)
 
-ASICS’ Gel Kayano 14 model is an old-school running shoe and, when decked out in silver paneling with sporty mesh, it’s a fine example of how chunky, Y2K runni…
+It is frankly impossible to have missed the many, many, many ads, memes, and official events Charli xcx's new full-length, BRAT , has birthed. Be it vast, gene…
 
-*Published on: Thu, 11 Jul 2024 11:28:34 GMT*
+*Published on: Fri, 12 Jul 2024 14:16:25 GMT*
 
 
 ## J.K. Simmons
@@ -3495,7 +2892,7 @@ And just like that, KITH's deliciously braided Birkenstocks are back.KITH's lead
 
 ## [Maika Monroe's ‘Longlegs’ Press Tour Is Scarily Stylish](https://www.highsnobiety.com/p/maika-monroe-style-outfits/)
 
-Lee Harper, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
+Lee Harker, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
 
 *Published on: Thu, 11 Jul 2024 15:31:37 GMT*
 
@@ -3509,31 +2906,22 @@ New Balance is one of the few skate shoe companies to challenge Vans' reign as d
 *Published on: Fri, 12 Jul 2024 09:42:39 GMT*
 
 
-## Kamala Harris
+## J.K. Simmons
 
-## [An "Altra"-Marathon: Is This Niche Trail Brand up Next?](https://www.highsnobiety.com/p/altra-sneakers-trend-2024/)
+## [How Is A$AP Rocky Best-Dressed Even During a Heatwave?](https://www.highsnobiety.com/p/asap-rocky-july-2024-nyc-outfit/)
 
-Salomon and HOKA might have to clear the trail because big Altra steppers are creeping up on the path to fashion's next beloved trail runner.First, let me clar…
+A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do celebs keep hitting big 'fits in the middle of a heatwave?Admittedly, safe bet t…
 
-*Published on: Thu, 11 Jul 2024 09:30:27 GMT*
-
-
-## Kamala Harris
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
-
-*Published on: Thu, 11 Jul 2024 10:05:57 GMT*
+*Published on: Fri, 12 Jul 2024 12:02:58 GMT*
 
 
-## Kamala Harris
+## J.K. Simmons
 
-## [ASICS’ Techy Sneaker Collab Is Beautifully Chaotic](https://www.highsnobiety.com/p/asics-p-andrade-gel-kayano-14/)
+## [It's BRAT Summer, Sure. But Softies Get (and Want to Look) Hot, Too.](https://www.highsnobiety.com/p/summer-songs-outfits/)
 
-ASICS’ Gel Kayano 14 model is an old-school running shoe and, when decked out in silver paneling with sporty mesh, it’s a fine example of how chunky, Y2K runni…
+It is frankly impossible to have missed the many, many, many ads, memes, and official events Charli xcx's new full-length, BRAT , has birthed. Be it vast, gene…
 
-*Published on: Thu, 11 Jul 2024 11:28:34 GMT*
+*Published on: Fri, 12 Jul 2024 14:16:25 GMT*
 
 
 ## Kamala Harris
@@ -3549,7 +2937,7 @@ And just like that, KITH's deliciously braided Birkenstocks are back.KITH's lead
 
 ## [Maika Monroe's ‘Longlegs’ Press Tour Is Scarily Stylish](https://www.highsnobiety.com/p/maika-monroe-style-outfits/)
 
-Lee Harper, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
+Lee Harker, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
 
 *Published on: Thu, 11 Jul 2024 15:31:37 GMT*
 
@@ -3563,31 +2951,22 @@ New Balance is one of the few skate shoe companies to challenge Vans' reign as d
 *Published on: Fri, 12 Jul 2024 09:42:39 GMT*
 
 
-## John C Reilly
+## Kamala Harris
 
-## [An "Altra"-Marathon: Is This Niche Trail Brand up Next?](https://www.highsnobiety.com/p/altra-sneakers-trend-2024/)
+## [How Is A$AP Rocky Best-Dressed Even During a Heatwave?](https://www.highsnobiety.com/p/asap-rocky-july-2024-nyc-outfit/)
 
-Salomon and HOKA might have to clear the trail because big Altra steppers are creeping up on the path to fashion's next beloved trail runner.First, let me clar…
+A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do celebs keep hitting big 'fits in the middle of a heatwave?Admittedly, safe bet t…
 
-*Published on: Thu, 11 Jul 2024 09:30:27 GMT*
-
-
-## John C Reilly
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
-
-*Published on: Thu, 11 Jul 2024 10:05:57 GMT*
+*Published on: Fri, 12 Jul 2024 12:02:58 GMT*
 
 
-## John C Reilly
+## Kamala Harris
 
-## [ASICS’ Techy Sneaker Collab Is Beautifully Chaotic](https://www.highsnobiety.com/p/asics-p-andrade-gel-kayano-14/)
+## [It's BRAT Summer, Sure. But Softies Get (and Want to Look) Hot, Too.](https://www.highsnobiety.com/p/summer-songs-outfits/)
 
-ASICS’ Gel Kayano 14 model is an old-school running shoe and, when decked out in silver paneling with sporty mesh, it’s a fine example of how chunky, Y2K runni…
+It is frankly impossible to have missed the many, many, many ads, memes, and official events Charli xcx's new full-length, BRAT , has birthed. Be it vast, gene…
 
-*Published on: Thu, 11 Jul 2024 11:28:34 GMT*
+*Published on: Fri, 12 Jul 2024 14:16:25 GMT*
 
 
 ## John C Reilly
@@ -3603,7 +2982,7 @@ And just like that, KITH's deliciously braided Birkenstocks are back.KITH's lead
 
 ## [Maika Monroe's ‘Longlegs’ Press Tour Is Scarily Stylish](https://www.highsnobiety.com/p/maika-monroe-style-outfits/)
 
-Lee Harper, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
+Lee Harker, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
 
 *Published on: Thu, 11 Jul 2024 15:31:37 GMT*
 
@@ -3617,31 +2996,22 @@ New Balance is one of the few skate shoe companies to challenge Vans' reign as d
 *Published on: Fri, 12 Jul 2024 09:42:39 GMT*
 
 
-## Kardashian
+## John C Reilly
 
-## [An "Altra"-Marathon: Is This Niche Trail Brand up Next?](https://www.highsnobiety.com/p/altra-sneakers-trend-2024/)
+## [How Is A$AP Rocky Best-Dressed Even During a Heatwave?](https://www.highsnobiety.com/p/asap-rocky-july-2024-nyc-outfit/)
 
-Salomon and HOKA might have to clear the trail because big Altra steppers are creeping up on the path to fashion's next beloved trail runner.First, let me clar…
+A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do celebs keep hitting big 'fits in the middle of a heatwave?Admittedly, safe bet t…
 
-*Published on: Thu, 11 Jul 2024 09:30:27 GMT*
-
-
-## Kardashian
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
-
-*Published on: Thu, 11 Jul 2024 10:05:57 GMT*
+*Published on: Fri, 12 Jul 2024 12:02:58 GMT*
 
 
-## Kardashian
+## John C Reilly
 
-## [ASICS’ Techy Sneaker Collab Is Beautifully Chaotic](https://www.highsnobiety.com/p/asics-p-andrade-gel-kayano-14/)
+## [It's BRAT Summer, Sure. But Softies Get (and Want to Look) Hot, Too.](https://www.highsnobiety.com/p/summer-songs-outfits/)
 
-ASICS’ Gel Kayano 14 model is an old-school running shoe and, when decked out in silver paneling with sporty mesh, it’s a fine example of how chunky, Y2K runni…
+It is frankly impossible to have missed the many, many, many ads, memes, and official events Charli xcx's new full-length, BRAT , has birthed. Be it vast, gene…
 
-*Published on: Thu, 11 Jul 2024 11:28:34 GMT*
+*Published on: Fri, 12 Jul 2024 14:16:25 GMT*
 
 
 ## Kardashian
@@ -3657,7 +3027,7 @@ And just like that, KITH's deliciously braided Birkenstocks are back.KITH's lead
 
 ## [Maika Monroe's ‘Longlegs’ Press Tour Is Scarily Stylish](https://www.highsnobiety.com/p/maika-monroe-style-outfits/)
 
-Lee Harper, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
+Lee Harker, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
 
 *Published on: Thu, 11 Jul 2024 15:31:37 GMT*
 
@@ -3671,31 +3041,22 @@ New Balance is one of the few skate shoe companies to challenge Vans' reign as d
 *Published on: Fri, 12 Jul 2024 09:42:39 GMT*
 
 
-## Kanye
+## Kardashian
 
-## [An "Altra"-Marathon: Is This Niche Trail Brand up Next?](https://www.highsnobiety.com/p/altra-sneakers-trend-2024/)
+## [How Is A$AP Rocky Best-Dressed Even During a Heatwave?](https://www.highsnobiety.com/p/asap-rocky-july-2024-nyc-outfit/)
 
-Salomon and HOKA might have to clear the trail because big Altra steppers are creeping up on the path to fashion's next beloved trail runner.First, let me clar…
+A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do celebs keep hitting big 'fits in the middle of a heatwave?Admittedly, safe bet t…
 
-*Published on: Thu, 11 Jul 2024 09:30:27 GMT*
-
-
-## Kanye
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
-
-*Published on: Thu, 11 Jul 2024 10:05:57 GMT*
+*Published on: Fri, 12 Jul 2024 12:02:58 GMT*
 
 
-## Kanye
+## Kardashian
 
-## [ASICS’ Techy Sneaker Collab Is Beautifully Chaotic](https://www.highsnobiety.com/p/asics-p-andrade-gel-kayano-14/)
+## [It's BRAT Summer, Sure. But Softies Get (and Want to Look) Hot, Too.](https://www.highsnobiety.com/p/summer-songs-outfits/)
 
-ASICS’ Gel Kayano 14 model is an old-school running shoe and, when decked out in silver paneling with sporty mesh, it’s a fine example of how chunky, Y2K runni…
+It is frankly impossible to have missed the many, many, many ads, memes, and official events Charli xcx's new full-length, BRAT , has birthed. Be it vast, gene…
 
-*Published on: Thu, 11 Jul 2024 11:28:34 GMT*
+*Published on: Fri, 12 Jul 2024 14:16:25 GMT*
 
 
 ## Kanye
@@ -3711,7 +3072,7 @@ And just like that, KITH's deliciously braided Birkenstocks are back.KITH's lead
 
 ## [Maika Monroe's ‘Longlegs’ Press Tour Is Scarily Stylish](https://www.highsnobiety.com/p/maika-monroe-style-outfits/)
 
-Lee Harper, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
+Lee Harker, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
 
 *Published on: Thu, 11 Jul 2024 15:31:37 GMT*
 
@@ -3725,31 +3086,22 @@ New Balance is one of the few skate shoe companies to challenge Vans' reign as d
 *Published on: Fri, 12 Jul 2024 09:42:39 GMT*
 
 
-## Zendaya
+## Kanye
 
-## [An "Altra"-Marathon: Is This Niche Trail Brand up Next?](https://www.highsnobiety.com/p/altra-sneakers-trend-2024/)
+## [How Is A$AP Rocky Best-Dressed Even During a Heatwave?](https://www.highsnobiety.com/p/asap-rocky-july-2024-nyc-outfit/)
 
-Salomon and HOKA might have to clear the trail because big Altra steppers are creeping up on the path to fashion's next beloved trail runner.First, let me clar…
+A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do celebs keep hitting big 'fits in the middle of a heatwave?Admittedly, safe bet t…
 
-*Published on: Thu, 11 Jul 2024 09:30:27 GMT*
-
-
-## Zendaya
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
-
-*Published on: Thu, 11 Jul 2024 10:05:57 GMT*
+*Published on: Fri, 12 Jul 2024 12:02:58 GMT*
 
 
-## Zendaya
+## Kanye
 
-## [ASICS’ Techy Sneaker Collab Is Beautifully Chaotic](https://www.highsnobiety.com/p/asics-p-andrade-gel-kayano-14/)
+## [It's BRAT Summer, Sure. But Softies Get (and Want to Look) Hot, Too.](https://www.highsnobiety.com/p/summer-songs-outfits/)
 
-ASICS’ Gel Kayano 14 model is an old-school running shoe and, when decked out in silver paneling with sporty mesh, it’s a fine example of how chunky, Y2K runni…
+It is frankly impossible to have missed the many, many, many ads, memes, and official events Charli xcx's new full-length, BRAT , has birthed. Be it vast, gene…
 
-*Published on: Thu, 11 Jul 2024 11:28:34 GMT*
+*Published on: Fri, 12 Jul 2024 14:16:25 GMT*
 
 
 ## Zendaya
@@ -3765,7 +3117,7 @@ And just like that, KITH's deliciously braided Birkenstocks are back.KITH's lead
 
 ## [Maika Monroe's ‘Longlegs’ Press Tour Is Scarily Stylish](https://www.highsnobiety.com/p/maika-monroe-style-outfits/)
 
-Lee Harper, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
+Lee Harker, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
 
 *Published on: Thu, 11 Jul 2024 15:31:37 GMT*
 
@@ -3779,31 +3131,22 @@ New Balance is one of the few skate shoe companies to challenge Vans' reign as d
 *Published on: Fri, 12 Jul 2024 09:42:39 GMT*
 
 
-## Will Ferrell
+## Zendaya
 
-## [An "Altra"-Marathon: Is This Niche Trail Brand up Next?](https://www.highsnobiety.com/p/altra-sneakers-trend-2024/)
+## [How Is A$AP Rocky Best-Dressed Even During a Heatwave?](https://www.highsnobiety.com/p/asap-rocky-july-2024-nyc-outfit/)
 
-Salomon and HOKA might have to clear the trail because big Altra steppers are creeping up on the path to fashion's next beloved trail runner.First, let me clar…
+A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do celebs keep hitting big 'fits in the middle of a heatwave?Admittedly, safe bet t…
 
-*Published on: Thu, 11 Jul 2024 09:30:27 GMT*
-
-
-## Will Ferrell
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
-
-*Published on: Thu, 11 Jul 2024 10:05:57 GMT*
+*Published on: Fri, 12 Jul 2024 12:02:58 GMT*
 
 
-## Will Ferrell
+## Zendaya
 
-## [ASICS’ Techy Sneaker Collab Is Beautifully Chaotic](https://www.highsnobiety.com/p/asics-p-andrade-gel-kayano-14/)
+## [It's BRAT Summer, Sure. But Softies Get (and Want to Look) Hot, Too.](https://www.highsnobiety.com/p/summer-songs-outfits/)
 
-ASICS’ Gel Kayano 14 model is an old-school running shoe and, when decked out in silver paneling with sporty mesh, it’s a fine example of how chunky, Y2K runni…
+It is frankly impossible to have missed the many, many, many ads, memes, and official events Charli xcx's new full-length, BRAT , has birthed. Be it vast, gene…
 
-*Published on: Thu, 11 Jul 2024 11:28:34 GMT*
+*Published on: Fri, 12 Jul 2024 14:16:25 GMT*
 
 
 ## Will Ferrell
@@ -3819,7 +3162,7 @@ And just like that, KITH's deliciously braided Birkenstocks are back.KITH's lead
 
 ## [Maika Monroe's ‘Longlegs’ Press Tour Is Scarily Stylish](https://www.highsnobiety.com/p/maika-monroe-style-outfits/)
 
-Lee Harper, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
+Lee Harker, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
 
 *Published on: Thu, 11 Jul 2024 15:31:37 GMT*
 
@@ -3833,31 +3176,22 @@ New Balance is one of the few skate shoe companies to challenge Vans' reign as d
 *Published on: Fri, 12 Jul 2024 09:42:39 GMT*
 
 
-## Zazie Beetz
+## Will Ferrell
 
-## [An "Altra"-Marathon: Is This Niche Trail Brand up Next?](https://www.highsnobiety.com/p/altra-sneakers-trend-2024/)
+## [How Is A$AP Rocky Best-Dressed Even During a Heatwave?](https://www.highsnobiety.com/p/asap-rocky-july-2024-nyc-outfit/)
 
-Salomon and HOKA might have to clear the trail because big Altra steppers are creeping up on the path to fashion's next beloved trail runner.First, let me clar…
+A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do celebs keep hitting big 'fits in the middle of a heatwave?Admittedly, safe bet t…
 
-*Published on: Thu, 11 Jul 2024 09:30:27 GMT*
-
-
-## Zazie Beetz
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
-
-*Published on: Thu, 11 Jul 2024 10:05:57 GMT*
+*Published on: Fri, 12 Jul 2024 12:02:58 GMT*
 
 
-## Zazie Beetz
+## Will Ferrell
 
-## [ASICS’ Techy Sneaker Collab Is Beautifully Chaotic](https://www.highsnobiety.com/p/asics-p-andrade-gel-kayano-14/)
+## [It's BRAT Summer, Sure. But Softies Get (and Want to Look) Hot, Too.](https://www.highsnobiety.com/p/summer-songs-outfits/)
 
-ASICS’ Gel Kayano 14 model is an old-school running shoe and, when decked out in silver paneling with sporty mesh, it’s a fine example of how chunky, Y2K runni…
+It is frankly impossible to have missed the many, many, many ads, memes, and official events Charli xcx's new full-length, BRAT , has birthed. Be it vast, gene…
 
-*Published on: Thu, 11 Jul 2024 11:28:34 GMT*
+*Published on: Fri, 12 Jul 2024 14:16:25 GMT*
 
 
 ## Zazie Beetz
@@ -3873,7 +3207,7 @@ And just like that, KITH's deliciously braided Birkenstocks are back.KITH's lead
 
 ## [Maika Monroe's ‘Longlegs’ Press Tour Is Scarily Stylish](https://www.highsnobiety.com/p/maika-monroe-style-outfits/)
 
-Lee Harper, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
+Lee Harker, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
 
 *Published on: Thu, 11 Jul 2024 15:31:37 GMT*
 
@@ -3887,31 +3221,22 @@ New Balance is one of the few skate shoe companies to challenge Vans' reign as d
 *Published on: Fri, 12 Jul 2024 09:42:39 GMT*
 
 
-## Bob Odenkirk
+## Zazie Beetz
 
-## [An "Altra"-Marathon: Is This Niche Trail Brand up Next?](https://www.highsnobiety.com/p/altra-sneakers-trend-2024/)
+## [How Is A$AP Rocky Best-Dressed Even During a Heatwave?](https://www.highsnobiety.com/p/asap-rocky-july-2024-nyc-outfit/)
 
-Salomon and HOKA might have to clear the trail because big Altra steppers are creeping up on the path to fashion's next beloved trail runner.First, let me clar…
+A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do celebs keep hitting big 'fits in the middle of a heatwave?Admittedly, safe bet t…
 
-*Published on: Thu, 11 Jul 2024 09:30:27 GMT*
-
-
-## Bob Odenkirk
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
-
-*Published on: Thu, 11 Jul 2024 10:05:57 GMT*
+*Published on: Fri, 12 Jul 2024 12:02:58 GMT*
 
 
-## Bob Odenkirk
+## Zazie Beetz
 
-## [ASICS’ Techy Sneaker Collab Is Beautifully Chaotic](https://www.highsnobiety.com/p/asics-p-andrade-gel-kayano-14/)
+## [It's BRAT Summer, Sure. But Softies Get (and Want to Look) Hot, Too.](https://www.highsnobiety.com/p/summer-songs-outfits/)
 
-ASICS’ Gel Kayano 14 model is an old-school running shoe and, when decked out in silver paneling with sporty mesh, it’s a fine example of how chunky, Y2K runni…
+It is frankly impossible to have missed the many, many, many ads, memes, and official events Charli xcx's new full-length, BRAT , has birthed. Be it vast, gene…
 
-*Published on: Thu, 11 Jul 2024 11:28:34 GMT*
+*Published on: Fri, 12 Jul 2024 14:16:25 GMT*
 
 
 ## Bob Odenkirk
@@ -3927,7 +3252,7 @@ And just like that, KITH's deliciously braided Birkenstocks are back.KITH's lead
 
 ## [Maika Monroe's ‘Longlegs’ Press Tour Is Scarily Stylish](https://www.highsnobiety.com/p/maika-monroe-style-outfits/)
 
-Lee Harper, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
+Lee Harker, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
 
 *Published on: Thu, 11 Jul 2024 15:31:37 GMT*
 
@@ -3941,31 +3266,22 @@ New Balance is one of the few skate shoe companies to challenge Vans' reign as d
 *Published on: Fri, 12 Jul 2024 09:42:39 GMT*
 
 
-## Brad Pitt
+## Bob Odenkirk
 
-## [An "Altra"-Marathon: Is This Niche Trail Brand up Next?](https://www.highsnobiety.com/p/altra-sneakers-trend-2024/)
+## [How Is A$AP Rocky Best-Dressed Even During a Heatwave?](https://www.highsnobiety.com/p/asap-rocky-july-2024-nyc-outfit/)
 
-Salomon and HOKA might have to clear the trail because big Altra steppers are creeping up on the path to fashion's next beloved trail runner.First, let me clar…
+A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do celebs keep hitting big 'fits in the middle of a heatwave?Admittedly, safe bet t…
 
-*Published on: Thu, 11 Jul 2024 09:30:27 GMT*
-
-
-## Brad Pitt
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
-
-*Published on: Thu, 11 Jul 2024 10:05:57 GMT*
+*Published on: Fri, 12 Jul 2024 12:02:58 GMT*
 
 
-## Brad Pitt
+## Bob Odenkirk
 
-## [ASICS’ Techy Sneaker Collab Is Beautifully Chaotic](https://www.highsnobiety.com/p/asics-p-andrade-gel-kayano-14/)
+## [It's BRAT Summer, Sure. But Softies Get (and Want to Look) Hot, Too.](https://www.highsnobiety.com/p/summer-songs-outfits/)
 
-ASICS’ Gel Kayano 14 model is an old-school running shoe and, when decked out in silver paneling with sporty mesh, it’s a fine example of how chunky, Y2K runni…
+It is frankly impossible to have missed the many, many, many ads, memes, and official events Charli xcx's new full-length, BRAT , has birthed. Be it vast, gene…
 
-*Published on: Thu, 11 Jul 2024 11:28:34 GMT*
+*Published on: Fri, 12 Jul 2024 14:16:25 GMT*
 
 
 ## Brad Pitt
@@ -3981,7 +3297,7 @@ And just like that, KITH's deliciously braided Birkenstocks are back.KITH's lead
 
 ## [Maika Monroe's ‘Longlegs’ Press Tour Is Scarily Stylish](https://www.highsnobiety.com/p/maika-monroe-style-outfits/)
 
-Lee Harper, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
+Lee Harker, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
 
 *Published on: Thu, 11 Jul 2024 15:31:37 GMT*
 
@@ -3995,31 +3311,22 @@ New Balance is one of the few skate shoe companies to challenge Vans' reign as d
 *Published on: Fri, 12 Jul 2024 09:42:39 GMT*
 
 
-## Beyoncé
+## Brad Pitt
 
-## [An "Altra"-Marathon: Is This Niche Trail Brand up Next?](https://www.highsnobiety.com/p/altra-sneakers-trend-2024/)
+## [How Is A$AP Rocky Best-Dressed Even During a Heatwave?](https://www.highsnobiety.com/p/asap-rocky-july-2024-nyc-outfit/)
 
-Salomon and HOKA might have to clear the trail because big Altra steppers are creeping up on the path to fashion's next beloved trail runner.First, let me clar…
+A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do celebs keep hitting big 'fits in the middle of a heatwave?Admittedly, safe bet t…
 
-*Published on: Thu, 11 Jul 2024 09:30:27 GMT*
-
-
-## Beyoncé
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
-
-*Published on: Thu, 11 Jul 2024 10:05:57 GMT*
+*Published on: Fri, 12 Jul 2024 12:02:58 GMT*
 
 
-## Beyoncé
+## Brad Pitt
 
-## [ASICS’ Techy Sneaker Collab Is Beautifully Chaotic](https://www.highsnobiety.com/p/asics-p-andrade-gel-kayano-14/)
+## [It's BRAT Summer, Sure. But Softies Get (and Want to Look) Hot, Too.](https://www.highsnobiety.com/p/summer-songs-outfits/)
 
-ASICS’ Gel Kayano 14 model is an old-school running shoe and, when decked out in silver paneling with sporty mesh, it’s a fine example of how chunky, Y2K runni…
+It is frankly impossible to have missed the many, many, many ads, memes, and official events Charli xcx's new full-length, BRAT , has birthed. Be it vast, gene…
 
-*Published on: Thu, 11 Jul 2024 11:28:34 GMT*
+*Published on: Fri, 12 Jul 2024 14:16:25 GMT*
 
 
 ## Beyoncé
@@ -4035,7 +3342,7 @@ And just like that, KITH's deliciously braided Birkenstocks are back.KITH's lead
 
 ## [Maika Monroe's ‘Longlegs’ Press Tour Is Scarily Stylish](https://www.highsnobiety.com/p/maika-monroe-style-outfits/)
 
-Lee Harper, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
+Lee Harker, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
 
 *Published on: Thu, 11 Jul 2024 15:31:37 GMT*
 
@@ -4049,31 +3356,22 @@ New Balance is one of the few skate shoe companies to challenge Vans' reign as d
 *Published on: Fri, 12 Jul 2024 09:42:39 GMT*
 
 
-## Bia
+## Beyoncé
 
-## [An "Altra"-Marathon: Is This Niche Trail Brand up Next?](https://www.highsnobiety.com/p/altra-sneakers-trend-2024/)
+## [How Is A$AP Rocky Best-Dressed Even During a Heatwave?](https://www.highsnobiety.com/p/asap-rocky-july-2024-nyc-outfit/)
 
-Salomon and HOKA might have to clear the trail because big Altra steppers are creeping up on the path to fashion's next beloved trail runner.First, let me clar…
+A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do celebs keep hitting big 'fits in the middle of a heatwave?Admittedly, safe bet t…
 
-*Published on: Thu, 11 Jul 2024 09:30:27 GMT*
-
-
-## Bia
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
-
-*Published on: Thu, 11 Jul 2024 10:05:57 GMT*
+*Published on: Fri, 12 Jul 2024 12:02:58 GMT*
 
 
-## Bia
+## Beyoncé
 
-## [ASICS’ Techy Sneaker Collab Is Beautifully Chaotic](https://www.highsnobiety.com/p/asics-p-andrade-gel-kayano-14/)
+## [It's BRAT Summer, Sure. But Softies Get (and Want to Look) Hot, Too.](https://www.highsnobiety.com/p/summer-songs-outfits/)
 
-ASICS’ Gel Kayano 14 model is an old-school running shoe and, when decked out in silver paneling with sporty mesh, it’s a fine example of how chunky, Y2K runni…
+It is frankly impossible to have missed the many, many, many ads, memes, and official events Charli xcx's new full-length, BRAT , has birthed. Be it vast, gene…
 
-*Published on: Thu, 11 Jul 2024 11:28:34 GMT*
+*Published on: Fri, 12 Jul 2024 14:16:25 GMT*
 
 
 ## Bia
@@ -4089,7 +3387,7 @@ And just like that, KITH's deliciously braided Birkenstocks are back.KITH's lead
 
 ## [Maika Monroe's ‘Longlegs’ Press Tour Is Scarily Stylish](https://www.highsnobiety.com/p/maika-monroe-style-outfits/)
 
-Lee Harper, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
+Lee Harker, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
 
 *Published on: Thu, 11 Jul 2024 15:31:37 GMT*
 
@@ -4103,31 +3401,22 @@ New Balance is one of the few skate shoe companies to challenge Vans' reign as d
 *Published on: Fri, 12 Jul 2024 09:42:39 GMT*
 
 
-## Avantika
+## Bia
 
-## [An "Altra"-Marathon: Is This Niche Trail Brand up Next?](https://www.highsnobiety.com/p/altra-sneakers-trend-2024/)
+## [How Is A$AP Rocky Best-Dressed Even During a Heatwave?](https://www.highsnobiety.com/p/asap-rocky-july-2024-nyc-outfit/)
 
-Salomon and HOKA might have to clear the trail because big Altra steppers are creeping up on the path to fashion's next beloved trail runner.First, let me clar…
+A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do celebs keep hitting big 'fits in the middle of a heatwave?Admittedly, safe bet t…
 
-*Published on: Thu, 11 Jul 2024 09:30:27 GMT*
-
-
-## Avantika
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
-
-*Published on: Thu, 11 Jul 2024 10:05:57 GMT*
+*Published on: Fri, 12 Jul 2024 12:02:58 GMT*
 
 
-## Avantika
+## Bia
 
-## [ASICS’ Techy Sneaker Collab Is Beautifully Chaotic](https://www.highsnobiety.com/p/asics-p-andrade-gel-kayano-14/)
+## [It's BRAT Summer, Sure. But Softies Get (and Want to Look) Hot, Too.](https://www.highsnobiety.com/p/summer-songs-outfits/)
 
-ASICS’ Gel Kayano 14 model is an old-school running shoe and, when decked out in silver paneling with sporty mesh, it’s a fine example of how chunky, Y2K runni…
+It is frankly impossible to have missed the many, many, many ads, memes, and official events Charli xcx's new full-length, BRAT , has birthed. Be it vast, gene…
 
-*Published on: Thu, 11 Jul 2024 11:28:34 GMT*
+*Published on: Fri, 12 Jul 2024 14:16:25 GMT*
 
 
 ## Avantika
@@ -4143,7 +3432,7 @@ And just like that, KITH's deliciously braided Birkenstocks are back.KITH's lead
 
 ## [Maika Monroe's ‘Longlegs’ Press Tour Is Scarily Stylish](https://www.highsnobiety.com/p/maika-monroe-style-outfits/)
 
-Lee Harper, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
+Lee Harker, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
 
 *Published on: Thu, 11 Jul 2024 15:31:37 GMT*
 
@@ -4157,31 +3446,22 @@ New Balance is one of the few skate shoe companies to challenge Vans' reign as d
 *Published on: Fri, 12 Jul 2024 09:42:39 GMT*
 
 
-## Bernie Sanders
+## Avantika
 
-## [An "Altra"-Marathon: Is This Niche Trail Brand up Next?](https://www.highsnobiety.com/p/altra-sneakers-trend-2024/)
+## [How Is A$AP Rocky Best-Dressed Even During a Heatwave?](https://www.highsnobiety.com/p/asap-rocky-july-2024-nyc-outfit/)
 
-Salomon and HOKA might have to clear the trail because big Altra steppers are creeping up on the path to fashion's next beloved trail runner.First, let me clar…
+A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do celebs keep hitting big 'fits in the middle of a heatwave?Admittedly, safe bet t…
 
-*Published on: Thu, 11 Jul 2024 09:30:27 GMT*
-
-
-## Bernie Sanders
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
-
-*Published on: Thu, 11 Jul 2024 10:05:57 GMT*
+*Published on: Fri, 12 Jul 2024 12:02:58 GMT*
 
 
-## Bernie Sanders
+## Avantika
 
-## [ASICS’ Techy Sneaker Collab Is Beautifully Chaotic](https://www.highsnobiety.com/p/asics-p-andrade-gel-kayano-14/)
+## [It's BRAT Summer, Sure. But Softies Get (and Want to Look) Hot, Too.](https://www.highsnobiety.com/p/summer-songs-outfits/)
 
-ASICS’ Gel Kayano 14 model is an old-school running shoe and, when decked out in silver paneling with sporty mesh, it’s a fine example of how chunky, Y2K runni…
+It is frankly impossible to have missed the many, many, many ads, memes, and official events Charli xcx's new full-length, BRAT , has birthed. Be it vast, gene…
 
-*Published on: Thu, 11 Jul 2024 11:28:34 GMT*
+*Published on: Fri, 12 Jul 2024 14:16:25 GMT*
 
 
 ## Bernie Sanders
@@ -4197,7 +3477,7 @@ And just like that, KITH's deliciously braided Birkenstocks are back.KITH's lead
 
 ## [Maika Monroe's ‘Longlegs’ Press Tour Is Scarily Stylish](https://www.highsnobiety.com/p/maika-monroe-style-outfits/)
 
-Lee Harper, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
+Lee Harker, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
 
 *Published on: Thu, 11 Jul 2024 15:31:37 GMT*
 
@@ -4211,31 +3491,22 @@ New Balance is one of the few skate shoe companies to challenge Vans' reign as d
 *Published on: Fri, 12 Jul 2024 09:42:39 GMT*
 
 
-## Big Sean
+## Bernie Sanders
 
-## [An "Altra"-Marathon: Is This Niche Trail Brand up Next?](https://www.highsnobiety.com/p/altra-sneakers-trend-2024/)
+## [How Is A$AP Rocky Best-Dressed Even During a Heatwave?](https://www.highsnobiety.com/p/asap-rocky-july-2024-nyc-outfit/)
 
-Salomon and HOKA might have to clear the trail because big Altra steppers are creeping up on the path to fashion's next beloved trail runner.First, let me clar…
+A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do celebs keep hitting big 'fits in the middle of a heatwave?Admittedly, safe bet t…
 
-*Published on: Thu, 11 Jul 2024 09:30:27 GMT*
-
-
-## Big Sean
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
-
-*Published on: Thu, 11 Jul 2024 10:05:57 GMT*
+*Published on: Fri, 12 Jul 2024 12:02:58 GMT*
 
 
-## Big Sean
+## Bernie Sanders
 
-## [ASICS’ Techy Sneaker Collab Is Beautifully Chaotic](https://www.highsnobiety.com/p/asics-p-andrade-gel-kayano-14/)
+## [It's BRAT Summer, Sure. But Softies Get (and Want to Look) Hot, Too.](https://www.highsnobiety.com/p/summer-songs-outfits/)
 
-ASICS’ Gel Kayano 14 model is an old-school running shoe and, when decked out in silver paneling with sporty mesh, it’s a fine example of how chunky, Y2K runni…
+It is frankly impossible to have missed the many, many, many ads, memes, and official events Charli xcx's new full-length, BRAT , has birthed. Be it vast, gene…
 
-*Published on: Thu, 11 Jul 2024 11:28:34 GMT*
+*Published on: Fri, 12 Jul 2024 14:16:25 GMT*
 
 
 ## Big Sean
@@ -4251,7 +3522,7 @@ And just like that, KITH's deliciously braided Birkenstocks are back.KITH's lead
 
 ## [Maika Monroe's ‘Longlegs’ Press Tour Is Scarily Stylish](https://www.highsnobiety.com/p/maika-monroe-style-outfits/)
 
-Lee Harper, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
+Lee Harker, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
 
 *Published on: Thu, 11 Jul 2024 15:31:37 GMT*
 
@@ -4265,31 +3536,22 @@ New Balance is one of the few skate shoe companies to challenge Vans' reign as d
 *Published on: Fri, 12 Jul 2024 09:42:39 GMT*
 
 
-## BlockBoy JB
+## Big Sean
 
-## [An "Altra"-Marathon: Is This Niche Trail Brand up Next?](https://www.highsnobiety.com/p/altra-sneakers-trend-2024/)
+## [How Is A$AP Rocky Best-Dressed Even During a Heatwave?](https://www.highsnobiety.com/p/asap-rocky-july-2024-nyc-outfit/)
 
-Salomon and HOKA might have to clear the trail because big Altra steppers are creeping up on the path to fashion's next beloved trail runner.First, let me clar…
+A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do celebs keep hitting big 'fits in the middle of a heatwave?Admittedly, safe bet t…
 
-*Published on: Thu, 11 Jul 2024 09:30:27 GMT*
-
-
-## BlockBoy JB
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
-
-*Published on: Thu, 11 Jul 2024 10:05:57 GMT*
+*Published on: Fri, 12 Jul 2024 12:02:58 GMT*
 
 
-## BlockBoy JB
+## Big Sean
 
-## [ASICS’ Techy Sneaker Collab Is Beautifully Chaotic](https://www.highsnobiety.com/p/asics-p-andrade-gel-kayano-14/)
+## [It's BRAT Summer, Sure. But Softies Get (and Want to Look) Hot, Too.](https://www.highsnobiety.com/p/summer-songs-outfits/)
 
-ASICS’ Gel Kayano 14 model is an old-school running shoe and, when decked out in silver paneling with sporty mesh, it’s a fine example of how chunky, Y2K runni…
+It is frankly impossible to have missed the many, many, many ads, memes, and official events Charli xcx's new full-length, BRAT , has birthed. Be it vast, gene…
 
-*Published on: Thu, 11 Jul 2024 11:28:34 GMT*
+*Published on: Fri, 12 Jul 2024 14:16:25 GMT*
 
 
 ## BlockBoy JB
@@ -4305,7 +3567,7 @@ And just like that, KITH's deliciously braided Birkenstocks are back.KITH's lead
 
 ## [Maika Monroe's ‘Longlegs’ Press Tour Is Scarily Stylish](https://www.highsnobiety.com/p/maika-monroe-style-outfits/)
 
-Lee Harper, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
+Lee Harker, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
 
 *Published on: Thu, 11 Jul 2024 15:31:37 GMT*
 
@@ -4319,31 +3581,22 @@ New Balance is one of the few skate shoe companies to challenge Vans' reign as d
 *Published on: Fri, 12 Jul 2024 09:42:39 GMT*
 
 
-## Biden
+## BlockBoy JB
 
-## [An "Altra"-Marathon: Is This Niche Trail Brand up Next?](https://www.highsnobiety.com/p/altra-sneakers-trend-2024/)
+## [How Is A$AP Rocky Best-Dressed Even During a Heatwave?](https://www.highsnobiety.com/p/asap-rocky-july-2024-nyc-outfit/)
 
-Salomon and HOKA might have to clear the trail because big Altra steppers are creeping up on the path to fashion's next beloved trail runner.First, let me clar…
+A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do celebs keep hitting big 'fits in the middle of a heatwave?Admittedly, safe bet t…
 
-*Published on: Thu, 11 Jul 2024 09:30:27 GMT*
-
-
-## Biden
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
-
-*Published on: Thu, 11 Jul 2024 10:05:57 GMT*
+*Published on: Fri, 12 Jul 2024 12:02:58 GMT*
 
 
-## Biden
+## BlockBoy JB
 
-## [ASICS’ Techy Sneaker Collab Is Beautifully Chaotic](https://www.highsnobiety.com/p/asics-p-andrade-gel-kayano-14/)
+## [It's BRAT Summer, Sure. But Softies Get (and Want to Look) Hot, Too.](https://www.highsnobiety.com/p/summer-songs-outfits/)
 
-ASICS’ Gel Kayano 14 model is an old-school running shoe and, when decked out in silver paneling with sporty mesh, it’s a fine example of how chunky, Y2K runni…
+It is frankly impossible to have missed the many, many, many ads, memes, and official events Charli xcx's new full-length, BRAT , has birthed. Be it vast, gene…
 
-*Published on: Thu, 11 Jul 2024 11:28:34 GMT*
+*Published on: Fri, 12 Jul 2024 14:16:25 GMT*
 
 
 ## Biden
@@ -4359,7 +3612,7 @@ And just like that, KITH's deliciously braided Birkenstocks are back.KITH's lead
 
 ## [Maika Monroe's ‘Longlegs’ Press Tour Is Scarily Stylish](https://www.highsnobiety.com/p/maika-monroe-style-outfits/)
 
-Lee Harper, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
+Lee Harker, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
 
 *Published on: Thu, 11 Jul 2024 15:31:37 GMT*
 
@@ -4373,31 +3626,22 @@ New Balance is one of the few skate shoe companies to challenge Vans' reign as d
 *Published on: Fri, 12 Jul 2024 09:42:39 GMT*
 
 
-## Bieber
+## Biden
 
-## [An "Altra"-Marathon: Is This Niche Trail Brand up Next?](https://www.highsnobiety.com/p/altra-sneakers-trend-2024/)
+## [How Is A$AP Rocky Best-Dressed Even During a Heatwave?](https://www.highsnobiety.com/p/asap-rocky-july-2024-nyc-outfit/)
 
-Salomon and HOKA might have to clear the trail because big Altra steppers are creeping up on the path to fashion's next beloved trail runner.First, let me clar…
+A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do celebs keep hitting big 'fits in the middle of a heatwave?Admittedly, safe bet t…
 
-*Published on: Thu, 11 Jul 2024 09:30:27 GMT*
-
-
-## Bieber
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
-
-*Published on: Thu, 11 Jul 2024 10:05:57 GMT*
+*Published on: Fri, 12 Jul 2024 12:02:58 GMT*
 
 
-## Bieber
+## Biden
 
-## [ASICS’ Techy Sneaker Collab Is Beautifully Chaotic](https://www.highsnobiety.com/p/asics-p-andrade-gel-kayano-14/)
+## [It's BRAT Summer, Sure. But Softies Get (and Want to Look) Hot, Too.](https://www.highsnobiety.com/p/summer-songs-outfits/)
 
-ASICS’ Gel Kayano 14 model is an old-school running shoe and, when decked out in silver paneling with sporty mesh, it’s a fine example of how chunky, Y2K runni…
+It is frankly impossible to have missed the many, many, many ads, memes, and official events Charli xcx's new full-length, BRAT , has birthed. Be it vast, gene…
 
-*Published on: Thu, 11 Jul 2024 11:28:34 GMT*
+*Published on: Fri, 12 Jul 2024 14:16:25 GMT*
 
 
 ## Bieber
@@ -4413,7 +3657,7 @@ And just like that, KITH's deliciously braided Birkenstocks are back.KITH's lead
 
 ## [Maika Monroe's ‘Longlegs’ Press Tour Is Scarily Stylish](https://www.highsnobiety.com/p/maika-monroe-style-outfits/)
 
-Lee Harper, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
+Lee Harker, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
 
 *Published on: Thu, 11 Jul 2024 15:31:37 GMT*
 
@@ -4427,31 +3671,22 @@ New Balance is one of the few skate shoe companies to challenge Vans' reign as d
 *Published on: Fri, 12 Jul 2024 09:42:39 GMT*
 
 
-## Paulina Porizkov
+## Bieber
 
-## [An "Altra"-Marathon: Is This Niche Trail Brand up Next?](https://www.highsnobiety.com/p/altra-sneakers-trend-2024/)
+## [How Is A$AP Rocky Best-Dressed Even During a Heatwave?](https://www.highsnobiety.com/p/asap-rocky-july-2024-nyc-outfit/)
 
-Salomon and HOKA might have to clear the trail because big Altra steppers are creeping up on the path to fashion's next beloved trail runner.First, let me clar…
+A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do celebs keep hitting big 'fits in the middle of a heatwave?Admittedly, safe bet t…
 
-*Published on: Thu, 11 Jul 2024 09:30:27 GMT*
-
-
-## Paulina Porizkov
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
-
-*Published on: Thu, 11 Jul 2024 10:05:57 GMT*
+*Published on: Fri, 12 Jul 2024 12:02:58 GMT*
 
 
-## Paulina Porizkov
+## Bieber
 
-## [ASICS’ Techy Sneaker Collab Is Beautifully Chaotic](https://www.highsnobiety.com/p/asics-p-andrade-gel-kayano-14/)
+## [It's BRAT Summer, Sure. But Softies Get (and Want to Look) Hot, Too.](https://www.highsnobiety.com/p/summer-songs-outfits/)
 
-ASICS’ Gel Kayano 14 model is an old-school running shoe and, when decked out in silver paneling with sporty mesh, it’s a fine example of how chunky, Y2K runni…
+It is frankly impossible to have missed the many, many, many ads, memes, and official events Charli xcx's new full-length, BRAT , has birthed. Be it vast, gene…
 
-*Published on: Thu, 11 Jul 2024 11:28:34 GMT*
+*Published on: Fri, 12 Jul 2024 14:16:25 GMT*
 
 
 ## Paulina Porizkov
@@ -4467,7 +3702,7 @@ And just like that, KITH's deliciously braided Birkenstocks are back.KITH's lead
 
 ## [Maika Monroe's ‘Longlegs’ Press Tour Is Scarily Stylish](https://www.highsnobiety.com/p/maika-monroe-style-outfits/)
 
-Lee Harper, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
+Lee Harker, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
 
 *Published on: Thu, 11 Jul 2024 15:31:37 GMT*
 
@@ -4481,31 +3716,22 @@ New Balance is one of the few skate shoe companies to challenge Vans' reign as d
 *Published on: Fri, 12 Jul 2024 09:42:39 GMT*
 
 
-## Paris Hilton
+## Paulina Porizkov
 
-## [An "Altra"-Marathon: Is This Niche Trail Brand up Next?](https://www.highsnobiety.com/p/altra-sneakers-trend-2024/)
+## [How Is A$AP Rocky Best-Dressed Even During a Heatwave?](https://www.highsnobiety.com/p/asap-rocky-july-2024-nyc-outfit/)
 
-Salomon and HOKA might have to clear the trail because big Altra steppers are creeping up on the path to fashion's next beloved trail runner.First, let me clar…
+A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do celebs keep hitting big 'fits in the middle of a heatwave?Admittedly, safe bet t…
 
-*Published on: Thu, 11 Jul 2024 09:30:27 GMT*
-
-
-## Paris Hilton
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
-
-*Published on: Thu, 11 Jul 2024 10:05:57 GMT*
+*Published on: Fri, 12 Jul 2024 12:02:58 GMT*
 
 
-## Paris Hilton
+## Paulina Porizkov
 
-## [ASICS’ Techy Sneaker Collab Is Beautifully Chaotic](https://www.highsnobiety.com/p/asics-p-andrade-gel-kayano-14/)
+## [It's BRAT Summer, Sure. But Softies Get (and Want to Look) Hot, Too.](https://www.highsnobiety.com/p/summer-songs-outfits/)
 
-ASICS’ Gel Kayano 14 model is an old-school running shoe and, when decked out in silver paneling with sporty mesh, it’s a fine example of how chunky, Y2K runni…
+It is frankly impossible to have missed the many, many, many ads, memes, and official events Charli xcx's new full-length, BRAT , has birthed. Be it vast, gene…
 
-*Published on: Thu, 11 Jul 2024 11:28:34 GMT*
+*Published on: Fri, 12 Jul 2024 14:16:25 GMT*
 
 
 ## Paris Hilton
@@ -4521,7 +3747,7 @@ And just like that, KITH's deliciously braided Birkenstocks are back.KITH's lead
 
 ## [Maika Monroe's ‘Longlegs’ Press Tour Is Scarily Stylish](https://www.highsnobiety.com/p/maika-monroe-style-outfits/)
 
-Lee Harper, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
+Lee Harker, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
 
 *Published on: Thu, 11 Jul 2024 15:31:37 GMT*
 
@@ -4535,31 +3761,22 @@ New Balance is one of the few skate shoe companies to challenge Vans' reign as d
 *Published on: Fri, 12 Jul 2024 09:42:39 GMT*
 
 
-## Metro Boomin
+## Paris Hilton
 
-## [An "Altra"-Marathon: Is This Niche Trail Brand up Next?](https://www.highsnobiety.com/p/altra-sneakers-trend-2024/)
+## [How Is A$AP Rocky Best-Dressed Even During a Heatwave?](https://www.highsnobiety.com/p/asap-rocky-july-2024-nyc-outfit/)
 
-Salomon and HOKA might have to clear the trail because big Altra steppers are creeping up on the path to fashion's next beloved trail runner.First, let me clar…
+A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do celebs keep hitting big 'fits in the middle of a heatwave?Admittedly, safe bet t…
 
-*Published on: Thu, 11 Jul 2024 09:30:27 GMT*
-
-
-## Metro Boomin
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
-
-*Published on: Thu, 11 Jul 2024 10:05:57 GMT*
+*Published on: Fri, 12 Jul 2024 12:02:58 GMT*
 
 
-## Metro Boomin
+## Paris Hilton
 
-## [ASICS’ Techy Sneaker Collab Is Beautifully Chaotic](https://www.highsnobiety.com/p/asics-p-andrade-gel-kayano-14/)
+## [It's BRAT Summer, Sure. But Softies Get (and Want to Look) Hot, Too.](https://www.highsnobiety.com/p/summer-songs-outfits/)
 
-ASICS’ Gel Kayano 14 model is an old-school running shoe and, when decked out in silver paneling with sporty mesh, it’s a fine example of how chunky, Y2K runni…
+It is frankly impossible to have missed the many, many, many ads, memes, and official events Charli xcx's new full-length, BRAT , has birthed. Be it vast, gene…
 
-*Published on: Thu, 11 Jul 2024 11:28:34 GMT*
+*Published on: Fri, 12 Jul 2024 14:16:25 GMT*
 
 
 ## Metro Boomin
@@ -4575,7 +3792,7 @@ And just like that, KITH's deliciously braided Birkenstocks are back.KITH's lead
 
 ## [Maika Monroe's ‘Longlegs’ Press Tour Is Scarily Stylish](https://www.highsnobiety.com/p/maika-monroe-style-outfits/)
 
-Lee Harper, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
+Lee Harker, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
 
 *Published on: Thu, 11 Jul 2024 15:31:37 GMT*
 
@@ -4589,31 +3806,22 @@ New Balance is one of the few skate shoe companies to challenge Vans' reign as d
 *Published on: Fri, 12 Jul 2024 09:42:39 GMT*
 
 
-## Meghan Markle
+## Metro Boomin
 
-## [An "Altra"-Marathon: Is This Niche Trail Brand up Next?](https://www.highsnobiety.com/p/altra-sneakers-trend-2024/)
+## [How Is A$AP Rocky Best-Dressed Even During a Heatwave?](https://www.highsnobiety.com/p/asap-rocky-july-2024-nyc-outfit/)
 
-Salomon and HOKA might have to clear the trail because big Altra steppers are creeping up on the path to fashion's next beloved trail runner.First, let me clar…
+A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do celebs keep hitting big 'fits in the middle of a heatwave?Admittedly, safe bet t…
 
-*Published on: Thu, 11 Jul 2024 09:30:27 GMT*
-
-
-## Meghan Markle
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
-
-*Published on: Thu, 11 Jul 2024 10:05:57 GMT*
+*Published on: Fri, 12 Jul 2024 12:02:58 GMT*
 
 
-## Meghan Markle
+## Metro Boomin
 
-## [ASICS’ Techy Sneaker Collab Is Beautifully Chaotic](https://www.highsnobiety.com/p/asics-p-andrade-gel-kayano-14/)
+## [It's BRAT Summer, Sure. But Softies Get (and Want to Look) Hot, Too.](https://www.highsnobiety.com/p/summer-songs-outfits/)
 
-ASICS’ Gel Kayano 14 model is an old-school running shoe and, when decked out in silver paneling with sporty mesh, it’s a fine example of how chunky, Y2K runni…
+It is frankly impossible to have missed the many, many, many ads, memes, and official events Charli xcx's new full-length, BRAT , has birthed. Be it vast, gene…
 
-*Published on: Thu, 11 Jul 2024 11:28:34 GMT*
+*Published on: Fri, 12 Jul 2024 14:16:25 GMT*
 
 
 ## Meghan Markle
@@ -4629,7 +3837,7 @@ And just like that, KITH's deliciously braided Birkenstocks are back.KITH's lead
 
 ## [Maika Monroe's ‘Longlegs’ Press Tour Is Scarily Stylish](https://www.highsnobiety.com/p/maika-monroe-style-outfits/)
 
-Lee Harper, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
+Lee Harker, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
 
 *Published on: Thu, 11 Jul 2024 15:31:37 GMT*
 
@@ -4643,31 +3851,22 @@ New Balance is one of the few skate shoe companies to challenge Vans' reign as d
 *Published on: Fri, 12 Jul 2024 09:42:39 GMT*
 
 
-## Megan Thee Stallion
+## Meghan Markle
 
-## [An "Altra"-Marathon: Is This Niche Trail Brand up Next?](https://www.highsnobiety.com/p/altra-sneakers-trend-2024/)
+## [How Is A$AP Rocky Best-Dressed Even During a Heatwave?](https://www.highsnobiety.com/p/asap-rocky-july-2024-nyc-outfit/)
 
-Salomon and HOKA might have to clear the trail because big Altra steppers are creeping up on the path to fashion's next beloved trail runner.First, let me clar…
+A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do celebs keep hitting big 'fits in the middle of a heatwave?Admittedly, safe bet t…
 
-*Published on: Thu, 11 Jul 2024 09:30:27 GMT*
-
-
-## Megan Thee Stallion
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
-
-*Published on: Thu, 11 Jul 2024 10:05:57 GMT*
+*Published on: Fri, 12 Jul 2024 12:02:58 GMT*
 
 
-## Megan Thee Stallion
+## Meghan Markle
 
-## [ASICS’ Techy Sneaker Collab Is Beautifully Chaotic](https://www.highsnobiety.com/p/asics-p-andrade-gel-kayano-14/)
+## [It's BRAT Summer, Sure. But Softies Get (and Want to Look) Hot, Too.](https://www.highsnobiety.com/p/summer-songs-outfits/)
 
-ASICS’ Gel Kayano 14 model is an old-school running shoe and, when decked out in silver paneling with sporty mesh, it’s a fine example of how chunky, Y2K runni…
+It is frankly impossible to have missed the many, many, many ads, memes, and official events Charli xcx's new full-length, BRAT , has birthed. Be it vast, gene…
 
-*Published on: Thu, 11 Jul 2024 11:28:34 GMT*
+*Published on: Fri, 12 Jul 2024 14:16:25 GMT*
 
 
 ## Megan Thee Stallion
@@ -4683,7 +3882,7 @@ And just like that, KITH's deliciously braided Birkenstocks are back.KITH's lead
 
 ## [Maika Monroe's ‘Longlegs’ Press Tour Is Scarily Stylish](https://www.highsnobiety.com/p/maika-monroe-style-outfits/)
 
-Lee Harper, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
+Lee Harker, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
 
 *Published on: Thu, 11 Jul 2024 15:31:37 GMT*
 
@@ -4697,31 +3896,22 @@ New Balance is one of the few skate shoe companies to challenge Vans' reign as d
 *Published on: Fri, 12 Jul 2024 09:42:39 GMT*
 
 
-## Maya Rudolph
+## Megan Thee Stallion
 
-## [An "Altra"-Marathon: Is This Niche Trail Brand up Next?](https://www.highsnobiety.com/p/altra-sneakers-trend-2024/)
+## [How Is A$AP Rocky Best-Dressed Even During a Heatwave?](https://www.highsnobiety.com/p/asap-rocky-july-2024-nyc-outfit/)
 
-Salomon and HOKA might have to clear the trail because big Altra steppers are creeping up on the path to fashion's next beloved trail runner.First, let me clar…
+A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do celebs keep hitting big 'fits in the middle of a heatwave?Admittedly, safe bet t…
 
-*Published on: Thu, 11 Jul 2024 09:30:27 GMT*
-
-
-## Maya Rudolph
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
-
-*Published on: Thu, 11 Jul 2024 10:05:57 GMT*
+*Published on: Fri, 12 Jul 2024 12:02:58 GMT*
 
 
-## Maya Rudolph
+## Megan Thee Stallion
 
-## [ASICS’ Techy Sneaker Collab Is Beautifully Chaotic](https://www.highsnobiety.com/p/asics-p-andrade-gel-kayano-14/)
+## [It's BRAT Summer, Sure. But Softies Get (and Want to Look) Hot, Too.](https://www.highsnobiety.com/p/summer-songs-outfits/)
 
-ASICS’ Gel Kayano 14 model is an old-school running shoe and, when decked out in silver paneling with sporty mesh, it’s a fine example of how chunky, Y2K runni…
+It is frankly impossible to have missed the many, many, many ads, memes, and official events Charli xcx's new full-length, BRAT , has birthed. Be it vast, gene…
 
-*Published on: Thu, 11 Jul 2024 11:28:34 GMT*
+*Published on: Fri, 12 Jul 2024 14:16:25 GMT*
 
 
 ## Maya Rudolph
@@ -4737,7 +3927,7 @@ And just like that, KITH's deliciously braided Birkenstocks are back.KITH's lead
 
 ## [Maika Monroe's ‘Longlegs’ Press Tour Is Scarily Stylish](https://www.highsnobiety.com/p/maika-monroe-style-outfits/)
 
-Lee Harper, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
+Lee Harker, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
 
 *Published on: Thu, 11 Jul 2024 15:31:37 GMT*
 
@@ -4751,31 +3941,22 @@ New Balance is one of the few skate shoe companies to challenge Vans' reign as d
 *Published on: Fri, 12 Jul 2024 09:42:39 GMT*
 
 
-## Olivia Rodrigo
+## Maya Rudolph
 
-## [An "Altra"-Marathon: Is This Niche Trail Brand up Next?](https://www.highsnobiety.com/p/altra-sneakers-trend-2024/)
+## [How Is A$AP Rocky Best-Dressed Even During a Heatwave?](https://www.highsnobiety.com/p/asap-rocky-july-2024-nyc-outfit/)
 
-Salomon and HOKA might have to clear the trail because big Altra steppers are creeping up on the path to fashion's next beloved trail runner.First, let me clar…
+A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do celebs keep hitting big 'fits in the middle of a heatwave?Admittedly, safe bet t…
 
-*Published on: Thu, 11 Jul 2024 09:30:27 GMT*
-
-
-## Olivia Rodrigo
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
-
-*Published on: Thu, 11 Jul 2024 10:05:57 GMT*
+*Published on: Fri, 12 Jul 2024 12:02:58 GMT*
 
 
-## Olivia Rodrigo
+## Maya Rudolph
 
-## [ASICS’ Techy Sneaker Collab Is Beautifully Chaotic](https://www.highsnobiety.com/p/asics-p-andrade-gel-kayano-14/)
+## [It's BRAT Summer, Sure. But Softies Get (and Want to Look) Hot, Too.](https://www.highsnobiety.com/p/summer-songs-outfits/)
 
-ASICS’ Gel Kayano 14 model is an old-school running shoe and, when decked out in silver paneling with sporty mesh, it’s a fine example of how chunky, Y2K runni…
+It is frankly impossible to have missed the many, many, many ads, memes, and official events Charli xcx's new full-length, BRAT , has birthed. Be it vast, gene…
 
-*Published on: Thu, 11 Jul 2024 11:28:34 GMT*
+*Published on: Fri, 12 Jul 2024 14:16:25 GMT*
 
 
 ## Olivia Rodrigo
@@ -4791,7 +3972,7 @@ And just like that, KITH's deliciously braided Birkenstocks are back.KITH's lead
 
 ## [Maika Monroe's ‘Longlegs’ Press Tour Is Scarily Stylish](https://www.highsnobiety.com/p/maika-monroe-style-outfits/)
 
-Lee Harper, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
+Lee Harker, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
 
 *Published on: Thu, 11 Jul 2024 15:31:37 GMT*
 
@@ -4805,31 +3986,22 @@ New Balance is one of the few skate shoe companies to challenge Vans' reign as d
 *Published on: Fri, 12 Jul 2024 09:42:39 GMT*
 
 
-## Obama
+## Olivia Rodrigo
 
-## [An "Altra"-Marathon: Is This Niche Trail Brand up Next?](https://www.highsnobiety.com/p/altra-sneakers-trend-2024/)
+## [How Is A$AP Rocky Best-Dressed Even During a Heatwave?](https://www.highsnobiety.com/p/asap-rocky-july-2024-nyc-outfit/)
 
-Salomon and HOKA might have to clear the trail because big Altra steppers are creeping up on the path to fashion's next beloved trail runner.First, let me clar…
+A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do celebs keep hitting big 'fits in the middle of a heatwave?Admittedly, safe bet t…
 
-*Published on: Thu, 11 Jul 2024 09:30:27 GMT*
-
-
-## Obama
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
-
-*Published on: Thu, 11 Jul 2024 10:05:57 GMT*
+*Published on: Fri, 12 Jul 2024 12:02:58 GMT*
 
 
-## Obama
+## Olivia Rodrigo
 
-## [ASICS’ Techy Sneaker Collab Is Beautifully Chaotic](https://www.highsnobiety.com/p/asics-p-andrade-gel-kayano-14/)
+## [It's BRAT Summer, Sure. But Softies Get (and Want to Look) Hot, Too.](https://www.highsnobiety.com/p/summer-songs-outfits/)
 
-ASICS’ Gel Kayano 14 model is an old-school running shoe and, when decked out in silver paneling with sporty mesh, it’s a fine example of how chunky, Y2K runni…
+It is frankly impossible to have missed the many, many, many ads, memes, and official events Charli xcx's new full-length, BRAT , has birthed. Be it vast, gene…
 
-*Published on: Thu, 11 Jul 2024 11:28:34 GMT*
+*Published on: Fri, 12 Jul 2024 14:16:25 GMT*
 
 
 ## Obama
@@ -4845,7 +4017,7 @@ And just like that, KITH's deliciously braided Birkenstocks are back.KITH's lead
 
 ## [Maika Monroe's ‘Longlegs’ Press Tour Is Scarily Stylish](https://www.highsnobiety.com/p/maika-monroe-style-outfits/)
 
-Lee Harper, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
+Lee Harker, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
 
 *Published on: Thu, 11 Jul 2024 15:31:37 GMT*
 
@@ -4859,31 +4031,22 @@ New Balance is one of the few skate shoe companies to challenge Vans' reign as d
 *Published on: Fri, 12 Jul 2024 09:42:39 GMT*
 
 
-## Nicki Minaj
+## Obama
 
-## [An "Altra"-Marathon: Is This Niche Trail Brand up Next?](https://www.highsnobiety.com/p/altra-sneakers-trend-2024/)
+## [How Is A$AP Rocky Best-Dressed Even During a Heatwave?](https://www.highsnobiety.com/p/asap-rocky-july-2024-nyc-outfit/)
 
-Salomon and HOKA might have to clear the trail because big Altra steppers are creeping up on the path to fashion's next beloved trail runner.First, let me clar…
+A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do celebs keep hitting big 'fits in the middle of a heatwave?Admittedly, safe bet t…
 
-*Published on: Thu, 11 Jul 2024 09:30:27 GMT*
-
-
-## Nicki Minaj
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
-
-*Published on: Thu, 11 Jul 2024 10:05:57 GMT*
+*Published on: Fri, 12 Jul 2024 12:02:58 GMT*
 
 
-## Nicki Minaj
+## Obama
 
-## [ASICS’ Techy Sneaker Collab Is Beautifully Chaotic](https://www.highsnobiety.com/p/asics-p-andrade-gel-kayano-14/)
+## [It's BRAT Summer, Sure. But Softies Get (and Want to Look) Hot, Too.](https://www.highsnobiety.com/p/summer-songs-outfits/)
 
-ASICS’ Gel Kayano 14 model is an old-school running shoe and, when decked out in silver paneling with sporty mesh, it’s a fine example of how chunky, Y2K runni…
+It is frankly impossible to have missed the many, many, many ads, memes, and official events Charli xcx's new full-length, BRAT , has birthed. Be it vast, gene…
 
-*Published on: Thu, 11 Jul 2024 11:28:34 GMT*
+*Published on: Fri, 12 Jul 2024 14:16:25 GMT*
 
 
 ## Nicki Minaj
@@ -4899,7 +4062,7 @@ And just like that, KITH's deliciously braided Birkenstocks are back.KITH's lead
 
 ## [Maika Monroe's ‘Longlegs’ Press Tour Is Scarily Stylish](https://www.highsnobiety.com/p/maika-monroe-style-outfits/)
 
-Lee Harper, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
+Lee Harker, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
 
 *Published on: Thu, 11 Jul 2024 15:31:37 GMT*
 
@@ -4913,31 +4076,22 @@ New Balance is one of the few skate shoe companies to challenge Vans' reign as d
 *Published on: Fri, 12 Jul 2024 09:42:39 GMT*
 
 
-## MrBeast
+## Nicki Minaj
 
-## [An "Altra"-Marathon: Is This Niche Trail Brand up Next?](https://www.highsnobiety.com/p/altra-sneakers-trend-2024/)
+## [How Is A$AP Rocky Best-Dressed Even During a Heatwave?](https://www.highsnobiety.com/p/asap-rocky-july-2024-nyc-outfit/)
 
-Salomon and HOKA might have to clear the trail because big Altra steppers are creeping up on the path to fashion's next beloved trail runner.First, let me clar…
+A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do celebs keep hitting big 'fits in the middle of a heatwave?Admittedly, safe bet t…
 
-*Published on: Thu, 11 Jul 2024 09:30:27 GMT*
-
-
-## MrBeast
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
-
-*Published on: Thu, 11 Jul 2024 10:05:57 GMT*
+*Published on: Fri, 12 Jul 2024 12:02:58 GMT*
 
 
-## MrBeast
+## Nicki Minaj
 
-## [ASICS’ Techy Sneaker Collab Is Beautifully Chaotic](https://www.highsnobiety.com/p/asics-p-andrade-gel-kayano-14/)
+## [It's BRAT Summer, Sure. But Softies Get (and Want to Look) Hot, Too.](https://www.highsnobiety.com/p/summer-songs-outfits/)
 
-ASICS’ Gel Kayano 14 model is an old-school running shoe and, when decked out in silver paneling with sporty mesh, it’s a fine example of how chunky, Y2K runni…
+It is frankly impossible to have missed the many, many, many ads, memes, and official events Charli xcx's new full-length, BRAT , has birthed. Be it vast, gene…
 
-*Published on: Thu, 11 Jul 2024 11:28:34 GMT*
+*Published on: Fri, 12 Jul 2024 14:16:25 GMT*
 
 
 ## MrBeast
@@ -4953,7 +4107,7 @@ And just like that, KITH's deliciously braided Birkenstocks are back.KITH's lead
 
 ## [Maika Monroe's ‘Longlegs’ Press Tour Is Scarily Stylish](https://www.highsnobiety.com/p/maika-monroe-style-outfits/)
 
-Lee Harper, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
+Lee Harker, Maika Monroe's character in new horror flick Longlegs , isn't particularly stylish. The FBI agent, assigned to investigate a Satanic serial killer,…
 
 *Published on: Thu, 11 Jul 2024 15:31:37 GMT*
 
@@ -4965,5 +4119,23 @@ Lee Harper, Maika Monroe's character in new horror flick Longlegs , isn't partic
 New Balance is one of the few skate shoe companies to challenge Vans' reign as deck-ready sneaker king with impressively slick sneakers as stylish as its more …
 
 *Published on: Fri, 12 Jul 2024 09:42:39 GMT*
+
+
+## MrBeast
+
+## [How Is A$AP Rocky Best-Dressed Even During a Heatwave?](https://www.highsnobiety.com/p/asap-rocky-july-2024-nyc-outfit/)
+
+A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do celebs keep hitting big 'fits in the middle of a heatwave?Admittedly, safe bet t…
+
+*Published on: Fri, 12 Jul 2024 12:02:58 GMT*
+
+
+## MrBeast
+
+## [It's BRAT Summer, Sure. But Softies Get (and Want to Look) Hot, Too.](https://www.highsnobiety.com/p/summer-songs-outfits/)
+
+It is frankly impossible to have missed the many, many, many ads, memes, and official events Charli xcx's new full-length, BRAT , has birthed. Be it vast, gene…
+
+*Published on: Fri, 12 Jul 2024 14:16:25 GMT*
 
 
