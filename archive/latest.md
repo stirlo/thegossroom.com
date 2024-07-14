@@ -1,15 +1,6 @@
 # Latest Stories
 ## Tim Cook
 
-## [Merrell's Killer Clog Makes for a Pretty Amazing Boot](https://www.highsnobiety.com/p/merrell-hydro-moc-boot/)
-
-Merrell's Hydro Moc was the singular shoe of the moment a few years back. Now that the squishy rubber clog is a no-brainer mainstay, Merrell is mutating it int…
-
-*Published on: Fri, 12 Jul 2024 22:45:03 GMT*
-
-
-## Tim Cook
-
 ## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
 
 adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
@@ -28,15 +19,6 @@ HOKA's Anacapa 2 Freedom sneaker epitomizes a contrast at the shoe company's cor
 
 ## Taylor Swift
 
-## [Merrell's Killer Clog Makes for a Pretty Amazing Boot](https://www.highsnobiety.com/p/merrell-hydro-moc-boot/)
-
-Merrell's Hydro Moc was the singular shoe of the moment a few years back. Now that the squishy rubber clog is a no-brainer mainstay, Merrell is mutating it int…
-
-*Published on: Fri, 12 Jul 2024 22:45:03 GMT*
-
-
-## Taylor Swift
-
 ## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
 
 adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
@@ -55,15 +37,6 @@ HOKA's Anacapa 2 Freedom sneaker epitomizes a contrast at the shoe company's cor
 
 ## Tom Brady
 
-## [Merrell's Killer Clog Makes for a Pretty Amazing Boot](https://www.highsnobiety.com/p/merrell-hydro-moc-boot/)
-
-Merrell's Hydro Moc was the singular shoe of the moment a few years back. Now that the squishy rubber clog is a no-brainer mainstay, Merrell is mutating it int…
-
-*Published on: Fri, 12 Jul 2024 22:45:03 GMT*
-
-
-## Tom Brady
-
 ## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
 
 adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
@@ -82,15 +55,6 @@ HOKA's Anacapa 2 Freedom sneaker epitomizes a contrast at the shoe company's cor
 
 ## Tina Fey
 
-## [Merrell's Killer Clog Makes for a Pretty Amazing Boot](https://www.highsnobiety.com/p/merrell-hydro-moc-boot/)
-
-Merrell's Hydro Moc was the singular shoe of the moment a few years back. Now that the squishy rubber clog is a no-brainer mainstay, Merrell is mutating it int…
-
-*Published on: Fri, 12 Jul 2024 22:45:03 GMT*
-
-
-## Tina Fey
-
 ## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
 
 adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
@@ -109,15 +73,6 @@ HOKA's Anacapa 2 Freedom sneaker epitomizes a contrast at the shoe company's cor
 
 ## Steven Yuen
 
-## [Merrell's Killer Clog Makes for a Pretty Amazing Boot](https://www.highsnobiety.com/p/merrell-hydro-moc-boot/)
-
-Merrell's Hydro Moc was the singular shoe of the moment a few years back. Now that the squishy rubber clog is a no-brainer mainstay, Merrell is mutating it int…
-
-*Published on: Fri, 12 Jul 2024 22:45:03 GMT*
-
-
-## Steven Yuen
-
 ## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
 
 adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
@@ -136,15 +91,6 @@ HOKA's Anacapa 2 Freedom sneaker epitomizes a contrast at the shoe company's cor
 
 ## Sommer Ray
 
-## [Merrell's Killer Clog Makes for a Pretty Amazing Boot](https://www.highsnobiety.com/p/merrell-hydro-moc-boot/)
-
-Merrell's Hydro Moc was the singular shoe of the moment a few years back. Now that the squishy rubber clog is a no-brainer mainstay, Merrell is mutating it int…
-
-*Published on: Fri, 12 Jul 2024 22:45:03 GMT*
-
-
-## Sommer Ray
-
 ## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
 
 adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
@@ -163,15 +109,6 @@ HOKA's Anacapa 2 Freedom sneaker epitomizes a contrast at the shoe company's cor
 
 ## Sza
 
-## [Merrell's Killer Clog Makes for a Pretty Amazing Boot](https://www.highsnobiety.com/p/merrell-hydro-moc-boot/)
-
-Merrell's Hydro Moc was the singular shoe of the moment a few years back. Now that the squishy rubber clog is a no-brainer mainstay, Merrell is mutating it int…
-
-*Published on: Fri, 12 Jul 2024 22:45:03 GMT*
-
-
-## Sza
-
 ## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
 
 adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
@@ -190,15 +127,6 @@ HOKA's Anacapa 2 Freedom sneaker epitomizes a contrast at the shoe company's cor
 
 ## Sydney Sweeney
 
-## [Merrell's Killer Clog Makes for a Pretty Amazing Boot](https://www.highsnobiety.com/p/merrell-hydro-moc-boot/)
-
-Merrell's Hydro Moc was the singular shoe of the moment a few years back. Now that the squishy rubber clog is a no-brainer mainstay, Merrell is mutating it int…
-
-*Published on: Fri, 12 Jul 2024 22:45:03 GMT*
-
-
-## Sydney Sweeney
-
 ## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
 
 adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
@@ -217,15 +145,6 @@ HOKA's Anacapa 2 Freedom sneaker epitomizes a contrast at the shoe company's cor
 
 ## Walton Goggins
 
-## [Merrell's Killer Clog Makes for a Pretty Amazing Boot](https://www.highsnobiety.com/p/merrell-hydro-moc-boot/)
-
-Merrell's Hydro Moc was the singular shoe of the moment a few years back. Now that the squishy rubber clog is a no-brainer mainstay, Merrell is mutating it int…
-
-*Published on: Fri, 12 Jul 2024 22:45:03 GMT*
-
-
-## Walton Goggins
-
 ## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
 
 adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
@@ -244,15 +163,6 @@ HOKA's Anacapa 2 Freedom sneaker epitomizes a contrast at the shoe company's cor
 
 ## Tom Holland
 
-## [Merrell's Killer Clog Makes for a Pretty Amazing Boot](https://www.highsnobiety.com/p/merrell-hydro-moc-boot/)
-
-Merrell's Hydro Moc was the singular shoe of the moment a few years back. Now that the squishy rubber clog is a no-brainer mainstay, Merrell is mutating it int…
-
-*Published on: Fri, 12 Jul 2024 22:45:03 GMT*
-
-
-## Tom Holland
-
 ## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
 
 adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
@@ -271,15 +181,6 @@ HOKA's Anacapa 2 Freedom sneaker epitomizes a contrast at the shoe company's cor
 
 ## Gucci Mane
 
-## [Merrell's Killer Clog Makes for a Pretty Amazing Boot](https://www.highsnobiety.com/p/merrell-hydro-moc-boot/)
-
-Merrell's Hydro Moc was the singular shoe of the moment a few years back. Now that the squishy rubber clog is a no-brainer mainstay, Merrell is mutating it int…
-
-*Published on: Fri, 12 Jul 2024 22:45:03 GMT*
-
-
-## Gucci Mane
-
 ## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
 
 adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
@@ -298,15 +199,6 @@ HOKA's Anacapa 2 Freedom sneaker epitomizes a contrast at the shoe company's cor
 
 ## Harry Styles
 
-## [Merrell's Killer Clog Makes for a Pretty Amazing Boot](https://www.highsnobiety.com/p/merrell-hydro-moc-boot/)
-
-Merrell's Hydro Moc was the singular shoe of the moment a few years back. Now that the squishy rubber clog is a no-brainer mainstay, Merrell is mutating it int…
-
-*Published on: Fri, 12 Jul 2024 22:45:03 GMT*
-
-
-## Harry Styles
-
 ## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
 
 adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
@@ -325,15 +217,6 @@ HOKA's Anacapa 2 Freedom sneaker epitomizes a contrast at the shoe company's cor
 
 ## Jake Paul
 
-## [Merrell's Killer Clog Makes for a Pretty Amazing Boot](https://www.highsnobiety.com/p/merrell-hydro-moc-boot/)
-
-Merrell's Hydro Moc was the singular shoe of the moment a few years back. Now that the squishy rubber clog is a no-brainer mainstay, Merrell is mutating it int…
-
-*Published on: Fri, 12 Jul 2024 22:45:03 GMT*
-
-
-## Jake Paul
-
 ## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
 
 adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
@@ -352,15 +235,6 @@ HOKA's Anacapa 2 Freedom sneaker epitomizes a contrast at the shoe company's cor
 
 ## Jameela Jamil
 
-## [Merrell's Killer Clog Makes for a Pretty Amazing Boot](https://www.highsnobiety.com/p/merrell-hydro-moc-boot/)
-
-Merrell's Hydro Moc was the singular shoe of the moment a few years back. Now that the squishy rubber clog is a no-brainer mainstay, Merrell is mutating it int…
-
-*Published on: Fri, 12 Jul 2024 22:45:03 GMT*
-
-
-## Jameela Jamil
-
 ## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
 
 adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
@@ -379,15 +253,6 @@ HOKA's Anacapa 2 Freedom sneaker epitomizes a contrast at the shoe company's cor
 
 ## Elon Musk
 
-## [Merrell's Killer Clog Makes for a Pretty Amazing Boot](https://www.highsnobiety.com/p/merrell-hydro-moc-boot/)
-
-Merrell's Hydro Moc was the singular shoe of the moment a few years back. Now that the squishy rubber clog is a no-brainer mainstay, Merrell is mutating it int…
-
-*Published on: Fri, 12 Jul 2024 22:45:03 GMT*
-
-
-## Elon Musk
-
 ## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
 
 adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
@@ -406,15 +271,6 @@ HOKA's Anacapa 2 Freedom sneaker epitomizes a contrast at the shoe company's cor
 
 ## Gabrielle Union
 
-## [Merrell's Killer Clog Makes for a Pretty Amazing Boot](https://www.highsnobiety.com/p/merrell-hydro-moc-boot/)
-
-Merrell's Hydro Moc was the singular shoe of the moment a few years back. Now that the squishy rubber clog is a no-brainer mainstay, Merrell is mutating it int…
-
-*Published on: Fri, 12 Jul 2024 22:45:03 GMT*
-
-
-## Gabrielle Union
-
 ## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
 
 adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
@@ -433,15 +289,6 @@ HOKA's Anacapa 2 Freedom sneaker epitomizes a contrast at the shoe company's cor
 
 ## Giancarlo Esposito
 
-## [Merrell's Killer Clog Makes for a Pretty Amazing Boot](https://www.highsnobiety.com/p/merrell-hydro-moc-boot/)
-
-Merrell's Hydro Moc was the singular shoe of the moment a few years back. Now that the squishy rubber clog is a no-brainer mainstay, Merrell is mutating it int…
-
-*Published on: Fri, 12 Jul 2024 22:45:03 GMT*
-
-
-## Giancarlo Esposito
-
 ## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
 
 adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
@@ -460,15 +307,6 @@ HOKA's Anacapa 2 Freedom sneaker epitomizes a contrast at the shoe company's cor
 
 ## Gillian Jacobs
 
-## [Merrell's Killer Clog Makes for a Pretty Amazing Boot](https://www.highsnobiety.com/p/merrell-hydro-moc-boot/)
-
-Merrell's Hydro Moc was the singular shoe of the moment a few years back. Now that the squishy rubber clog is a no-brainer mainstay, Merrell is mutating it int…
-
-*Published on: Fri, 12 Jul 2024 22:45:03 GMT*
-
-
-## Gillian Jacobs
-
 ## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
 
 adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
@@ -487,15 +325,6 @@ HOKA's Anacapa 2 Freedom sneaker epitomizes a contrast at the shoe company's cor
 
 ## Jason Mantzoukas
 
-## [Merrell's Killer Clog Makes for a Pretty Amazing Boot](https://www.highsnobiety.com/p/merrell-hydro-moc-boot/)
-
-Merrell's Hydro Moc was the singular shoe of the moment a few years back. Now that the squishy rubber clog is a no-brainer mainstay, Merrell is mutating it int…
-
-*Published on: Fri, 12 Jul 2024 22:45:03 GMT*
-
-
-## Jason Mantzoukas
-
 ## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
 
 adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
@@ -514,15 +343,6 @@ HOKA's Anacapa 2 Freedom sneaker epitomizes a contrast at the shoe company's cor
 
 ## JB Smoove
 
-## [Merrell's Killer Clog Makes for a Pretty Amazing Boot](https://www.highsnobiety.com/p/merrell-hydro-moc-boot/)
-
-Merrell's Hydro Moc was the singular shoe of the moment a few years back. Now that the squishy rubber clog is a no-brainer mainstay, Merrell is mutating it int…
-
-*Published on: Fri, 12 Jul 2024 22:45:03 GMT*
-
-
-## JB Smoove
-
 ## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
 
 adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
@@ -541,15 +361,6 @@ HOKA's Anacapa 2 Freedom sneaker epitomizes a contrast at the shoe company's cor
 
 ## Madison Pettis
 
-## [Merrell's Killer Clog Makes for a Pretty Amazing Boot](https://www.highsnobiety.com/p/merrell-hydro-moc-boot/)
-
-Merrell's Hydro Moc was the singular shoe of the moment a few years back. Now that the squishy rubber clog is a no-brainer mainstay, Merrell is mutating it int…
-
-*Published on: Fri, 12 Jul 2024 22:45:03 GMT*
-
-
-## Madison Pettis
-
 ## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
 
 adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
@@ -568,15 +379,6 @@ HOKA's Anacapa 2 Freedom sneaker epitomizes a contrast at the shoe company's cor
 
 ## Austin Butler
 
-## [Merrell's Killer Clog Makes for a Pretty Amazing Boot](https://www.highsnobiety.com/p/merrell-hydro-moc-boot/)
-
-Merrell's Hydro Moc was the singular shoe of the moment a few years back. Now that the squishy rubber clog is a no-brainer mainstay, Merrell is mutating it int…
-
-*Published on: Fri, 12 Jul 2024 22:45:03 GMT*
-
-
-## Austin Butler
-
 ## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
 
 adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
@@ -595,15 +397,6 @@ HOKA's Anacapa 2 Freedom sneaker epitomizes a contrast at the shoe company's cor
 
 ## Mark Zuckerberg
 
-## [Merrell's Killer Clog Makes for a Pretty Amazing Boot](https://www.highsnobiety.com/p/merrell-hydro-moc-boot/)
-
-Merrell's Hydro Moc was the singular shoe of the moment a few years back. Now that the squishy rubber clog is a no-brainer mainstay, Merrell is mutating it int…
-
-*Published on: Fri, 12 Jul 2024 22:45:03 GMT*
-
-
-## Mark Zuckerberg
-
 ## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
 
 adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
@@ -622,15 +415,6 @@ HOKA's Anacapa 2 Freedom sneaker epitomizes a contrast at the shoe company's cor
 
 ## Ariana Grande
 
-## [Merrell's Killer Clog Makes for a Pretty Amazing Boot](https://www.highsnobiety.com/p/merrell-hydro-moc-boot/)
-
-Merrell's Hydro Moc was the singular shoe of the moment a few years back. Now that the squishy rubber clog is a no-brainer mainstay, Merrell is mutating it int…
-
-*Published on: Fri, 12 Jul 2024 22:45:03 GMT*
-
-
-## Ariana Grande
-
 ## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
 
 adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
@@ -649,15 +433,6 @@ HOKA's Anacapa 2 Freedom sneaker epitomizes a contrast at the shoe company's cor
 
 ## Livvy Dunne
 
-## [Merrell's Killer Clog Makes for a Pretty Amazing Boot](https://www.highsnobiety.com/p/merrell-hydro-moc-boot/)
-
-Merrell's Hydro Moc was the singular shoe of the moment a few years back. Now that the squishy rubber clog is a no-brainer mainstay, Merrell is mutating it int…
-
-*Published on: Fri, 12 Jul 2024 22:45:03 GMT*
-
-
-## Livvy Dunne
-
 ## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
 
 adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
@@ -676,15 +451,6 @@ HOKA's Anacapa 2 Freedom sneaker epitomizes a contrast at the shoe company's cor
 
 ## Ali Wong
 
-## [Merrell's Killer Clog Makes for a Pretty Amazing Boot](https://www.highsnobiety.com/p/merrell-hydro-moc-boot/)
-
-Merrell's Hydro Moc was the singular shoe of the moment a few years back. Now that the squishy rubber clog is a no-brainer mainstay, Merrell is mutating it int…
-
-*Published on: Fri, 12 Jul 2024 22:45:03 GMT*
-
-
-## Ali Wong
-
 ## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
 
 adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
@@ -703,15 +469,6 @@ HOKA's Anacapa 2 Freedom sneaker epitomizes a contrast at the shoe company's cor
 
 ## Lizzo
 
-## [Merrell's Killer Clog Makes for a Pretty Amazing Boot](https://www.highsnobiety.com/p/merrell-hydro-moc-boot/)
-
-Merrell's Hydro Moc was the singular shoe of the moment a few years back. Now that the squishy rubber clog is a no-brainer mainstay, Merrell is mutating it int…
-
-*Published on: Fri, 12 Jul 2024 22:45:03 GMT*
-
-
-## Lizzo
-
 ## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
 
 adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
@@ -730,15 +487,6 @@ HOKA's Anacapa 2 Freedom sneaker epitomizes a contrast at the shoe company's cor
 
 ## Alison Brie
 
-## [Merrell's Killer Clog Makes for a Pretty Amazing Boot](https://www.highsnobiety.com/p/merrell-hydro-moc-boot/)
-
-Merrell's Hydro Moc was the singular shoe of the moment a few years back. Now that the squishy rubber clog is a no-brainer mainstay, Merrell is mutating it int…
-
-*Published on: Fri, 12 Jul 2024 22:45:03 GMT*
-
-
-## Alison Brie
-
 ## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
 
 adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
@@ -757,15 +505,6 @@ HOKA's Anacapa 2 Freedom sneaker epitomizes a contrast at the shoe company's cor
 
 ## Lil Wayne
 
-## [Merrell's Killer Clog Makes for a Pretty Amazing Boot](https://www.highsnobiety.com/p/merrell-hydro-moc-boot/)
-
-Merrell's Hydro Moc was the singular shoe of the moment a few years back. Now that the squishy rubber clog is a no-brainer mainstay, Merrell is mutating it int…
-
-*Published on: Fri, 12 Jul 2024 22:45:03 GMT*
-
-
-## Lil Wayne
-
 ## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
 
 adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
@@ -784,15 +523,6 @@ HOKA's Anacapa 2 Freedom sneaker epitomizes a contrast at the shoe company's cor
 
 ## Adele
 
-## [Merrell's Killer Clog Makes for a Pretty Amazing Boot](https://www.highsnobiety.com/p/merrell-hydro-moc-boot/)
-
-Merrell's Hydro Moc was the singular shoe of the moment a few years back. Now that the squishy rubber clog is a no-brainer mainstay, Merrell is mutating it int…
-
-*Published on: Fri, 12 Jul 2024 22:45:03 GMT*
-
-
-## Adele
-
 ## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
 
 adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
@@ -811,15 +541,6 @@ HOKA's Anacapa 2 Freedom sneaker epitomizes a contrast at the shoe company's cor
 
 ## Lindsay Lohan
 
-## [Merrell's Killer Clog Makes for a Pretty Amazing Boot](https://www.highsnobiety.com/p/merrell-hydro-moc-boot/)
-
-Merrell's Hydro Moc was the singular shoe of the moment a few years back. Now that the squishy rubber clog is a no-brainer mainstay, Merrell is mutating it int…
-
-*Published on: Fri, 12 Jul 2024 22:45:03 GMT*
-
-
-## Lindsay Lohan
-
 ## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
 
 adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
@@ -838,15 +559,6 @@ HOKA's Anacapa 2 Freedom sneaker epitomizes a contrast at the shoe company's cor
 
 ## Addison Rae
 
-## [Merrell's Killer Clog Makes for a Pretty Amazing Boot](https://www.highsnobiety.com/p/merrell-hydro-moc-boot/)
-
-Merrell's Hydro Moc was the singular shoe of the moment a few years back. Now that the squishy rubber clog is a no-brainer mainstay, Merrell is mutating it int…
-
-*Published on: Fri, 12 Jul 2024 22:45:03 GMT*
-
-
-## Addison Rae
-
 ## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
 
 adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
@@ -865,15 +577,6 @@ HOKA's Anacapa 2 Freedom sneaker epitomizes a contrast at the shoe company's cor
 
 ## Latto
 
-## [Merrell's Killer Clog Makes for a Pretty Amazing Boot](https://www.highsnobiety.com/p/merrell-hydro-moc-boot/)
-
-Merrell's Hydro Moc was the singular shoe of the moment a few years back. Now that the squishy rubber clog is a no-brainer mainstay, Merrell is mutating it int…
-
-*Published on: Fri, 12 Jul 2024 22:45:03 GMT*
-
-
-## Latto
-
 ## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
 
 adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
@@ -892,15 +595,6 @@ HOKA's Anacapa 2 Freedom sneaker epitomizes a contrast at the shoe company's cor
 
 ## Aaron Paul
 
-## [Merrell's Killer Clog Makes for a Pretty Amazing Boot](https://www.highsnobiety.com/p/merrell-hydro-moc-boot/)
-
-Merrell's Hydro Moc was the singular shoe of the moment a few years back. Now that the squishy rubber clog is a no-brainer mainstay, Merrell is mutating it int…
-
-*Published on: Fri, 12 Jul 2024 22:45:03 GMT*
-
-
-## Aaron Paul
-
 ## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
 
 adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
@@ -919,15 +613,6 @@ HOKA's Anacapa 2 Freedom sneaker epitomizes a contrast at the shoe company's cor
 
 ## LeBron James
 
-## [Merrell's Killer Clog Makes for a Pretty Amazing Boot](https://www.highsnobiety.com/p/merrell-hydro-moc-boot/)
-
-Merrell's Hydro Moc was the singular shoe of the moment a few years back. Now that the squishy rubber clog is a no-brainer mainstay, Merrell is mutating it int…
-
-*Published on: Fri, 12 Jul 2024 22:45:03 GMT*
-
-
-## LeBron James
-
 ## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
 
 adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
@@ -946,15 +631,6 @@ HOKA's Anacapa 2 Freedom sneaker epitomizes a contrast at the shoe company's cor
 
 ## 50 Cent
 
-## [Merrell's Killer Clog Makes for a Pretty Amazing Boot](https://www.highsnobiety.com/p/merrell-hydro-moc-boot/)
-
-Merrell's Hydro Moc was the singular shoe of the moment a few years back. Now that the squishy rubber clog is a no-brainer mainstay, Merrell is mutating it int…
-
-*Published on: Fri, 12 Jul 2024 22:45:03 GMT*
-
-
-## 50 Cent
-
 ## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
 
 adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
@@ -973,15 +649,6 @@ HOKA's Anacapa 2 Freedom sneaker epitomizes a contrast at the shoe company's cor
 
 ## Kesha
 
-## [Merrell's Killer Clog Makes for a Pretty Amazing Boot](https://www.highsnobiety.com/p/merrell-hydro-moc-boot/)
-
-Merrell's Hydro Moc was the singular shoe of the moment a few years back. Now that the squishy rubber clog is a no-brainer mainstay, Merrell is mutating it int…
-
-*Published on: Fri, 12 Jul 2024 22:45:03 GMT*
-
-
-## Kesha
-
 ## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
 
 adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
@@ -1000,15 +667,6 @@ HOKA's Anacapa 2 Freedom sneaker epitomizes a contrast at the shoe company's cor
 
 ## 21 Savage
 
-## [Merrell's Killer Clog Makes for a Pretty Amazing Boot](https://www.highsnobiety.com/p/merrell-hydro-moc-boot/)
-
-Merrell's Hydro Moc was the singular shoe of the moment a few years back. Now that the squishy rubber clog is a no-brainer mainstay, Merrell is mutating it int…
-
-*Published on: Fri, 12 Jul 2024 22:45:03 GMT*
-
-
-## 21 Savage
-
 ## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
 
 adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
@@ -1027,15 +685,6 @@ HOKA's Anacapa 2 Freedom sneaker epitomizes a contrast at the shoe company's cor
 
 ## Larry David
 
-## [Merrell's Killer Clog Makes for a Pretty Amazing Boot](https://www.highsnobiety.com/p/merrell-hydro-moc-boot/)
-
-Merrell's Hydro Moc was the singular shoe of the moment a few years back. Now that the squishy rubber clog is a no-brainer mainstay, Merrell is mutating it int…
-
-*Published on: Fri, 12 Jul 2024 22:45:03 GMT*
-
-
-## Larry David
-
 ## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
 
 adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
@@ -1054,15 +703,6 @@ HOKA's Anacapa 2 Freedom sneaker epitomizes a contrast at the shoe company's cor
 
 ## Seth Rogan
 
-## [Merrell's Killer Clog Makes for a Pretty Amazing Boot](https://www.highsnobiety.com/p/merrell-hydro-moc-boot/)
-
-Merrell's Hydro Moc was the singular shoe of the moment a few years back. Now that the squishy rubber clog is a no-brainer mainstay, Merrell is mutating it int…
-
-*Published on: Fri, 12 Jul 2024 22:45:03 GMT*
-
-
-## Seth Rogan
-
 ## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
 
 adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
@@ -1081,15 +721,6 @@ HOKA's Anacapa 2 Freedom sneaker epitomizes a contrast at the shoe company's cor
 
 ## Simone Biles
 
-## [Merrell's Killer Clog Makes for a Pretty Amazing Boot](https://www.highsnobiety.com/p/merrell-hydro-moc-boot/)
-
-Merrell's Hydro Moc was the singular shoe of the moment a few years back. Now that the squishy rubber clog is a no-brainer mainstay, Merrell is mutating it int…
-
-*Published on: Fri, 12 Jul 2024 22:45:03 GMT*
-
-
-## Simone Biles
-
 ## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
 
 adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
@@ -1108,15 +739,6 @@ HOKA's Anacapa 2 Freedom sneaker epitomizes a contrast at the shoe company's cor
 
 ## Pete Davidson
 
-## [Merrell's Killer Clog Makes for a Pretty Amazing Boot](https://www.highsnobiety.com/p/merrell-hydro-moc-boot/)
-
-Merrell's Hydro Moc was the singular shoe of the moment a few years back. Now that the squishy rubber clog is a no-brainer mainstay, Merrell is mutating it int…
-
-*Published on: Fri, 12 Jul 2024 22:45:03 GMT*
-
-
-## Pete Davidson
-
 ## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
 
 adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
@@ -1135,15 +757,6 @@ HOKA's Anacapa 2 Freedom sneaker epitomizes a contrast at the shoe company's cor
 
 ## Prince Harry
 
-## [Merrell's Killer Clog Makes for a Pretty Amazing Boot](https://www.highsnobiety.com/p/merrell-hydro-moc-boot/)
-
-Merrell's Hydro Moc was the singular shoe of the moment a few years back. Now that the squishy rubber clog is a no-brainer mainstay, Merrell is mutating it int…
-
-*Published on: Fri, 12 Jul 2024 22:45:03 GMT*
-
-
-## Prince Harry
-
 ## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
 
 adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
@@ -1162,15 +775,6 @@ HOKA's Anacapa 2 Freedom sneaker epitomizes a contrast at the shoe company's cor
 
 ## Princess of Wales
 
-## [Merrell's Killer Clog Makes for a Pretty Amazing Boot](https://www.highsnobiety.com/p/merrell-hydro-moc-boot/)
-
-Merrell's Hydro Moc was the singular shoe of the moment a few years back. Now that the squishy rubber clog is a no-brainer mainstay, Merrell is mutating it int…
-
-*Published on: Fri, 12 Jul 2024 22:45:03 GMT*
-
-
-## Princess of Wales
-
 ## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
 
 adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
@@ -1189,15 +793,6 @@ HOKA's Anacapa 2 Freedom sneaker epitomizes a contrast at the shoe company's cor
 
 ## Rachel McAdams
 
-## [Merrell's Killer Clog Makes for a Pretty Amazing Boot](https://www.highsnobiety.com/p/merrell-hydro-moc-boot/)
-
-Merrell's Hydro Moc was the singular shoe of the moment a few years back. Now that the squishy rubber clog is a no-brainer mainstay, Merrell is mutating it int…
-
-*Published on: Fri, 12 Jul 2024 22:45:03 GMT*
-
-
-## Rachel McAdams
-
 ## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
 
 adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
@@ -1216,15 +811,6 @@ HOKA's Anacapa 2 Freedom sneaker epitomizes a contrast at the shoe company's cor
 
 ## Reneé Rapp
 
-## [Merrell's Killer Clog Makes for a Pretty Amazing Boot](https://www.highsnobiety.com/p/merrell-hydro-moc-boot/)
-
-Merrell's Hydro Moc was the singular shoe of the moment a few years back. Now that the squishy rubber clog is a no-brainer mainstay, Merrell is mutating it int…
-
-*Published on: Fri, 12 Jul 2024 22:45:03 GMT*
-
-
-## Reneé Rapp
-
 ## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
 
 adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
@@ -1243,15 +829,6 @@ HOKA's Anacapa 2 Freedom sneaker epitomizes a contrast at the shoe company's cor
 
 ## Rick Ross
 
-## [Merrell's Killer Clog Makes for a Pretty Amazing Boot](https://www.highsnobiety.com/p/merrell-hydro-moc-boot/)
-
-Merrell's Hydro Moc was the singular shoe of the moment a few years back. Now that the squishy rubber clog is a no-brainer mainstay, Merrell is mutating it int…
-
-*Published on: Fri, 12 Jul 2024 22:45:03 GMT*
-
-
-## Rick Ross
-
 ## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
 
 adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
@@ -1270,15 +847,6 @@ HOKA's Anacapa 2 Freedom sneaker epitomizes a contrast at the shoe company's cor
 
 ## Sam Ashgari
 
-## [Merrell's Killer Clog Makes for a Pretty Amazing Boot](https://www.highsnobiety.com/p/merrell-hydro-moc-boot/)
-
-Merrell's Hydro Moc was the singular shoe of the moment a few years back. Now that the squishy rubber clog is a no-brainer mainstay, Merrell is mutating it int…
-
-*Published on: Fri, 12 Jul 2024 22:45:03 GMT*
-
-
-## Sam Ashgari
-
 ## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
 
 adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
@@ -1297,15 +865,6 @@ HOKA's Anacapa 2 Freedom sneaker epitomizes a contrast at the shoe company's cor
 
 ## Sandra Oh
 
-## [Merrell's Killer Clog Makes for a Pretty Amazing Boot](https://www.highsnobiety.com/p/merrell-hydro-moc-boot/)
-
-Merrell's Hydro Moc was the singular shoe of the moment a few years back. Now that the squishy rubber clog is a no-brainer mainstay, Merrell is mutating it int…
-
-*Published on: Fri, 12 Jul 2024 22:45:03 GMT*
-
-
-## Sandra Oh
-
 ## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
 
 adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
@@ -1324,15 +883,6 @@ HOKA's Anacapa 2 Freedom sneaker epitomizes a contrast at the shoe company's cor
 
 ## Donald Trump
 
-## [Merrell's Killer Clog Makes for a Pretty Amazing Boot](https://www.highsnobiety.com/p/merrell-hydro-moc-boot/)
-
-Merrell's Hydro Moc was the singular shoe of the moment a few years back. Now that the squishy rubber clog is a no-brainer mainstay, Merrell is mutating it int…
-
-*Published on: Fri, 12 Jul 2024 22:45:03 GMT*
-
-
-## Donald Trump
-
 ## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
 
 adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
@@ -1351,15 +901,6 @@ HOKA's Anacapa 2 Freedom sneaker epitomizes a contrast at the shoe company's cor
 
 ## Diddy
 
-## [Merrell's Killer Clog Makes for a Pretty Amazing Boot](https://www.highsnobiety.com/p/merrell-hydro-moc-boot/)
-
-Merrell's Hydro Moc was the singular shoe of the moment a few years back. Now that the squishy rubber clog is a no-brainer mainstay, Merrell is mutating it int…
-
-*Published on: Fri, 12 Jul 2024 22:45:03 GMT*
-
-
-## Diddy
-
 ## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
 
 adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
@@ -1378,15 +919,6 @@ HOKA's Anacapa 2 Freedom sneaker epitomizes a contrast at the shoe company's cor
 
 ## City Girls
 
-## [Merrell's Killer Clog Makes for a Pretty Amazing Boot](https://www.highsnobiety.com/p/merrell-hydro-moc-boot/)
-
-Merrell's Hydro Moc was the singular shoe of the moment a few years back. Now that the squishy rubber clog is a no-brainer mainstay, Merrell is mutating it int…
-
-*Published on: Fri, 12 Jul 2024 22:45:03 GMT*
-
-
-## City Girls
-
 ## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
 
 adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
@@ -1405,15 +937,6 @@ HOKA's Anacapa 2 Freedom sneaker epitomizes a contrast at the shoe company's cor
 
 ## Chloe Bailey
 
-## [Merrell's Killer Clog Makes for a Pretty Amazing Boot](https://www.highsnobiety.com/p/merrell-hydro-moc-boot/)
-
-Merrell's Hydro Moc was the singular shoe of the moment a few years back. Now that the squishy rubber clog is a no-brainer mainstay, Merrell is mutating it int…
-
-*Published on: Fri, 12 Jul 2024 22:45:03 GMT*
-
-
-## Chloe Bailey
-
 ## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
 
 adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
@@ -1432,15 +955,6 @@ HOKA's Anacapa 2 Freedom sneaker epitomizes a contrast at the shoe company's cor
 
 ## Charli D Amelio
 
-## [Merrell's Killer Clog Makes for a Pretty Amazing Boot](https://www.highsnobiety.com/p/merrell-hydro-moc-boot/)
-
-Merrell's Hydro Moc was the singular shoe of the moment a few years back. Now that the squishy rubber clog is a no-brainer mainstay, Merrell is mutating it int…
-
-*Published on: Fri, 12 Jul 2024 22:45:03 GMT*
-
-
-## Charli D Amelio
-
 ## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
 
 adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
@@ -1459,15 +973,6 @@ HOKA's Anacapa 2 Freedom sneaker epitomizes a contrast at the shoe company's cor
 
 ## Cardi B
 
-## [Merrell's Killer Clog Makes for a Pretty Amazing Boot](https://www.highsnobiety.com/p/merrell-hydro-moc-boot/)
-
-Merrell's Hydro Moc was the singular shoe of the moment a few years back. Now that the squishy rubber clog is a no-brainer mainstay, Merrell is mutating it int…
-
-*Published on: Fri, 12 Jul 2024 22:45:03 GMT*
-
-
-## Cardi B
-
 ## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
 
 adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
@@ -1486,15 +991,6 @@ HOKA's Anacapa 2 Freedom sneaker epitomizes a contrast at the shoe company's cor
 
 ## Bryan Cranston
 
-## [Merrell's Killer Clog Makes for a Pretty Amazing Boot](https://www.highsnobiety.com/p/merrell-hydro-moc-boot/)
-
-Merrell's Hydro Moc was the singular shoe of the moment a few years back. Now that the squishy rubber clog is a no-brainer mainstay, Merrell is mutating it int…
-
-*Published on: Fri, 12 Jul 2024 22:45:03 GMT*
-
-
-## Bryan Cranston
-
 ## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
 
 adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
@@ -1513,15 +1009,6 @@ HOKA's Anacapa 2 Freedom sneaker epitomizes a contrast at the shoe company's cor
 
 ## Brielle Biermann
 
-## [Merrell's Killer Clog Makes for a Pretty Amazing Boot](https://www.highsnobiety.com/p/merrell-hydro-moc-boot/)
-
-Merrell's Hydro Moc was the singular shoe of the moment a few years back. Now that the squishy rubber clog is a no-brainer mainstay, Merrell is mutating it int…
-
-*Published on: Fri, 12 Jul 2024 22:45:03 GMT*
-
-
-## Brielle Biermann
-
 ## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
 
 adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
@@ -1540,15 +1027,6 @@ HOKA's Anacapa 2 Freedom sneaker epitomizes a contrast at the shoe company's cor
 
 ## Dua Lipa
 
-## [Merrell's Killer Clog Makes for a Pretty Amazing Boot](https://www.highsnobiety.com/p/merrell-hydro-moc-boot/)
-
-Merrell's Hydro Moc was the singular shoe of the moment a few years back. Now that the squishy rubber clog is a no-brainer mainstay, Merrell is mutating it int…
-
-*Published on: Fri, 12 Jul 2024 22:45:03 GMT*
-
-
-## Dua Lipa
-
 ## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
 
 adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
@@ -1567,15 +1045,6 @@ HOKA's Anacapa 2 Freedom sneaker epitomizes a contrast at the shoe company's cor
 
 ## Drake
 
-## [Merrell's Killer Clog Makes for a Pretty Amazing Boot](https://www.highsnobiety.com/p/merrell-hydro-moc-boot/)
-
-Merrell's Hydro Moc was the singular shoe of the moment a few years back. Now that the squishy rubber clog is a no-brainer mainstay, Merrell is mutating it int…
-
-*Published on: Fri, 12 Jul 2024 22:45:03 GMT*
-
-
-## Drake
-
 ## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
 
 adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
@@ -1594,15 +1063,6 @@ HOKA's Anacapa 2 Freedom sneaker epitomizes a contrast at the shoe company's cor
 
 ## Jenner
 
-## [Merrell's Killer Clog Makes for a Pretty Amazing Boot](https://www.highsnobiety.com/p/merrell-hydro-moc-boot/)
-
-Merrell's Hydro Moc was the singular shoe of the moment a few years back. Now that the squishy rubber clog is a no-brainer mainstay, Merrell is mutating it int…
-
-*Published on: Fri, 12 Jul 2024 22:45:03 GMT*
-
-
-## Jenner
-
 ## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
 
 adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
@@ -1621,15 +1081,6 @@ HOKA's Anacapa 2 Freedom sneaker epitomizes a contrast at the shoe company's cor
 
 ## J. Cole
 
-## [Merrell's Killer Clog Makes for a Pretty Amazing Boot](https://www.highsnobiety.com/p/merrell-hydro-moc-boot/)
-
-Merrell's Hydro Moc was the singular shoe of the moment a few years back. Now that the squishy rubber clog is a no-brainer mainstay, Merrell is mutating it int…
-
-*Published on: Fri, 12 Jul 2024 22:45:03 GMT*
-
-
-## J. Cole
-
 ## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
 
 adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
@@ -1648,15 +1099,6 @@ HOKA's Anacapa 2 Freedom sneaker epitomizes a contrast at the shoe company's cor
 
 ## Jerrod Carmichael
 
-## [Merrell's Killer Clog Makes for a Pretty Amazing Boot](https://www.highsnobiety.com/p/merrell-hydro-moc-boot/)
-
-Merrell's Hydro Moc was the singular shoe of the moment a few years back. Now that the squishy rubber clog is a no-brainer mainstay, Merrell is mutating it int…
-
-*Published on: Fri, 12 Jul 2024 22:45:03 GMT*
-
-
-## Jerrod Carmichael
-
 ## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
 
 adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
@@ -1675,15 +1117,6 @@ HOKA's Anacapa 2 Freedom sneaker epitomizes a contrast at the shoe company's cor
 
 ## Jennifer Lawrence
 
-## [Merrell's Killer Clog Makes for a Pretty Amazing Boot](https://www.highsnobiety.com/p/merrell-hydro-moc-boot/)
-
-Merrell's Hydro Moc was the singular shoe of the moment a few years back. Now that the squishy rubber clog is a no-brainer mainstay, Merrell is mutating it int…
-
-*Published on: Fri, 12 Jul 2024 22:45:03 GMT*
-
-
-## Jennifer Lawrence
-
 ## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
 
 adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
@@ -1702,15 +1135,6 @@ HOKA's Anacapa 2 Freedom sneaker epitomizes a contrast at the shoe company's cor
 
 ## Joe Biden
 
-## [Merrell's Killer Clog Makes for a Pretty Amazing Boot](https://www.highsnobiety.com/p/merrell-hydro-moc-boot/)
-
-Merrell's Hydro Moc was the singular shoe of the moment a few years back. Now that the squishy rubber clog is a no-brainer mainstay, Merrell is mutating it int…
-
-*Published on: Fri, 12 Jul 2024 22:45:03 GMT*
-
-
-## Joe Biden
-
 ## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
 
 adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
@@ -1729,15 +1153,6 @@ HOKA's Anacapa 2 Freedom sneaker epitomizes a contrast at the shoe company's cor
 
 ## J.K. Simmons
 
-## [Merrell's Killer Clog Makes for a Pretty Amazing Boot](https://www.highsnobiety.com/p/merrell-hydro-moc-boot/)
-
-Merrell's Hydro Moc was the singular shoe of the moment a few years back. Now that the squishy rubber clog is a no-brainer mainstay, Merrell is mutating it int…
-
-*Published on: Fri, 12 Jul 2024 22:45:03 GMT*
-
-
-## J.K. Simmons
-
 ## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
 
 adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
@@ -1756,15 +1171,6 @@ HOKA's Anacapa 2 Freedom sneaker epitomizes a contrast at the shoe company's cor
 
 ## Kamala Harris
 
-## [Merrell's Killer Clog Makes for a Pretty Amazing Boot](https://www.highsnobiety.com/p/merrell-hydro-moc-boot/)
-
-Merrell's Hydro Moc was the singular shoe of the moment a few years back. Now that the squishy rubber clog is a no-brainer mainstay, Merrell is mutating it int…
-
-*Published on: Fri, 12 Jul 2024 22:45:03 GMT*
-
-
-## Kamala Harris
-
 ## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
 
 adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
@@ -1783,15 +1189,6 @@ HOKA's Anacapa 2 Freedom sneaker epitomizes a contrast at the shoe company's cor
 
 ## John C Reilly
 
-## [Merrell's Killer Clog Makes for a Pretty Amazing Boot](https://www.highsnobiety.com/p/merrell-hydro-moc-boot/)
-
-Merrell's Hydro Moc was the singular shoe of the moment a few years back. Now that the squishy rubber clog is a no-brainer mainstay, Merrell is mutating it int…
-
-*Published on: Fri, 12 Jul 2024 22:45:03 GMT*
-
-
-## John C Reilly
-
 ## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
 
 adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
@@ -1810,15 +1207,6 @@ HOKA's Anacapa 2 Freedom sneaker epitomizes a contrast at the shoe company's cor
 
 ## Kardashian
 
-## [Merrell's Killer Clog Makes for a Pretty Amazing Boot](https://www.highsnobiety.com/p/merrell-hydro-moc-boot/)
-
-Merrell's Hydro Moc was the singular shoe of the moment a few years back. Now that the squishy rubber clog is a no-brainer mainstay, Merrell is mutating it int…
-
-*Published on: Fri, 12 Jul 2024 22:45:03 GMT*
-
-
-## Kardashian
-
 ## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
 
 adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
@@ -1837,15 +1225,6 @@ HOKA's Anacapa 2 Freedom sneaker epitomizes a contrast at the shoe company's cor
 
 ## Kanye
 
-## [Merrell's Killer Clog Makes for a Pretty Amazing Boot](https://www.highsnobiety.com/p/merrell-hydro-moc-boot/)
-
-Merrell's Hydro Moc was the singular shoe of the moment a few years back. Now that the squishy rubber clog is a no-brainer mainstay, Merrell is mutating it int…
-
-*Published on: Fri, 12 Jul 2024 22:45:03 GMT*
-
-
-## Kanye
-
 ## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
 
 adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
@@ -1864,15 +1243,6 @@ HOKA's Anacapa 2 Freedom sneaker epitomizes a contrast at the shoe company's cor
 
 ## Zendaya
 
-## [Merrell's Killer Clog Makes for a Pretty Amazing Boot](https://www.highsnobiety.com/p/merrell-hydro-moc-boot/)
-
-Merrell's Hydro Moc was the singular shoe of the moment a few years back. Now that the squishy rubber clog is a no-brainer mainstay, Merrell is mutating it int…
-
-*Published on: Fri, 12 Jul 2024 22:45:03 GMT*
-
-
-## Zendaya
-
 ## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
 
 adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
@@ -1891,15 +1261,6 @@ HOKA's Anacapa 2 Freedom sneaker epitomizes a contrast at the shoe company's cor
 
 ## Will Ferrell
 
-## [Merrell's Killer Clog Makes for a Pretty Amazing Boot](https://www.highsnobiety.com/p/merrell-hydro-moc-boot/)
-
-Merrell's Hydro Moc was the singular shoe of the moment a few years back. Now that the squishy rubber clog is a no-brainer mainstay, Merrell is mutating it int…
-
-*Published on: Fri, 12 Jul 2024 22:45:03 GMT*
-
-
-## Will Ferrell
-
 ## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
 
 adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
@@ -1918,15 +1279,6 @@ HOKA's Anacapa 2 Freedom sneaker epitomizes a contrast at the shoe company's cor
 
 ## Zazie Beetz
 
-## [Merrell's Killer Clog Makes for a Pretty Amazing Boot](https://www.highsnobiety.com/p/merrell-hydro-moc-boot/)
-
-Merrell's Hydro Moc was the singular shoe of the moment a few years back. Now that the squishy rubber clog is a no-brainer mainstay, Merrell is mutating it int…
-
-*Published on: Fri, 12 Jul 2024 22:45:03 GMT*
-
-
-## Zazie Beetz
-
 ## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
 
 adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
@@ -1945,15 +1297,6 @@ HOKA's Anacapa 2 Freedom sneaker epitomizes a contrast at the shoe company's cor
 
 ## Bob Odenkirk
 
-## [Merrell's Killer Clog Makes for a Pretty Amazing Boot](https://www.highsnobiety.com/p/merrell-hydro-moc-boot/)
-
-Merrell's Hydro Moc was the singular shoe of the moment a few years back. Now that the squishy rubber clog is a no-brainer mainstay, Merrell is mutating it int…
-
-*Published on: Fri, 12 Jul 2024 22:45:03 GMT*
-
-
-## Bob Odenkirk
-
 ## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
 
 adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
@@ -1972,15 +1315,6 @@ HOKA's Anacapa 2 Freedom sneaker epitomizes a contrast at the shoe company's cor
 
 ## Brad Pitt
 
-## [Merrell's Killer Clog Makes for a Pretty Amazing Boot](https://www.highsnobiety.com/p/merrell-hydro-moc-boot/)
-
-Merrell's Hydro Moc was the singular shoe of the moment a few years back. Now that the squishy rubber clog is a no-brainer mainstay, Merrell is mutating it int…
-
-*Published on: Fri, 12 Jul 2024 22:45:03 GMT*
-
-
-## Brad Pitt
-
 ## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
 
 adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
@@ -1999,15 +1333,6 @@ HOKA's Anacapa 2 Freedom sneaker epitomizes a contrast at the shoe company's cor
 
 ## Beyoncé
 
-## [Merrell's Killer Clog Makes for a Pretty Amazing Boot](https://www.highsnobiety.com/p/merrell-hydro-moc-boot/)
-
-Merrell's Hydro Moc was the singular shoe of the moment a few years back. Now that the squishy rubber clog is a no-brainer mainstay, Merrell is mutating it int…
-
-*Published on: Fri, 12 Jul 2024 22:45:03 GMT*
-
-
-## Beyoncé
-
 ## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
 
 adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
@@ -2026,15 +1351,6 @@ HOKA's Anacapa 2 Freedom sneaker epitomizes a contrast at the shoe company's cor
 
 ## Bia
 
-## [Merrell's Killer Clog Makes for a Pretty Amazing Boot](https://www.highsnobiety.com/p/merrell-hydro-moc-boot/)
-
-Merrell's Hydro Moc was the singular shoe of the moment a few years back. Now that the squishy rubber clog is a no-brainer mainstay, Merrell is mutating it int…
-
-*Published on: Fri, 12 Jul 2024 22:45:03 GMT*
-
-
-## Bia
-
 ## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
 
 adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
@@ -2053,15 +1369,6 @@ HOKA's Anacapa 2 Freedom sneaker epitomizes a contrast at the shoe company's cor
 
 ## Avantika
 
-## [Merrell's Killer Clog Makes for a Pretty Amazing Boot](https://www.highsnobiety.com/p/merrell-hydro-moc-boot/)
-
-Merrell's Hydro Moc was the singular shoe of the moment a few years back. Now that the squishy rubber clog is a no-brainer mainstay, Merrell is mutating it int…
-
-*Published on: Fri, 12 Jul 2024 22:45:03 GMT*
-
-
-## Avantika
-
 ## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
 
 adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
@@ -2080,15 +1387,6 @@ HOKA's Anacapa 2 Freedom sneaker epitomizes a contrast at the shoe company's cor
 
 ## Bernie Sanders
 
-## [Merrell's Killer Clog Makes for a Pretty Amazing Boot](https://www.highsnobiety.com/p/merrell-hydro-moc-boot/)
-
-Merrell's Hydro Moc was the singular shoe of the moment a few years back. Now that the squishy rubber clog is a no-brainer mainstay, Merrell is mutating it int…
-
-*Published on: Fri, 12 Jul 2024 22:45:03 GMT*
-
-
-## Bernie Sanders
-
 ## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
 
 adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
@@ -2107,15 +1405,6 @@ HOKA's Anacapa 2 Freedom sneaker epitomizes a contrast at the shoe company's cor
 
 ## Big Sean
 
-## [Merrell's Killer Clog Makes for a Pretty Amazing Boot](https://www.highsnobiety.com/p/merrell-hydro-moc-boot/)
-
-Merrell's Hydro Moc was the singular shoe of the moment a few years back. Now that the squishy rubber clog is a no-brainer mainstay, Merrell is mutating it int…
-
-*Published on: Fri, 12 Jul 2024 22:45:03 GMT*
-
-
-## Big Sean
-
 ## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
 
 adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
@@ -2134,15 +1423,6 @@ HOKA's Anacapa 2 Freedom sneaker epitomizes a contrast at the shoe company's cor
 
 ## BlockBoy JB
 
-## [Merrell's Killer Clog Makes for a Pretty Amazing Boot](https://www.highsnobiety.com/p/merrell-hydro-moc-boot/)
-
-Merrell's Hydro Moc was the singular shoe of the moment a few years back. Now that the squishy rubber clog is a no-brainer mainstay, Merrell is mutating it int…
-
-*Published on: Fri, 12 Jul 2024 22:45:03 GMT*
-
-
-## BlockBoy JB
-
 ## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
 
 adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
@@ -2161,15 +1441,6 @@ HOKA's Anacapa 2 Freedom sneaker epitomizes a contrast at the shoe company's cor
 
 ## Biden
 
-## [Merrell's Killer Clog Makes for a Pretty Amazing Boot](https://www.highsnobiety.com/p/merrell-hydro-moc-boot/)
-
-Merrell's Hydro Moc was the singular shoe of the moment a few years back. Now that the squishy rubber clog is a no-brainer mainstay, Merrell is mutating it int…
-
-*Published on: Fri, 12 Jul 2024 22:45:03 GMT*
-
-
-## Biden
-
 ## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
 
 adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
@@ -2188,15 +1459,6 @@ HOKA's Anacapa 2 Freedom sneaker epitomizes a contrast at the shoe company's cor
 
 ## Bieber
 
-## [Merrell's Killer Clog Makes for a Pretty Amazing Boot](https://www.highsnobiety.com/p/merrell-hydro-moc-boot/)
-
-Merrell's Hydro Moc was the singular shoe of the moment a few years back. Now that the squishy rubber clog is a no-brainer mainstay, Merrell is mutating it int…
-
-*Published on: Fri, 12 Jul 2024 22:45:03 GMT*
-
-
-## Bieber
-
 ## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
 
 adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
@@ -2215,15 +1477,6 @@ HOKA's Anacapa 2 Freedom sneaker epitomizes a contrast at the shoe company's cor
 
 ## Paulina Porizkov
 
-## [Merrell's Killer Clog Makes for a Pretty Amazing Boot](https://www.highsnobiety.com/p/merrell-hydro-moc-boot/)
-
-Merrell's Hydro Moc was the singular shoe of the moment a few years back. Now that the squishy rubber clog is a no-brainer mainstay, Merrell is mutating it int…
-
-*Published on: Fri, 12 Jul 2024 22:45:03 GMT*
-
-
-## Paulina Porizkov
-
 ## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
 
 adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
@@ -2242,15 +1495,6 @@ HOKA's Anacapa 2 Freedom sneaker epitomizes a contrast at the shoe company's cor
 
 ## Paris Hilton
 
-## [Merrell's Killer Clog Makes for a Pretty Amazing Boot](https://www.highsnobiety.com/p/merrell-hydro-moc-boot/)
-
-Merrell's Hydro Moc was the singular shoe of the moment a few years back. Now that the squishy rubber clog is a no-brainer mainstay, Merrell is mutating it int…
-
-*Published on: Fri, 12 Jul 2024 22:45:03 GMT*
-
-
-## Paris Hilton
-
 ## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
 
 adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
@@ -2269,15 +1513,6 @@ HOKA's Anacapa 2 Freedom sneaker epitomizes a contrast at the shoe company's cor
 
 ## Metro Boomin
 
-## [Merrell's Killer Clog Makes for a Pretty Amazing Boot](https://www.highsnobiety.com/p/merrell-hydro-moc-boot/)
-
-Merrell's Hydro Moc was the singular shoe of the moment a few years back. Now that the squishy rubber clog is a no-brainer mainstay, Merrell is mutating it int…
-
-*Published on: Fri, 12 Jul 2024 22:45:03 GMT*
-
-
-## Metro Boomin
-
 ## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
 
 adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
@@ -2296,15 +1531,6 @@ HOKA's Anacapa 2 Freedom sneaker epitomizes a contrast at the shoe company's cor
 
 ## Meghan Markle
 
-## [Merrell's Killer Clog Makes for a Pretty Amazing Boot](https://www.highsnobiety.com/p/merrell-hydro-moc-boot/)
-
-Merrell's Hydro Moc was the singular shoe of the moment a few years back. Now that the squishy rubber clog is a no-brainer mainstay, Merrell is mutating it int…
-
-*Published on: Fri, 12 Jul 2024 22:45:03 GMT*
-
-
-## Meghan Markle
-
 ## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
 
 adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
@@ -2323,15 +1549,6 @@ HOKA's Anacapa 2 Freedom sneaker epitomizes a contrast at the shoe company's cor
 
 ## Megan Thee Stallion
 
-## [Merrell's Killer Clog Makes for a Pretty Amazing Boot](https://www.highsnobiety.com/p/merrell-hydro-moc-boot/)
-
-Merrell's Hydro Moc was the singular shoe of the moment a few years back. Now that the squishy rubber clog is a no-brainer mainstay, Merrell is mutating it int…
-
-*Published on: Fri, 12 Jul 2024 22:45:03 GMT*
-
-
-## Megan Thee Stallion
-
 ## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
 
 adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
@@ -2350,15 +1567,6 @@ HOKA's Anacapa 2 Freedom sneaker epitomizes a contrast at the shoe company's cor
 
 ## Maya Rudolph
 
-## [Merrell's Killer Clog Makes for a Pretty Amazing Boot](https://www.highsnobiety.com/p/merrell-hydro-moc-boot/)
-
-Merrell's Hydro Moc was the singular shoe of the moment a few years back. Now that the squishy rubber clog is a no-brainer mainstay, Merrell is mutating it int…
-
-*Published on: Fri, 12 Jul 2024 22:45:03 GMT*
-
-
-## Maya Rudolph
-
 ## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
 
 adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
@@ -2377,15 +1585,6 @@ HOKA's Anacapa 2 Freedom sneaker epitomizes a contrast at the shoe company's cor
 
 ## Olivia Rodrigo
 
-## [Merrell's Killer Clog Makes for a Pretty Amazing Boot](https://www.highsnobiety.com/p/merrell-hydro-moc-boot/)
-
-Merrell's Hydro Moc was the singular shoe of the moment a few years back. Now that the squishy rubber clog is a no-brainer mainstay, Merrell is mutating it int…
-
-*Published on: Fri, 12 Jul 2024 22:45:03 GMT*
-
-
-## Olivia Rodrigo
-
 ## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
 
 adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
@@ -2404,15 +1603,6 @@ HOKA's Anacapa 2 Freedom sneaker epitomizes a contrast at the shoe company's cor
 
 ## Obama
 
-## [Merrell's Killer Clog Makes for a Pretty Amazing Boot](https://www.highsnobiety.com/p/merrell-hydro-moc-boot/)
-
-Merrell's Hydro Moc was the singular shoe of the moment a few years back. Now that the squishy rubber clog is a no-brainer mainstay, Merrell is mutating it int…
-
-*Published on: Fri, 12 Jul 2024 22:45:03 GMT*
-
-
-## Obama
-
 ## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
 
 adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
@@ -2431,15 +1621,6 @@ HOKA's Anacapa 2 Freedom sneaker epitomizes a contrast at the shoe company's cor
 
 ## Nicki Minaj
 
-## [Merrell's Killer Clog Makes for a Pretty Amazing Boot](https://www.highsnobiety.com/p/merrell-hydro-moc-boot/)
-
-Merrell's Hydro Moc was the singular shoe of the moment a few years back. Now that the squishy rubber clog is a no-brainer mainstay, Merrell is mutating it int…
-
-*Published on: Fri, 12 Jul 2024 22:45:03 GMT*
-
-
-## Nicki Minaj
-
 ## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
 
 adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
@@ -2454,15 +1635,6 @@ adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is b
 HOKA's Anacapa 2 Freedom sneaker epitomizes a contrast at the shoe company's core: HOKA makes some of the nicest meanest-looking running shoes in the biz.The A…
 
 *Published on: Sat, 13 Jul 2024 10:56:04 GMT*
-
-
-## MrBeast
-
-## [Merrell's Killer Clog Makes for a Pretty Amazing Boot](https://www.highsnobiety.com/p/merrell-hydro-moc-boot/)
-
-Merrell's Hydro Moc was the singular shoe of the moment a few years back. Now that the squishy rubber clog is a no-brainer mainstay, Merrell is mutating it int…
-
-*Published on: Fri, 12 Jul 2024 22:45:03 GMT*
 
 
 ## MrBeast
