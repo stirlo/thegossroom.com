@@ -1,15 +1,6 @@
 # Latest Stories
 ## Tim Cook
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Sun, 14 Jul 2024 05:40:45 GMT*
-
-
-## Tim Cook
-
 ## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
 
 Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
@@ -28,15 +19,6 @@ A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do c
 
 ## Taylor Swift
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Sun, 14 Jul 2024 05:40:45 GMT*
-
-
-## Taylor Swift
-
 ## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
 
 Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
@@ -55,15 +37,6 @@ A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do c
 
 ## Tom Brady
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Sun, 14 Jul 2024 05:40:45 GMT*
-
-
-## Tom Brady
-
 ## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
 
 Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
@@ -82,15 +55,6 @@ A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do c
 
 ## Tina Fey
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Sun, 14 Jul 2024 05:40:45 GMT*
-
-
-## Tina Fey
-
 ## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
 
 Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
@@ -109,15 +73,6 @@ A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do c
 
 ## Steven Yuen
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Sun, 14 Jul 2024 05:40:45 GMT*
-
-
-## Steven Yuen
-
 ## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
 
 Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
@@ -136,15 +91,6 @@ A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do c
 
 ## Sommer Ray
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Sun, 14 Jul 2024 05:40:45 GMT*
-
-
-## Sommer Ray
-
 ## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
 
 Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
@@ -163,15 +109,6 @@ A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do c
 
 ## Sza
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Sun, 14 Jul 2024 05:40:45 GMT*
-
-
-## Sza
-
 ## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
 
 Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
@@ -190,15 +127,6 @@ A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do c
 
 ## Sydney Sweeney
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Sun, 14 Jul 2024 05:40:45 GMT*
-
-
-## Sydney Sweeney
-
 ## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
 
 Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
@@ -217,15 +145,6 @@ A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do c
 
 ## Walton Goggins
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Sun, 14 Jul 2024 05:40:45 GMT*
-
-
-## Walton Goggins
-
 ## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
 
 Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
@@ -244,15 +163,6 @@ A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do c
 
 ## Tom Holland
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Sun, 14 Jul 2024 05:40:45 GMT*
-
-
-## Tom Holland
-
 ## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
 
 Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
@@ -271,15 +181,6 @@ A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do c
 
 ## Gucci Mane
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Sun, 14 Jul 2024 05:40:45 GMT*
-
-
-## Gucci Mane
-
 ## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
 
 Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
@@ -298,15 +199,6 @@ A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do c
 
 ## Harry Styles
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Sun, 14 Jul 2024 05:40:45 GMT*
-
-
-## Harry Styles
-
 ## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
 
 Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
@@ -325,15 +217,6 @@ A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do c
 
 ## Jake Paul
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Sun, 14 Jul 2024 05:40:45 GMT*
-
-
-## Jake Paul
-
 ## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
 
 Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
@@ -352,15 +235,6 @@ A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do c
 
 ## Jameela Jamil
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Sun, 14 Jul 2024 05:40:45 GMT*
-
-
-## Jameela Jamil
-
 ## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
 
 Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
@@ -379,15 +253,6 @@ A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do c
 
 ## Elon Musk
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Sun, 14 Jul 2024 05:40:45 GMT*
-
-
-## Elon Musk
-
 ## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
 
 Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
@@ -406,15 +271,6 @@ A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do c
 
 ## Gabrielle Union
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Sun, 14 Jul 2024 05:40:45 GMT*
-
-
-## Gabrielle Union
-
 ## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
 
 Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
@@ -433,15 +289,6 @@ A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do c
 
 ## Giancarlo Esposito
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Sun, 14 Jul 2024 05:40:45 GMT*
-
-
-## Giancarlo Esposito
-
 ## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
 
 Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
@@ -460,15 +307,6 @@ A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do c
 
 ## Gillian Jacobs
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Sun, 14 Jul 2024 05:40:45 GMT*
-
-
-## Gillian Jacobs
-
 ## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
 
 Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
@@ -487,15 +325,6 @@ A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do c
 
 ## Jason Mantzoukas
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Sun, 14 Jul 2024 05:40:45 GMT*
-
-
-## Jason Mantzoukas
-
 ## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
 
 Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
@@ -514,15 +343,6 @@ A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do c
 
 ## JB Smoove
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Sun, 14 Jul 2024 05:40:45 GMT*
-
-
-## JB Smoove
-
 ## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
 
 Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
@@ -541,15 +361,6 @@ A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do c
 
 ## Madison Pettis
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Sun, 14 Jul 2024 05:40:45 GMT*
-
-
-## Madison Pettis
-
 ## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
 
 Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
@@ -568,15 +379,6 @@ A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do c
 
 ## Austin Butler
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Sun, 14 Jul 2024 05:40:45 GMT*
-
-
-## Austin Butler
-
 ## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
 
 Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
@@ -595,15 +397,6 @@ A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do c
 
 ## Mark Zuckerberg
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Sun, 14 Jul 2024 05:40:45 GMT*
-
-
-## Mark Zuckerberg
-
 ## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
 
 Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
@@ -622,15 +415,6 @@ A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do c
 
 ## Ariana Grande
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Sun, 14 Jul 2024 05:40:45 GMT*
-
-
-## Ariana Grande
-
 ## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
 
 Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
@@ -649,15 +433,6 @@ A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do c
 
 ## Livvy Dunne
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Sun, 14 Jul 2024 05:40:45 GMT*
-
-
-## Livvy Dunne
-
 ## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
 
 Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
@@ -676,15 +451,6 @@ A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do c
 
 ## Ali Wong
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Sun, 14 Jul 2024 05:40:45 GMT*
-
-
-## Ali Wong
-
 ## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
 
 Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
@@ -703,15 +469,6 @@ A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do c
 
 ## Lizzo
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Sun, 14 Jul 2024 05:40:45 GMT*
-
-
-## Lizzo
-
 ## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
 
 Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
@@ -730,15 +487,6 @@ A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do c
 
 ## Alison Brie
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Sun, 14 Jul 2024 05:40:45 GMT*
-
-
-## Alison Brie
-
 ## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
 
 Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
@@ -757,15 +505,6 @@ A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do c
 
 ## Lil Wayne
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Sun, 14 Jul 2024 05:40:45 GMT*
-
-
-## Lil Wayne
-
 ## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
 
 Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
@@ -784,15 +523,6 @@ A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do c
 
 ## Adele
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Sun, 14 Jul 2024 05:40:45 GMT*
-
-
-## Adele
-
 ## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
 
 Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
@@ -811,15 +541,6 @@ A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do c
 
 ## Lindsay Lohan
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Sun, 14 Jul 2024 05:40:45 GMT*
-
-
-## Lindsay Lohan
-
 ## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
 
 Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
@@ -838,15 +559,6 @@ A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do c
 
 ## Addison Rae
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Sun, 14 Jul 2024 05:40:45 GMT*
-
-
-## Addison Rae
-
 ## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
 
 Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
@@ -865,15 +577,6 @@ A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do c
 
 ## Latto
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Sun, 14 Jul 2024 05:40:45 GMT*
-
-
-## Latto
-
 ## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
 
 Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
@@ -892,15 +595,6 @@ A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do c
 
 ## Aaron Paul
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Sun, 14 Jul 2024 05:40:45 GMT*
-
-
-## Aaron Paul
-
 ## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
 
 Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
@@ -919,15 +613,6 @@ A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do c
 
 ## LeBron James
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Sun, 14 Jul 2024 05:40:45 GMT*
-
-
-## LeBron James
-
 ## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
 
 Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
@@ -946,15 +631,6 @@ A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do c
 
 ## 50 Cent
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Sun, 14 Jul 2024 05:40:45 GMT*
-
-
-## 50 Cent
-
 ## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
 
 Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
@@ -973,15 +649,6 @@ A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do c
 
 ## Kesha
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Sun, 14 Jul 2024 05:40:45 GMT*
-
-
-## Kesha
-
 ## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
 
 Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
@@ -1000,15 +667,6 @@ A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do c
 
 ## 21 Savage
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Sun, 14 Jul 2024 05:40:45 GMT*
-
-
-## 21 Savage
-
 ## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
 
 Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
@@ -1027,15 +685,6 @@ A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do c
 
 ## Larry David
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Sun, 14 Jul 2024 05:40:45 GMT*
-
-
-## Larry David
-
 ## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
 
 Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
@@ -1054,15 +703,6 @@ A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do c
 
 ## Seth Rogan
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Sun, 14 Jul 2024 05:40:45 GMT*
-
-
-## Seth Rogan
-
 ## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
 
 Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
@@ -1081,15 +721,6 @@ A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do c
 
 ## Simone Biles
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Sun, 14 Jul 2024 05:40:45 GMT*
-
-
-## Simone Biles
-
 ## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
 
 Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
@@ -1108,15 +739,6 @@ A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do c
 
 ## Pete Davidson
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Sun, 14 Jul 2024 05:40:45 GMT*
-
-
-## Pete Davidson
-
 ## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
 
 Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
@@ -1135,15 +757,6 @@ A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do c
 
 ## Prince Harry
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Sun, 14 Jul 2024 05:40:45 GMT*
-
-
-## Prince Harry
-
 ## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
 
 Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
@@ -1162,15 +775,6 @@ A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do c
 
 ## Princess of Wales
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Sun, 14 Jul 2024 05:40:45 GMT*
-
-
-## Princess of Wales
-
 ## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
 
 Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
@@ -1189,15 +793,6 @@ A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do c
 
 ## Rachel McAdams
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Sun, 14 Jul 2024 05:40:45 GMT*
-
-
-## Rachel McAdams
-
 ## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
 
 Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
@@ -1216,15 +811,6 @@ A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do c
 
 ## Reneé Rapp
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Sun, 14 Jul 2024 05:40:45 GMT*
-
-
-## Reneé Rapp
-
 ## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
 
 Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
@@ -1243,15 +829,6 @@ A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do c
 
 ## Rick Ross
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Sun, 14 Jul 2024 05:40:45 GMT*
-
-
-## Rick Ross
-
 ## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
 
 Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
@@ -1270,15 +847,6 @@ A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do c
 
 ## Sam Ashgari
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Sun, 14 Jul 2024 05:40:45 GMT*
-
-
-## Sam Ashgari
-
 ## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
 
 Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
@@ -1297,15 +865,6 @@ A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do c
 
 ## Sandra Oh
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Sun, 14 Jul 2024 05:40:45 GMT*
-
-
-## Sandra Oh
-
 ## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
 
 Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
@@ -1324,15 +883,6 @@ A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do c
 
 ## Donald Trump
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Sun, 14 Jul 2024 05:40:45 GMT*
-
-
-## Donald Trump
-
 ## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
 
 Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
@@ -1351,15 +901,6 @@ A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do c
 
 ## Diddy
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Sun, 14 Jul 2024 05:40:45 GMT*
-
-
-## Diddy
-
 ## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
 
 Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
@@ -1378,15 +919,6 @@ A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do c
 
 ## City Girls
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Sun, 14 Jul 2024 05:40:45 GMT*
-
-
-## City Girls
-
 ## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
 
 Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
@@ -1405,15 +937,6 @@ A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do c
 
 ## Chloe Bailey
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Sun, 14 Jul 2024 05:40:45 GMT*
-
-
-## Chloe Bailey
-
 ## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
 
 Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
@@ -1432,15 +955,6 @@ A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do c
 
 ## Charli D Amelio
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Sun, 14 Jul 2024 05:40:45 GMT*
-
-
-## Charli D Amelio
-
 ## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
 
 Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
@@ -1459,15 +973,6 @@ A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do c
 
 ## Cardi B
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Sun, 14 Jul 2024 05:40:45 GMT*
-
-
-## Cardi B
-
 ## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
 
 Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
@@ -1486,15 +991,6 @@ A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do c
 
 ## Bryan Cranston
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Sun, 14 Jul 2024 05:40:45 GMT*
-
-
-## Bryan Cranston
-
 ## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
 
 Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
@@ -1513,15 +1009,6 @@ A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do c
 
 ## Brielle Biermann
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Sun, 14 Jul 2024 05:40:45 GMT*
-
-
-## Brielle Biermann
-
 ## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
 
 Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
@@ -1540,15 +1027,6 @@ A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do c
 
 ## Dua Lipa
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Sun, 14 Jul 2024 05:40:45 GMT*
-
-
-## Dua Lipa
-
 ## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
 
 Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
@@ -1567,15 +1045,6 @@ A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do c
 
 ## Drake
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Sun, 14 Jul 2024 05:40:45 GMT*
-
-
-## Drake
-
 ## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
 
 Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
@@ -1594,15 +1063,6 @@ A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do c
 
 ## Jenner
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Sun, 14 Jul 2024 05:40:45 GMT*
-
-
-## Jenner
-
 ## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
 
 Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
@@ -1621,15 +1081,6 @@ A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do c
 
 ## J. Cole
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Sun, 14 Jul 2024 05:40:45 GMT*
-
-
-## J. Cole
-
 ## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
 
 Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
@@ -1648,15 +1099,6 @@ A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do c
 
 ## Jerrod Carmichael
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Sun, 14 Jul 2024 05:40:45 GMT*
-
-
-## Jerrod Carmichael
-
 ## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
 
 Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
@@ -1675,15 +1117,6 @@ A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do c
 
 ## Jennifer Lawrence
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Sun, 14 Jul 2024 05:40:45 GMT*
-
-
-## Jennifer Lawrence
-
 ## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
 
 Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
@@ -1702,15 +1135,6 @@ A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do c
 
 ## Joe Biden
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Sun, 14 Jul 2024 05:40:45 GMT*
-
-
-## Joe Biden
-
 ## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
 
 Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
@@ -1729,15 +1153,6 @@ A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do c
 
 ## J.K. Simmons
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Sun, 14 Jul 2024 05:40:45 GMT*
-
-
-## J.K. Simmons
-
 ## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
 
 Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
@@ -1756,15 +1171,6 @@ A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do c
 
 ## Kamala Harris
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Sun, 14 Jul 2024 05:40:45 GMT*
-
-
-## Kamala Harris
-
 ## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
 
 Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
@@ -1783,15 +1189,6 @@ A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do c
 
 ## John C Reilly
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Sun, 14 Jul 2024 05:40:45 GMT*
-
-
-## John C Reilly
-
 ## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
 
 Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
@@ -1810,15 +1207,6 @@ A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do c
 
 ## Kardashian
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Sun, 14 Jul 2024 05:40:45 GMT*
-
-
-## Kardashian
-
 ## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
 
 Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
@@ -1837,15 +1225,6 @@ A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do c
 
 ## Kanye
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Sun, 14 Jul 2024 05:40:45 GMT*
-
-
-## Kanye
-
 ## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
 
 Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
@@ -1864,15 +1243,6 @@ A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do c
 
 ## Zendaya
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Sun, 14 Jul 2024 05:40:45 GMT*
-
-
-## Zendaya
-
 ## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
 
 Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
@@ -1891,15 +1261,6 @@ A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do c
 
 ## Will Ferrell
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Sun, 14 Jul 2024 05:40:45 GMT*
-
-
-## Will Ferrell
-
 ## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
 
 Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
@@ -1918,15 +1279,6 @@ A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do c
 
 ## Zazie Beetz
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Sun, 14 Jul 2024 05:40:45 GMT*
-
-
-## Zazie Beetz
-
 ## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
 
 Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
@@ -1945,15 +1297,6 @@ A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do c
 
 ## Bob Odenkirk
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Sun, 14 Jul 2024 05:40:45 GMT*
-
-
-## Bob Odenkirk
-
 ## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
 
 Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
@@ -1972,15 +1315,6 @@ A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do c
 
 ## Brad Pitt
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Sun, 14 Jul 2024 05:40:45 GMT*
-
-
-## Brad Pitt
-
 ## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
 
 Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
@@ -1999,15 +1333,6 @@ A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do c
 
 ## Beyoncé
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Sun, 14 Jul 2024 05:40:45 GMT*
-
-
-## Beyoncé
-
 ## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
 
 Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
@@ -2026,15 +1351,6 @@ A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do c
 
 ## Bia
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Sun, 14 Jul 2024 05:40:45 GMT*
-
-
-## Bia
-
 ## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
 
 Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
@@ -2053,15 +1369,6 @@ A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do c
 
 ## Avantika
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Sun, 14 Jul 2024 05:40:45 GMT*
-
-
-## Avantika
-
 ## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
 
 Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
@@ -2080,15 +1387,6 @@ A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do c
 
 ## Bernie Sanders
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Sun, 14 Jul 2024 05:40:45 GMT*
-
-
-## Bernie Sanders
-
 ## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
 
 Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
@@ -2107,15 +1405,6 @@ A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do c
 
 ## Big Sean
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Sun, 14 Jul 2024 05:40:45 GMT*
-
-
-## Big Sean
-
 ## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
 
 Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
@@ -2134,15 +1423,6 @@ A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do c
 
 ## BlockBoy JB
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Sun, 14 Jul 2024 05:40:45 GMT*
-
-
-## BlockBoy JB
-
 ## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
 
 Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
@@ -2161,15 +1441,6 @@ A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do c
 
 ## Biden
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Sun, 14 Jul 2024 05:40:45 GMT*
-
-
-## Biden
-
 ## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
 
 Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
@@ -2188,15 +1459,6 @@ A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do c
 
 ## Bieber
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Sun, 14 Jul 2024 05:40:45 GMT*
-
-
-## Bieber
-
 ## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
 
 Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
@@ -2215,15 +1477,6 @@ A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do c
 
 ## Paulina Porizkov
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Sun, 14 Jul 2024 05:40:45 GMT*
-
-
-## Paulina Porizkov
-
 ## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
 
 Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
@@ -2242,15 +1495,6 @@ A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do c
 
 ## Paris Hilton
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Sun, 14 Jul 2024 05:40:45 GMT*
-
-
-## Paris Hilton
-
 ## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
 
 Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
@@ -2269,15 +1513,6 @@ A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do c
 
 ## Metro Boomin
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Sun, 14 Jul 2024 05:40:45 GMT*
-
-
-## Metro Boomin
-
 ## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
 
 Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
@@ -2296,15 +1531,6 @@ A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do c
 
 ## Meghan Markle
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Sun, 14 Jul 2024 05:40:45 GMT*
-
-
-## Meghan Markle
-
 ## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
 
 Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
@@ -2323,15 +1549,6 @@ A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do c
 
 ## Megan Thee Stallion
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Sun, 14 Jul 2024 05:40:45 GMT*
-
-
-## Megan Thee Stallion
-
 ## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
 
 Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
@@ -2350,15 +1567,6 @@ A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do c
 
 ## Maya Rudolph
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Sun, 14 Jul 2024 05:40:45 GMT*
-
-
-## Maya Rudolph
-
 ## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
 
 Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
@@ -2377,15 +1585,6 @@ A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do c
 
 ## Olivia Rodrigo
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Sun, 14 Jul 2024 05:40:45 GMT*
-
-
-## Olivia Rodrigo
-
 ## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
 
 Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
@@ -2404,15 +1603,6 @@ A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do c
 
 ## Obama
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Sun, 14 Jul 2024 05:40:45 GMT*
-
-
-## Obama
-
 ## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
 
 Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
@@ -2431,15 +1621,6 @@ A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do c
 
 ## Nicki Minaj
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Sun, 14 Jul 2024 05:40:45 GMT*
-
-
-## Nicki Minaj
-
 ## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
 
 Vans has blessed the sneaker community with unforgettable styles like the imitably slim Authentic shoe and effortless Slip-On. As the brand seeks more cool col…
@@ -2454,15 +1635,6 @@ Vans has blessed the sneaker community with unforgettable styles like the imitab
 A$AP Rocky presents the latest edition of fashion's ultimate enigma: how TF do celebs keep hitting big 'fits in the middle of a heatwave?Admittedly, safe bet t…
 
 *Published on: Sun, 14 Jul 2024 12:02:58 GMT*
-
-
-## MrBeast
-
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Sun, 14 Jul 2024 05:40:45 GMT*
 
 
 ## MrBeast
