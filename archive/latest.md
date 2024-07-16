@@ -1,11 +1,20 @@
 # Latest Stories
 ## Tim Cook
 
-## [Valentino Launches Hard-to-Get ‘Haute Couture’ Fragrance](https://www.highsnobiety.com/p/valentino-anatomy-of-dreams-fragrance/)
+## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
 
-Valentino's Haute Couture division now has a fragrance line to match. On Monday, the Italian fashion house unveiled its latest beauty venture, a collection of …
+Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
 
-*Published on: Mon, 15 Jul 2024 17:05:08 GMT*
+*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+
+
+## Tim Cook
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
 ## Tim Cook
@@ -14,7 +23,7 @@ Valentino's Haute Couture division now has a fragrance line to match. On Monday,
 
 And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gold...with a new so-called "Sanded Gold" colorway.Indeed, more breathable elderly …
 
-*Published on: Mon, 15 Jul 2024 17:14:42 GMT*
+*Published on: Tue, 16 Jul 2024 07:14:42 GMT*
 
 
 ## Tim Cook
@@ -23,16 +32,7 @@ And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gol
 
 Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
 
-*Published on: Mon, 15 Jul 2024 19:48:57 GMT*
-
-
-## Tim Cook
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+*Published on: Tue, 16 Jul 2024 09:48:57 GMT*
 
 
 ## Tim Cook
@@ -82,11 +82,20 @@ COMME des GARÇONS and Nike are back together, and as you may have suspected, th
 
 ## Taylor Swift
 
-## [Valentino Launches Hard-to-Get ‘Haute Couture’ Fragrance](https://www.highsnobiety.com/p/valentino-anatomy-of-dreams-fragrance/)
+## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
 
-Valentino's Haute Couture division now has a fragrance line to match. On Monday, the Italian fashion house unveiled its latest beauty venture, a collection of …
+Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
 
-*Published on: Mon, 15 Jul 2024 17:05:08 GMT*
+*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+
+
+## Taylor Swift
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
 ## Taylor Swift
@@ -95,7 +104,7 @@ Valentino's Haute Couture division now has a fragrance line to match. On Monday,
 
 And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gold...with a new so-called "Sanded Gold" colorway.Indeed, more breathable elderly …
 
-*Published on: Mon, 15 Jul 2024 17:14:42 GMT*
+*Published on: Tue, 16 Jul 2024 07:14:42 GMT*
 
 
 ## Taylor Swift
@@ -104,16 +113,7 @@ And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gol
 
 Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
 
-*Published on: Mon, 15 Jul 2024 19:48:57 GMT*
-
-
-## Taylor Swift
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+*Published on: Tue, 16 Jul 2024 09:48:57 GMT*
 
 
 ## Taylor Swift
@@ -163,11 +163,20 @@ COMME des GARÇONS and Nike are back together, and as you may have suspected, th
 
 ## Tom Brady
 
-## [Valentino Launches Hard-to-Get ‘Haute Couture’ Fragrance](https://www.highsnobiety.com/p/valentino-anatomy-of-dreams-fragrance/)
+## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
 
-Valentino's Haute Couture division now has a fragrance line to match. On Monday, the Italian fashion house unveiled its latest beauty venture, a collection of …
+Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
 
-*Published on: Mon, 15 Jul 2024 17:05:08 GMT*
+*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+
+
+## Tom Brady
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
 ## Tom Brady
@@ -176,7 +185,7 @@ Valentino's Haute Couture division now has a fragrance line to match. On Monday,
 
 And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gold...with a new so-called "Sanded Gold" colorway.Indeed, more breathable elderly …
 
-*Published on: Mon, 15 Jul 2024 17:14:42 GMT*
+*Published on: Tue, 16 Jul 2024 07:14:42 GMT*
 
 
 ## Tom Brady
@@ -185,16 +194,7 @@ And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gol
 
 Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
 
-*Published on: Mon, 15 Jul 2024 19:48:57 GMT*
-
-
-## Tom Brady
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+*Published on: Tue, 16 Jul 2024 09:48:57 GMT*
 
 
 ## Tom Brady
@@ -244,11 +244,20 @@ COMME des GARÇONS and Nike are back together, and as you may have suspected, th
 
 ## Tina Fey
 
-## [Valentino Launches Hard-to-Get ‘Haute Couture’ Fragrance](https://www.highsnobiety.com/p/valentino-anatomy-of-dreams-fragrance/)
+## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
 
-Valentino's Haute Couture division now has a fragrance line to match. On Monday, the Italian fashion house unveiled its latest beauty venture, a collection of …
+Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
 
-*Published on: Mon, 15 Jul 2024 17:05:08 GMT*
+*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+
+
+## Tina Fey
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
 ## Tina Fey
@@ -257,7 +266,7 @@ Valentino's Haute Couture division now has a fragrance line to match. On Monday,
 
 And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gold...with a new so-called "Sanded Gold" colorway.Indeed, more breathable elderly …
 
-*Published on: Mon, 15 Jul 2024 17:14:42 GMT*
+*Published on: Tue, 16 Jul 2024 07:14:42 GMT*
 
 
 ## Tina Fey
@@ -266,16 +275,7 @@ And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gol
 
 Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
 
-*Published on: Mon, 15 Jul 2024 19:48:57 GMT*
-
-
-## Tina Fey
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+*Published on: Tue, 16 Jul 2024 09:48:57 GMT*
 
 
 ## Tina Fey
@@ -325,11 +325,20 @@ COMME des GARÇONS and Nike are back together, and as you may have suspected, th
 
 ## Steven Yuen
 
-## [Valentino Launches Hard-to-Get ‘Haute Couture’ Fragrance](https://www.highsnobiety.com/p/valentino-anatomy-of-dreams-fragrance/)
+## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
 
-Valentino's Haute Couture division now has a fragrance line to match. On Monday, the Italian fashion house unveiled its latest beauty venture, a collection of …
+Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
 
-*Published on: Mon, 15 Jul 2024 17:05:08 GMT*
+*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+
+
+## Steven Yuen
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
 ## Steven Yuen
@@ -338,7 +347,7 @@ Valentino's Haute Couture division now has a fragrance line to match. On Monday,
 
 And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gold...with a new so-called "Sanded Gold" colorway.Indeed, more breathable elderly …
 
-*Published on: Mon, 15 Jul 2024 17:14:42 GMT*
+*Published on: Tue, 16 Jul 2024 07:14:42 GMT*
 
 
 ## Steven Yuen
@@ -347,16 +356,7 @@ And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gol
 
 Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
 
-*Published on: Mon, 15 Jul 2024 19:48:57 GMT*
-
-
-## Steven Yuen
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+*Published on: Tue, 16 Jul 2024 09:48:57 GMT*
 
 
 ## Steven Yuen
@@ -406,11 +406,20 @@ COMME des GARÇONS and Nike are back together, and as you may have suspected, th
 
 ## Sommer Ray
 
-## [Valentino Launches Hard-to-Get ‘Haute Couture’ Fragrance](https://www.highsnobiety.com/p/valentino-anatomy-of-dreams-fragrance/)
+## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
 
-Valentino's Haute Couture division now has a fragrance line to match. On Monday, the Italian fashion house unveiled its latest beauty venture, a collection of …
+Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
 
-*Published on: Mon, 15 Jul 2024 17:05:08 GMT*
+*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+
+
+## Sommer Ray
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
 ## Sommer Ray
@@ -419,7 +428,7 @@ Valentino's Haute Couture division now has a fragrance line to match. On Monday,
 
 And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gold...with a new so-called "Sanded Gold" colorway.Indeed, more breathable elderly …
 
-*Published on: Mon, 15 Jul 2024 17:14:42 GMT*
+*Published on: Tue, 16 Jul 2024 07:14:42 GMT*
 
 
 ## Sommer Ray
@@ -428,16 +437,7 @@ And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gol
 
 Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
 
-*Published on: Mon, 15 Jul 2024 19:48:57 GMT*
-
-
-## Sommer Ray
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+*Published on: Tue, 16 Jul 2024 09:48:57 GMT*
 
 
 ## Sommer Ray
@@ -487,11 +487,20 @@ COMME des GARÇONS and Nike are back together, and as you may have suspected, th
 
 ## Sza
 
-## [Valentino Launches Hard-to-Get ‘Haute Couture’ Fragrance](https://www.highsnobiety.com/p/valentino-anatomy-of-dreams-fragrance/)
+## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
 
-Valentino's Haute Couture division now has a fragrance line to match. On Monday, the Italian fashion house unveiled its latest beauty venture, a collection of …
+Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
 
-*Published on: Mon, 15 Jul 2024 17:05:08 GMT*
+*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+
+
+## Sza
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
 ## Sza
@@ -500,7 +509,7 @@ Valentino's Haute Couture division now has a fragrance line to match. On Monday,
 
 And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gold...with a new so-called "Sanded Gold" colorway.Indeed, more breathable elderly …
 
-*Published on: Mon, 15 Jul 2024 17:14:42 GMT*
+*Published on: Tue, 16 Jul 2024 07:14:42 GMT*
 
 
 ## Sza
@@ -509,16 +518,7 @@ And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gol
 
 Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
 
-*Published on: Mon, 15 Jul 2024 19:48:57 GMT*
-
-
-## Sza
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+*Published on: Tue, 16 Jul 2024 09:48:57 GMT*
 
 
 ## Sza
@@ -568,11 +568,20 @@ COMME des GARÇONS and Nike are back together, and as you may have suspected, th
 
 ## Sydney Sweeney
 
-## [Valentino Launches Hard-to-Get ‘Haute Couture’ Fragrance](https://www.highsnobiety.com/p/valentino-anatomy-of-dreams-fragrance/)
+## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
 
-Valentino's Haute Couture division now has a fragrance line to match. On Monday, the Italian fashion house unveiled its latest beauty venture, a collection of …
+Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
 
-*Published on: Mon, 15 Jul 2024 17:05:08 GMT*
+*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+
+
+## Sydney Sweeney
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
 ## Sydney Sweeney
@@ -581,7 +590,7 @@ Valentino's Haute Couture division now has a fragrance line to match. On Monday,
 
 And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gold...with a new so-called "Sanded Gold" colorway.Indeed, more breathable elderly …
 
-*Published on: Mon, 15 Jul 2024 17:14:42 GMT*
+*Published on: Tue, 16 Jul 2024 07:14:42 GMT*
 
 
 ## Sydney Sweeney
@@ -590,16 +599,7 @@ And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gol
 
 Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
 
-*Published on: Mon, 15 Jul 2024 19:48:57 GMT*
-
-
-## Sydney Sweeney
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+*Published on: Tue, 16 Jul 2024 09:48:57 GMT*
 
 
 ## Sydney Sweeney
@@ -649,11 +649,20 @@ COMME des GARÇONS and Nike are back together, and as you may have suspected, th
 
 ## Walton Goggins
 
-## [Valentino Launches Hard-to-Get ‘Haute Couture’ Fragrance](https://www.highsnobiety.com/p/valentino-anatomy-of-dreams-fragrance/)
+## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
 
-Valentino's Haute Couture division now has a fragrance line to match. On Monday, the Italian fashion house unveiled its latest beauty venture, a collection of …
+Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
 
-*Published on: Mon, 15 Jul 2024 17:05:08 GMT*
+*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+
+
+## Walton Goggins
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
 ## Walton Goggins
@@ -662,7 +671,7 @@ Valentino's Haute Couture division now has a fragrance line to match. On Monday,
 
 And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gold...with a new so-called "Sanded Gold" colorway.Indeed, more breathable elderly …
 
-*Published on: Mon, 15 Jul 2024 17:14:42 GMT*
+*Published on: Tue, 16 Jul 2024 07:14:42 GMT*
 
 
 ## Walton Goggins
@@ -671,16 +680,7 @@ And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gol
 
 Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
 
-*Published on: Mon, 15 Jul 2024 19:48:57 GMT*
-
-
-## Walton Goggins
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+*Published on: Tue, 16 Jul 2024 09:48:57 GMT*
 
 
 ## Walton Goggins
@@ -730,11 +730,20 @@ COMME des GARÇONS and Nike are back together, and as you may have suspected, th
 
 ## Tom Holland
 
-## [Valentino Launches Hard-to-Get ‘Haute Couture’ Fragrance](https://www.highsnobiety.com/p/valentino-anatomy-of-dreams-fragrance/)
+## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
 
-Valentino's Haute Couture division now has a fragrance line to match. On Monday, the Italian fashion house unveiled its latest beauty venture, a collection of …
+Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
 
-*Published on: Mon, 15 Jul 2024 17:05:08 GMT*
+*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+
+
+## Tom Holland
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
 ## Tom Holland
@@ -743,7 +752,7 @@ Valentino's Haute Couture division now has a fragrance line to match. On Monday,
 
 And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gold...with a new so-called "Sanded Gold" colorway.Indeed, more breathable elderly …
 
-*Published on: Mon, 15 Jul 2024 17:14:42 GMT*
+*Published on: Tue, 16 Jul 2024 07:14:42 GMT*
 
 
 ## Tom Holland
@@ -752,16 +761,7 @@ And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gol
 
 Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
 
-*Published on: Mon, 15 Jul 2024 19:48:57 GMT*
-
-
-## Tom Holland
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+*Published on: Tue, 16 Jul 2024 09:48:57 GMT*
 
 
 ## Tom Holland
@@ -811,11 +811,20 @@ COMME des GARÇONS and Nike are back together, and as you may have suspected, th
 
 ## Gucci Mane
 
-## [Valentino Launches Hard-to-Get ‘Haute Couture’ Fragrance](https://www.highsnobiety.com/p/valentino-anatomy-of-dreams-fragrance/)
+## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
 
-Valentino's Haute Couture division now has a fragrance line to match. On Monday, the Italian fashion house unveiled its latest beauty venture, a collection of …
+Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
 
-*Published on: Mon, 15 Jul 2024 17:05:08 GMT*
+*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+
+
+## Gucci Mane
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
 ## Gucci Mane
@@ -824,7 +833,7 @@ Valentino's Haute Couture division now has a fragrance line to match. On Monday,
 
 And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gold...with a new so-called "Sanded Gold" colorway.Indeed, more breathable elderly …
 
-*Published on: Mon, 15 Jul 2024 17:14:42 GMT*
+*Published on: Tue, 16 Jul 2024 07:14:42 GMT*
 
 
 ## Gucci Mane
@@ -833,16 +842,7 @@ And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gol
 
 Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
 
-*Published on: Mon, 15 Jul 2024 19:48:57 GMT*
-
-
-## Gucci Mane
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+*Published on: Tue, 16 Jul 2024 09:48:57 GMT*
 
 
 ## Gucci Mane
@@ -892,11 +892,20 @@ COMME des GARÇONS and Nike are back together, and as you may have suspected, th
 
 ## Harry Styles
 
-## [Valentino Launches Hard-to-Get ‘Haute Couture’ Fragrance](https://www.highsnobiety.com/p/valentino-anatomy-of-dreams-fragrance/)
+## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
 
-Valentino's Haute Couture division now has a fragrance line to match. On Monday, the Italian fashion house unveiled its latest beauty venture, a collection of …
+Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
 
-*Published on: Mon, 15 Jul 2024 17:05:08 GMT*
+*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+
+
+## Harry Styles
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
 ## Harry Styles
@@ -905,7 +914,7 @@ Valentino's Haute Couture division now has a fragrance line to match. On Monday,
 
 And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gold...with a new so-called "Sanded Gold" colorway.Indeed, more breathable elderly …
 
-*Published on: Mon, 15 Jul 2024 17:14:42 GMT*
+*Published on: Tue, 16 Jul 2024 07:14:42 GMT*
 
 
 ## Harry Styles
@@ -914,16 +923,7 @@ And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gol
 
 Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
 
-*Published on: Mon, 15 Jul 2024 19:48:57 GMT*
-
-
-## Harry Styles
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+*Published on: Tue, 16 Jul 2024 09:48:57 GMT*
 
 
 ## Harry Styles
@@ -973,11 +973,20 @@ COMME des GARÇONS and Nike are back together, and as you may have suspected, th
 
 ## Jake Paul
 
-## [Valentino Launches Hard-to-Get ‘Haute Couture’ Fragrance](https://www.highsnobiety.com/p/valentino-anatomy-of-dreams-fragrance/)
+## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
 
-Valentino's Haute Couture division now has a fragrance line to match. On Monday, the Italian fashion house unveiled its latest beauty venture, a collection of …
+Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
 
-*Published on: Mon, 15 Jul 2024 17:05:08 GMT*
+*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+
+
+## Jake Paul
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
 ## Jake Paul
@@ -986,7 +995,7 @@ Valentino's Haute Couture division now has a fragrance line to match. On Monday,
 
 And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gold...with a new so-called "Sanded Gold" colorway.Indeed, more breathable elderly …
 
-*Published on: Mon, 15 Jul 2024 17:14:42 GMT*
+*Published on: Tue, 16 Jul 2024 07:14:42 GMT*
 
 
 ## Jake Paul
@@ -995,16 +1004,7 @@ And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gol
 
 Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
 
-*Published on: Mon, 15 Jul 2024 19:48:57 GMT*
-
-
-## Jake Paul
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+*Published on: Tue, 16 Jul 2024 09:48:57 GMT*
 
 
 ## Jake Paul
@@ -1054,11 +1054,20 @@ COMME des GARÇONS and Nike are back together, and as you may have suspected, th
 
 ## Jameela Jamil
 
-## [Valentino Launches Hard-to-Get ‘Haute Couture’ Fragrance](https://www.highsnobiety.com/p/valentino-anatomy-of-dreams-fragrance/)
+## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
 
-Valentino's Haute Couture division now has a fragrance line to match. On Monday, the Italian fashion house unveiled its latest beauty venture, a collection of …
+Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
 
-*Published on: Mon, 15 Jul 2024 17:05:08 GMT*
+*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+
+
+## Jameela Jamil
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
 ## Jameela Jamil
@@ -1067,7 +1076,7 @@ Valentino's Haute Couture division now has a fragrance line to match. On Monday,
 
 And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gold...with a new so-called "Sanded Gold" colorway.Indeed, more breathable elderly …
 
-*Published on: Mon, 15 Jul 2024 17:14:42 GMT*
+*Published on: Tue, 16 Jul 2024 07:14:42 GMT*
 
 
 ## Jameela Jamil
@@ -1076,16 +1085,7 @@ And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gol
 
 Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
 
-*Published on: Mon, 15 Jul 2024 19:48:57 GMT*
-
-
-## Jameela Jamil
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+*Published on: Tue, 16 Jul 2024 09:48:57 GMT*
 
 
 ## Jameela Jamil
@@ -1135,11 +1135,20 @@ COMME des GARÇONS and Nike are back together, and as you may have suspected, th
 
 ## Elon Musk
 
-## [Valentino Launches Hard-to-Get ‘Haute Couture’ Fragrance](https://www.highsnobiety.com/p/valentino-anatomy-of-dreams-fragrance/)
+## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
 
-Valentino's Haute Couture division now has a fragrance line to match. On Monday, the Italian fashion house unveiled its latest beauty venture, a collection of …
+Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
 
-*Published on: Mon, 15 Jul 2024 17:05:08 GMT*
+*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+
+
+## Elon Musk
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
 ## Elon Musk
@@ -1148,7 +1157,7 @@ Valentino's Haute Couture division now has a fragrance line to match. On Monday,
 
 And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gold...with a new so-called "Sanded Gold" colorway.Indeed, more breathable elderly …
 
-*Published on: Mon, 15 Jul 2024 17:14:42 GMT*
+*Published on: Tue, 16 Jul 2024 07:14:42 GMT*
 
 
 ## Elon Musk
@@ -1157,16 +1166,7 @@ And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gol
 
 Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
 
-*Published on: Mon, 15 Jul 2024 19:48:57 GMT*
-
-
-## Elon Musk
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+*Published on: Tue, 16 Jul 2024 09:48:57 GMT*
 
 
 ## Elon Musk
@@ -1216,11 +1216,20 @@ COMME des GARÇONS and Nike are back together, and as you may have suspected, th
 
 ## Gabrielle Union
 
-## [Valentino Launches Hard-to-Get ‘Haute Couture’ Fragrance](https://www.highsnobiety.com/p/valentino-anatomy-of-dreams-fragrance/)
+## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
 
-Valentino's Haute Couture division now has a fragrance line to match. On Monday, the Italian fashion house unveiled its latest beauty venture, a collection of …
+Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
 
-*Published on: Mon, 15 Jul 2024 17:05:08 GMT*
+*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+
+
+## Gabrielle Union
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
 ## Gabrielle Union
@@ -1229,7 +1238,7 @@ Valentino's Haute Couture division now has a fragrance line to match. On Monday,
 
 And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gold...with a new so-called "Sanded Gold" colorway.Indeed, more breathable elderly …
 
-*Published on: Mon, 15 Jul 2024 17:14:42 GMT*
+*Published on: Tue, 16 Jul 2024 07:14:42 GMT*
 
 
 ## Gabrielle Union
@@ -1238,16 +1247,7 @@ And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gol
 
 Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
 
-*Published on: Mon, 15 Jul 2024 19:48:57 GMT*
-
-
-## Gabrielle Union
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+*Published on: Tue, 16 Jul 2024 09:48:57 GMT*
 
 
 ## Gabrielle Union
@@ -1297,11 +1297,20 @@ COMME des GARÇONS and Nike are back together, and as you may have suspected, th
 
 ## Giancarlo Esposito
 
-## [Valentino Launches Hard-to-Get ‘Haute Couture’ Fragrance](https://www.highsnobiety.com/p/valentino-anatomy-of-dreams-fragrance/)
+## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
 
-Valentino's Haute Couture division now has a fragrance line to match. On Monday, the Italian fashion house unveiled its latest beauty venture, a collection of …
+Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
 
-*Published on: Mon, 15 Jul 2024 17:05:08 GMT*
+*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+
+
+## Giancarlo Esposito
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
 ## Giancarlo Esposito
@@ -1310,7 +1319,7 @@ Valentino's Haute Couture division now has a fragrance line to match. On Monday,
 
 And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gold...with a new so-called "Sanded Gold" colorway.Indeed, more breathable elderly …
 
-*Published on: Mon, 15 Jul 2024 17:14:42 GMT*
+*Published on: Tue, 16 Jul 2024 07:14:42 GMT*
 
 
 ## Giancarlo Esposito
@@ -1319,16 +1328,7 @@ And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gol
 
 Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
 
-*Published on: Mon, 15 Jul 2024 19:48:57 GMT*
-
-
-## Giancarlo Esposito
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+*Published on: Tue, 16 Jul 2024 09:48:57 GMT*
 
 
 ## Giancarlo Esposito
@@ -1378,11 +1378,20 @@ COMME des GARÇONS and Nike are back together, and as you may have suspected, th
 
 ## Gillian Jacobs
 
-## [Valentino Launches Hard-to-Get ‘Haute Couture’ Fragrance](https://www.highsnobiety.com/p/valentino-anatomy-of-dreams-fragrance/)
+## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
 
-Valentino's Haute Couture division now has a fragrance line to match. On Monday, the Italian fashion house unveiled its latest beauty venture, a collection of …
+Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
 
-*Published on: Mon, 15 Jul 2024 17:05:08 GMT*
+*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+
+
+## Gillian Jacobs
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
 ## Gillian Jacobs
@@ -1391,7 +1400,7 @@ Valentino's Haute Couture division now has a fragrance line to match. On Monday,
 
 And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gold...with a new so-called "Sanded Gold" colorway.Indeed, more breathable elderly …
 
-*Published on: Mon, 15 Jul 2024 17:14:42 GMT*
+*Published on: Tue, 16 Jul 2024 07:14:42 GMT*
 
 
 ## Gillian Jacobs
@@ -1400,16 +1409,7 @@ And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gol
 
 Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
 
-*Published on: Mon, 15 Jul 2024 19:48:57 GMT*
-
-
-## Gillian Jacobs
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+*Published on: Tue, 16 Jul 2024 09:48:57 GMT*
 
 
 ## Gillian Jacobs
@@ -1459,11 +1459,20 @@ COMME des GARÇONS and Nike are back together, and as you may have suspected, th
 
 ## Jason Mantzoukas
 
-## [Valentino Launches Hard-to-Get ‘Haute Couture’ Fragrance](https://www.highsnobiety.com/p/valentino-anatomy-of-dreams-fragrance/)
+## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
 
-Valentino's Haute Couture division now has a fragrance line to match. On Monday, the Italian fashion house unveiled its latest beauty venture, a collection of …
+Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
 
-*Published on: Mon, 15 Jul 2024 17:05:08 GMT*
+*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+
+
+## Jason Mantzoukas
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
 ## Jason Mantzoukas
@@ -1472,7 +1481,7 @@ Valentino's Haute Couture division now has a fragrance line to match. On Monday,
 
 And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gold...with a new so-called "Sanded Gold" colorway.Indeed, more breathable elderly …
 
-*Published on: Mon, 15 Jul 2024 17:14:42 GMT*
+*Published on: Tue, 16 Jul 2024 07:14:42 GMT*
 
 
 ## Jason Mantzoukas
@@ -1481,16 +1490,7 @@ And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gol
 
 Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
 
-*Published on: Mon, 15 Jul 2024 19:48:57 GMT*
-
-
-## Jason Mantzoukas
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+*Published on: Tue, 16 Jul 2024 09:48:57 GMT*
 
 
 ## Jason Mantzoukas
@@ -1540,11 +1540,20 @@ COMME des GARÇONS and Nike are back together, and as you may have suspected, th
 
 ## JB Smoove
 
-## [Valentino Launches Hard-to-Get ‘Haute Couture’ Fragrance](https://www.highsnobiety.com/p/valentino-anatomy-of-dreams-fragrance/)
+## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
 
-Valentino's Haute Couture division now has a fragrance line to match. On Monday, the Italian fashion house unveiled its latest beauty venture, a collection of …
+Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
 
-*Published on: Mon, 15 Jul 2024 17:05:08 GMT*
+*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+
+
+## JB Smoove
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
 ## JB Smoove
@@ -1553,7 +1562,7 @@ Valentino's Haute Couture division now has a fragrance line to match. On Monday,
 
 And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gold...with a new so-called "Sanded Gold" colorway.Indeed, more breathable elderly …
 
-*Published on: Mon, 15 Jul 2024 17:14:42 GMT*
+*Published on: Tue, 16 Jul 2024 07:14:42 GMT*
 
 
 ## JB Smoove
@@ -1562,16 +1571,7 @@ And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gol
 
 Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
 
-*Published on: Mon, 15 Jul 2024 19:48:57 GMT*
-
-
-## JB Smoove
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+*Published on: Tue, 16 Jul 2024 09:48:57 GMT*
 
 
 ## JB Smoove
@@ -1621,11 +1621,20 @@ COMME des GARÇONS and Nike are back together, and as you may have suspected, th
 
 ## Madison Pettis
 
-## [Valentino Launches Hard-to-Get ‘Haute Couture’ Fragrance](https://www.highsnobiety.com/p/valentino-anatomy-of-dreams-fragrance/)
+## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
 
-Valentino's Haute Couture division now has a fragrance line to match. On Monday, the Italian fashion house unveiled its latest beauty venture, a collection of …
+Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
 
-*Published on: Mon, 15 Jul 2024 17:05:08 GMT*
+*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+
+
+## Madison Pettis
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
 ## Madison Pettis
@@ -1634,7 +1643,7 @@ Valentino's Haute Couture division now has a fragrance line to match. On Monday,
 
 And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gold...with a new so-called "Sanded Gold" colorway.Indeed, more breathable elderly …
 
-*Published on: Mon, 15 Jul 2024 17:14:42 GMT*
+*Published on: Tue, 16 Jul 2024 07:14:42 GMT*
 
 
 ## Madison Pettis
@@ -1643,16 +1652,7 @@ And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gol
 
 Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
 
-*Published on: Mon, 15 Jul 2024 19:48:57 GMT*
-
-
-## Madison Pettis
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+*Published on: Tue, 16 Jul 2024 09:48:57 GMT*
 
 
 ## Madison Pettis
@@ -1702,11 +1702,20 @@ COMME des GARÇONS and Nike are back together, and as you may have suspected, th
 
 ## Austin Butler
 
-## [Valentino Launches Hard-to-Get ‘Haute Couture’ Fragrance](https://www.highsnobiety.com/p/valentino-anatomy-of-dreams-fragrance/)
+## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
 
-Valentino's Haute Couture division now has a fragrance line to match. On Monday, the Italian fashion house unveiled its latest beauty venture, a collection of …
+Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
 
-*Published on: Mon, 15 Jul 2024 17:05:08 GMT*
+*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+
+
+## Austin Butler
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
 ## Austin Butler
@@ -1715,7 +1724,7 @@ Valentino's Haute Couture division now has a fragrance line to match. On Monday,
 
 And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gold...with a new so-called "Sanded Gold" colorway.Indeed, more breathable elderly …
 
-*Published on: Mon, 15 Jul 2024 17:14:42 GMT*
+*Published on: Tue, 16 Jul 2024 07:14:42 GMT*
 
 
 ## Austin Butler
@@ -1724,16 +1733,7 @@ And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gol
 
 Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
 
-*Published on: Mon, 15 Jul 2024 19:48:57 GMT*
-
-
-## Austin Butler
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+*Published on: Tue, 16 Jul 2024 09:48:57 GMT*
 
 
 ## Austin Butler
@@ -1783,11 +1783,20 @@ COMME des GARÇONS and Nike are back together, and as you may have suspected, th
 
 ## Mark Zuckerberg
 
-## [Valentino Launches Hard-to-Get ‘Haute Couture’ Fragrance](https://www.highsnobiety.com/p/valentino-anatomy-of-dreams-fragrance/)
+## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
 
-Valentino's Haute Couture division now has a fragrance line to match. On Monday, the Italian fashion house unveiled its latest beauty venture, a collection of …
+Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
 
-*Published on: Mon, 15 Jul 2024 17:05:08 GMT*
+*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+
+
+## Mark Zuckerberg
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
 ## Mark Zuckerberg
@@ -1796,7 +1805,7 @@ Valentino's Haute Couture division now has a fragrance line to match. On Monday,
 
 And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gold...with a new so-called "Sanded Gold" colorway.Indeed, more breathable elderly …
 
-*Published on: Mon, 15 Jul 2024 17:14:42 GMT*
+*Published on: Tue, 16 Jul 2024 07:14:42 GMT*
 
 
 ## Mark Zuckerberg
@@ -1805,16 +1814,7 @@ And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gol
 
 Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
 
-*Published on: Mon, 15 Jul 2024 19:48:57 GMT*
-
-
-## Mark Zuckerberg
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+*Published on: Tue, 16 Jul 2024 09:48:57 GMT*
 
 
 ## Mark Zuckerberg
@@ -1864,11 +1864,20 @@ COMME des GARÇONS and Nike are back together, and as you may have suspected, th
 
 ## Ariana Grande
 
-## [Valentino Launches Hard-to-Get ‘Haute Couture’ Fragrance](https://www.highsnobiety.com/p/valentino-anatomy-of-dreams-fragrance/)
+## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
 
-Valentino's Haute Couture division now has a fragrance line to match. On Monday, the Italian fashion house unveiled its latest beauty venture, a collection of …
+Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
 
-*Published on: Mon, 15 Jul 2024 17:05:08 GMT*
+*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+
+
+## Ariana Grande
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
 ## Ariana Grande
@@ -1877,7 +1886,7 @@ Valentino's Haute Couture division now has a fragrance line to match. On Monday,
 
 And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gold...with a new so-called "Sanded Gold" colorway.Indeed, more breathable elderly …
 
-*Published on: Mon, 15 Jul 2024 17:14:42 GMT*
+*Published on: Tue, 16 Jul 2024 07:14:42 GMT*
 
 
 ## Ariana Grande
@@ -1886,16 +1895,7 @@ And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gol
 
 Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
 
-*Published on: Mon, 15 Jul 2024 19:48:57 GMT*
-
-
-## Ariana Grande
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+*Published on: Tue, 16 Jul 2024 09:48:57 GMT*
 
 
 ## Ariana Grande
@@ -1945,11 +1945,20 @@ COMME des GARÇONS and Nike are back together, and as you may have suspected, th
 
 ## Livvy Dunne
 
-## [Valentino Launches Hard-to-Get ‘Haute Couture’ Fragrance](https://www.highsnobiety.com/p/valentino-anatomy-of-dreams-fragrance/)
+## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
 
-Valentino's Haute Couture division now has a fragrance line to match. On Monday, the Italian fashion house unveiled its latest beauty venture, a collection of …
+Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
 
-*Published on: Mon, 15 Jul 2024 17:05:08 GMT*
+*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+
+
+## Livvy Dunne
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
 ## Livvy Dunne
@@ -1958,7 +1967,7 @@ Valentino's Haute Couture division now has a fragrance line to match. On Monday,
 
 And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gold...with a new so-called "Sanded Gold" colorway.Indeed, more breathable elderly …
 
-*Published on: Mon, 15 Jul 2024 17:14:42 GMT*
+*Published on: Tue, 16 Jul 2024 07:14:42 GMT*
 
 
 ## Livvy Dunne
@@ -1967,16 +1976,7 @@ And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gol
 
 Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
 
-*Published on: Mon, 15 Jul 2024 19:48:57 GMT*
-
-
-## Livvy Dunne
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+*Published on: Tue, 16 Jul 2024 09:48:57 GMT*
 
 
 ## Livvy Dunne
@@ -2026,11 +2026,20 @@ COMME des GARÇONS and Nike are back together, and as you may have suspected, th
 
 ## Ali Wong
 
-## [Valentino Launches Hard-to-Get ‘Haute Couture’ Fragrance](https://www.highsnobiety.com/p/valentino-anatomy-of-dreams-fragrance/)
+## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
 
-Valentino's Haute Couture division now has a fragrance line to match. On Monday, the Italian fashion house unveiled its latest beauty venture, a collection of …
+Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
 
-*Published on: Mon, 15 Jul 2024 17:05:08 GMT*
+*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+
+
+## Ali Wong
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
 ## Ali Wong
@@ -2039,7 +2048,7 @@ Valentino's Haute Couture division now has a fragrance line to match. On Monday,
 
 And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gold...with a new so-called "Sanded Gold" colorway.Indeed, more breathable elderly …
 
-*Published on: Mon, 15 Jul 2024 17:14:42 GMT*
+*Published on: Tue, 16 Jul 2024 07:14:42 GMT*
 
 
 ## Ali Wong
@@ -2048,16 +2057,7 @@ And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gol
 
 Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
 
-*Published on: Mon, 15 Jul 2024 19:48:57 GMT*
-
-
-## Ali Wong
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+*Published on: Tue, 16 Jul 2024 09:48:57 GMT*
 
 
 ## Ali Wong
@@ -2107,11 +2107,20 @@ COMME des GARÇONS and Nike are back together, and as you may have suspected, th
 
 ## Lizzo
 
-## [Valentino Launches Hard-to-Get ‘Haute Couture’ Fragrance](https://www.highsnobiety.com/p/valentino-anatomy-of-dreams-fragrance/)
+## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
 
-Valentino's Haute Couture division now has a fragrance line to match. On Monday, the Italian fashion house unveiled its latest beauty venture, a collection of …
+Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
 
-*Published on: Mon, 15 Jul 2024 17:05:08 GMT*
+*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+
+
+## Lizzo
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
 ## Lizzo
@@ -2120,7 +2129,7 @@ Valentino's Haute Couture division now has a fragrance line to match. On Monday,
 
 And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gold...with a new so-called "Sanded Gold" colorway.Indeed, more breathable elderly …
 
-*Published on: Mon, 15 Jul 2024 17:14:42 GMT*
+*Published on: Tue, 16 Jul 2024 07:14:42 GMT*
 
 
 ## Lizzo
@@ -2129,16 +2138,7 @@ And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gol
 
 Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
 
-*Published on: Mon, 15 Jul 2024 19:48:57 GMT*
-
-
-## Lizzo
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+*Published on: Tue, 16 Jul 2024 09:48:57 GMT*
 
 
 ## Lizzo
@@ -2188,11 +2188,20 @@ COMME des GARÇONS and Nike are back together, and as you may have suspected, th
 
 ## Alison Brie
 
-## [Valentino Launches Hard-to-Get ‘Haute Couture’ Fragrance](https://www.highsnobiety.com/p/valentino-anatomy-of-dreams-fragrance/)
+## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
 
-Valentino's Haute Couture division now has a fragrance line to match. On Monday, the Italian fashion house unveiled its latest beauty venture, a collection of …
+Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
 
-*Published on: Mon, 15 Jul 2024 17:05:08 GMT*
+*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+
+
+## Alison Brie
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
 ## Alison Brie
@@ -2201,7 +2210,7 @@ Valentino's Haute Couture division now has a fragrance line to match. On Monday,
 
 And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gold...with a new so-called "Sanded Gold" colorway.Indeed, more breathable elderly …
 
-*Published on: Mon, 15 Jul 2024 17:14:42 GMT*
+*Published on: Tue, 16 Jul 2024 07:14:42 GMT*
 
 
 ## Alison Brie
@@ -2210,16 +2219,7 @@ And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gol
 
 Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
 
-*Published on: Mon, 15 Jul 2024 19:48:57 GMT*
-
-
-## Alison Brie
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+*Published on: Tue, 16 Jul 2024 09:48:57 GMT*
 
 
 ## Alison Brie
@@ -2269,11 +2269,20 @@ COMME des GARÇONS and Nike are back together, and as you may have suspected, th
 
 ## Lil Wayne
 
-## [Valentino Launches Hard-to-Get ‘Haute Couture’ Fragrance](https://www.highsnobiety.com/p/valentino-anatomy-of-dreams-fragrance/)
+## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
 
-Valentino's Haute Couture division now has a fragrance line to match. On Monday, the Italian fashion house unveiled its latest beauty venture, a collection of …
+Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
 
-*Published on: Mon, 15 Jul 2024 17:05:08 GMT*
+*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+
+
+## Lil Wayne
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
 ## Lil Wayne
@@ -2282,7 +2291,7 @@ Valentino's Haute Couture division now has a fragrance line to match. On Monday,
 
 And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gold...with a new so-called "Sanded Gold" colorway.Indeed, more breathable elderly …
 
-*Published on: Mon, 15 Jul 2024 17:14:42 GMT*
+*Published on: Tue, 16 Jul 2024 07:14:42 GMT*
 
 
 ## Lil Wayne
@@ -2291,16 +2300,7 @@ And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gol
 
 Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
 
-*Published on: Mon, 15 Jul 2024 19:48:57 GMT*
-
-
-## Lil Wayne
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+*Published on: Tue, 16 Jul 2024 09:48:57 GMT*
 
 
 ## Lil Wayne
@@ -2350,11 +2350,20 @@ COMME des GARÇONS and Nike are back together, and as you may have suspected, th
 
 ## Adele
 
-## [Valentino Launches Hard-to-Get ‘Haute Couture’ Fragrance](https://www.highsnobiety.com/p/valentino-anatomy-of-dreams-fragrance/)
+## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
 
-Valentino's Haute Couture division now has a fragrance line to match. On Monday, the Italian fashion house unveiled its latest beauty venture, a collection of …
+Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
 
-*Published on: Mon, 15 Jul 2024 17:05:08 GMT*
+*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+
+
+## Adele
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
 ## Adele
@@ -2363,7 +2372,7 @@ Valentino's Haute Couture division now has a fragrance line to match. On Monday,
 
 And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gold...with a new so-called "Sanded Gold" colorway.Indeed, more breathable elderly …
 
-*Published on: Mon, 15 Jul 2024 17:14:42 GMT*
+*Published on: Tue, 16 Jul 2024 07:14:42 GMT*
 
 
 ## Adele
@@ -2372,16 +2381,7 @@ And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gol
 
 Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
 
-*Published on: Mon, 15 Jul 2024 19:48:57 GMT*
-
-
-## Adele
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+*Published on: Tue, 16 Jul 2024 09:48:57 GMT*
 
 
 ## Adele
@@ -2431,11 +2431,20 @@ COMME des GARÇONS and Nike are back together, and as you may have suspected, th
 
 ## Lindsay Lohan
 
-## [Valentino Launches Hard-to-Get ‘Haute Couture’ Fragrance](https://www.highsnobiety.com/p/valentino-anatomy-of-dreams-fragrance/)
+## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
 
-Valentino's Haute Couture division now has a fragrance line to match. On Monday, the Italian fashion house unveiled its latest beauty venture, a collection of …
+Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
 
-*Published on: Mon, 15 Jul 2024 17:05:08 GMT*
+*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+
+
+## Lindsay Lohan
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
 ## Lindsay Lohan
@@ -2444,7 +2453,7 @@ Valentino's Haute Couture division now has a fragrance line to match. On Monday,
 
 And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gold...with a new so-called "Sanded Gold" colorway.Indeed, more breathable elderly …
 
-*Published on: Mon, 15 Jul 2024 17:14:42 GMT*
+*Published on: Tue, 16 Jul 2024 07:14:42 GMT*
 
 
 ## Lindsay Lohan
@@ -2453,16 +2462,7 @@ And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gol
 
 Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
 
-*Published on: Mon, 15 Jul 2024 19:48:57 GMT*
-
-
-## Lindsay Lohan
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+*Published on: Tue, 16 Jul 2024 09:48:57 GMT*
 
 
 ## Lindsay Lohan
@@ -2512,11 +2512,20 @@ COMME des GARÇONS and Nike are back together, and as you may have suspected, th
 
 ## Addison Rae
 
-## [Valentino Launches Hard-to-Get ‘Haute Couture’ Fragrance](https://www.highsnobiety.com/p/valentino-anatomy-of-dreams-fragrance/)
+## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
 
-Valentino's Haute Couture division now has a fragrance line to match. On Monday, the Italian fashion house unveiled its latest beauty venture, a collection of …
+Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
 
-*Published on: Mon, 15 Jul 2024 17:05:08 GMT*
+*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+
+
+## Addison Rae
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
 ## Addison Rae
@@ -2525,7 +2534,7 @@ Valentino's Haute Couture division now has a fragrance line to match. On Monday,
 
 And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gold...with a new so-called "Sanded Gold" colorway.Indeed, more breathable elderly …
 
-*Published on: Mon, 15 Jul 2024 17:14:42 GMT*
+*Published on: Tue, 16 Jul 2024 07:14:42 GMT*
 
 
 ## Addison Rae
@@ -2534,16 +2543,7 @@ And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gol
 
 Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
 
-*Published on: Mon, 15 Jul 2024 19:48:57 GMT*
-
-
-## Addison Rae
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+*Published on: Tue, 16 Jul 2024 09:48:57 GMT*
 
 
 ## Addison Rae
@@ -2593,11 +2593,20 @@ COMME des GARÇONS and Nike are back together, and as you may have suspected, th
 
 ## Latto
 
-## [Valentino Launches Hard-to-Get ‘Haute Couture’ Fragrance](https://www.highsnobiety.com/p/valentino-anatomy-of-dreams-fragrance/)
+## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
 
-Valentino's Haute Couture division now has a fragrance line to match. On Monday, the Italian fashion house unveiled its latest beauty venture, a collection of …
+Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
 
-*Published on: Mon, 15 Jul 2024 17:05:08 GMT*
+*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+
+
+## Latto
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
 ## Latto
@@ -2606,7 +2615,7 @@ Valentino's Haute Couture division now has a fragrance line to match. On Monday,
 
 And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gold...with a new so-called "Sanded Gold" colorway.Indeed, more breathable elderly …
 
-*Published on: Mon, 15 Jul 2024 17:14:42 GMT*
+*Published on: Tue, 16 Jul 2024 07:14:42 GMT*
 
 
 ## Latto
@@ -2615,16 +2624,7 @@ And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gol
 
 Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
 
-*Published on: Mon, 15 Jul 2024 19:48:57 GMT*
-
-
-## Latto
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+*Published on: Tue, 16 Jul 2024 09:48:57 GMT*
 
 
 ## Latto
@@ -2674,11 +2674,20 @@ COMME des GARÇONS and Nike are back together, and as you may have suspected, th
 
 ## Aaron Paul
 
-## [Valentino Launches Hard-to-Get ‘Haute Couture’ Fragrance](https://www.highsnobiety.com/p/valentino-anatomy-of-dreams-fragrance/)
+## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
 
-Valentino's Haute Couture division now has a fragrance line to match. On Monday, the Italian fashion house unveiled its latest beauty venture, a collection of …
+Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
 
-*Published on: Mon, 15 Jul 2024 17:05:08 GMT*
+*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+
+
+## Aaron Paul
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
 ## Aaron Paul
@@ -2687,7 +2696,7 @@ Valentino's Haute Couture division now has a fragrance line to match. On Monday,
 
 And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gold...with a new so-called "Sanded Gold" colorway.Indeed, more breathable elderly …
 
-*Published on: Mon, 15 Jul 2024 17:14:42 GMT*
+*Published on: Tue, 16 Jul 2024 07:14:42 GMT*
 
 
 ## Aaron Paul
@@ -2696,16 +2705,7 @@ And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gol
 
 Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
 
-*Published on: Mon, 15 Jul 2024 19:48:57 GMT*
-
-
-## Aaron Paul
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+*Published on: Tue, 16 Jul 2024 09:48:57 GMT*
 
 
 ## Aaron Paul
@@ -2755,11 +2755,20 @@ COMME des GARÇONS and Nike are back together, and as you may have suspected, th
 
 ## LeBron James
 
-## [Valentino Launches Hard-to-Get ‘Haute Couture’ Fragrance](https://www.highsnobiety.com/p/valentino-anatomy-of-dreams-fragrance/)
+## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
 
-Valentino's Haute Couture division now has a fragrance line to match. On Monday, the Italian fashion house unveiled its latest beauty venture, a collection of …
+Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
 
-*Published on: Mon, 15 Jul 2024 17:05:08 GMT*
+*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+
+
+## LeBron James
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
 ## LeBron James
@@ -2768,7 +2777,7 @@ Valentino's Haute Couture division now has a fragrance line to match. On Monday,
 
 And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gold...with a new so-called "Sanded Gold" colorway.Indeed, more breathable elderly …
 
-*Published on: Mon, 15 Jul 2024 17:14:42 GMT*
+*Published on: Tue, 16 Jul 2024 07:14:42 GMT*
 
 
 ## LeBron James
@@ -2777,16 +2786,7 @@ And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gol
 
 Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
 
-*Published on: Mon, 15 Jul 2024 19:48:57 GMT*
-
-
-## LeBron James
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+*Published on: Tue, 16 Jul 2024 09:48:57 GMT*
 
 
 ## LeBron James
@@ -2836,11 +2836,20 @@ COMME des GARÇONS and Nike are back together, and as you may have suspected, th
 
 ## 50 Cent
 
-## [Valentino Launches Hard-to-Get ‘Haute Couture’ Fragrance](https://www.highsnobiety.com/p/valentino-anatomy-of-dreams-fragrance/)
+## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
 
-Valentino's Haute Couture division now has a fragrance line to match. On Monday, the Italian fashion house unveiled its latest beauty venture, a collection of …
+Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
 
-*Published on: Mon, 15 Jul 2024 17:05:08 GMT*
+*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+
+
+## 50 Cent
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
 ## 50 Cent
@@ -2849,7 +2858,7 @@ Valentino's Haute Couture division now has a fragrance line to match. On Monday,
 
 And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gold...with a new so-called "Sanded Gold" colorway.Indeed, more breathable elderly …
 
-*Published on: Mon, 15 Jul 2024 17:14:42 GMT*
+*Published on: Tue, 16 Jul 2024 07:14:42 GMT*
 
 
 ## 50 Cent
@@ -2858,16 +2867,7 @@ And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gol
 
 Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
 
-*Published on: Mon, 15 Jul 2024 19:48:57 GMT*
-
-
-## 50 Cent
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+*Published on: Tue, 16 Jul 2024 09:48:57 GMT*
 
 
 ## 50 Cent
@@ -2917,11 +2917,20 @@ COMME des GARÇONS and Nike are back together, and as you may have suspected, th
 
 ## Kesha
 
-## [Valentino Launches Hard-to-Get ‘Haute Couture’ Fragrance](https://www.highsnobiety.com/p/valentino-anatomy-of-dreams-fragrance/)
+## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
 
-Valentino's Haute Couture division now has a fragrance line to match. On Monday, the Italian fashion house unveiled its latest beauty venture, a collection of …
+Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
 
-*Published on: Mon, 15 Jul 2024 17:05:08 GMT*
+*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+
+
+## Kesha
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
 ## Kesha
@@ -2930,7 +2939,7 @@ Valentino's Haute Couture division now has a fragrance line to match. On Monday,
 
 And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gold...with a new so-called "Sanded Gold" colorway.Indeed, more breathable elderly …
 
-*Published on: Mon, 15 Jul 2024 17:14:42 GMT*
+*Published on: Tue, 16 Jul 2024 07:14:42 GMT*
 
 
 ## Kesha
@@ -2939,16 +2948,7 @@ And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gol
 
 Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
 
-*Published on: Mon, 15 Jul 2024 19:48:57 GMT*
-
-
-## Kesha
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+*Published on: Tue, 16 Jul 2024 09:48:57 GMT*
 
 
 ## Kesha
@@ -2998,11 +2998,20 @@ COMME des GARÇONS and Nike are back together, and as you may have suspected, th
 
 ## 21 Savage
 
-## [Valentino Launches Hard-to-Get ‘Haute Couture’ Fragrance](https://www.highsnobiety.com/p/valentino-anatomy-of-dreams-fragrance/)
+## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
 
-Valentino's Haute Couture division now has a fragrance line to match. On Monday, the Italian fashion house unveiled its latest beauty venture, a collection of …
+Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
 
-*Published on: Mon, 15 Jul 2024 17:05:08 GMT*
+*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+
+
+## 21 Savage
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
 ## 21 Savage
@@ -3011,7 +3020,7 @@ Valentino's Haute Couture division now has a fragrance line to match. On Monday,
 
 And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gold...with a new so-called "Sanded Gold" colorway.Indeed, more breathable elderly …
 
-*Published on: Mon, 15 Jul 2024 17:14:42 GMT*
+*Published on: Tue, 16 Jul 2024 07:14:42 GMT*
 
 
 ## 21 Savage
@@ -3020,16 +3029,7 @@ And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gol
 
 Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
 
-*Published on: Mon, 15 Jul 2024 19:48:57 GMT*
-
-
-## 21 Savage
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+*Published on: Tue, 16 Jul 2024 09:48:57 GMT*
 
 
 ## 21 Savage
@@ -3079,11 +3079,20 @@ COMME des GARÇONS and Nike are back together, and as you may have suspected, th
 
 ## Larry David
 
-## [Valentino Launches Hard-to-Get ‘Haute Couture’ Fragrance](https://www.highsnobiety.com/p/valentino-anatomy-of-dreams-fragrance/)
+## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
 
-Valentino's Haute Couture division now has a fragrance line to match. On Monday, the Italian fashion house unveiled its latest beauty venture, a collection of …
+Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
 
-*Published on: Mon, 15 Jul 2024 17:05:08 GMT*
+*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+
+
+## Larry David
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
 ## Larry David
@@ -3092,7 +3101,7 @@ Valentino's Haute Couture division now has a fragrance line to match. On Monday,
 
 And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gold...with a new so-called "Sanded Gold" colorway.Indeed, more breathable elderly …
 
-*Published on: Mon, 15 Jul 2024 17:14:42 GMT*
+*Published on: Tue, 16 Jul 2024 07:14:42 GMT*
 
 
 ## Larry David
@@ -3101,16 +3110,7 @@ And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gol
 
 Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
 
-*Published on: Mon, 15 Jul 2024 19:48:57 GMT*
-
-
-## Larry David
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+*Published on: Tue, 16 Jul 2024 09:48:57 GMT*
 
 
 ## Larry David
@@ -3160,11 +3160,20 @@ COMME des GARÇONS and Nike are back together, and as you may have suspected, th
 
 ## Seth Rogan
 
-## [Valentino Launches Hard-to-Get ‘Haute Couture’ Fragrance](https://www.highsnobiety.com/p/valentino-anatomy-of-dreams-fragrance/)
+## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
 
-Valentino's Haute Couture division now has a fragrance line to match. On Monday, the Italian fashion house unveiled its latest beauty venture, a collection of …
+Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
 
-*Published on: Mon, 15 Jul 2024 17:05:08 GMT*
+*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+
+
+## Seth Rogan
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
 ## Seth Rogan
@@ -3173,7 +3182,7 @@ Valentino's Haute Couture division now has a fragrance line to match. On Monday,
 
 And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gold...with a new so-called "Sanded Gold" colorway.Indeed, more breathable elderly …
 
-*Published on: Mon, 15 Jul 2024 17:14:42 GMT*
+*Published on: Tue, 16 Jul 2024 07:14:42 GMT*
 
 
 ## Seth Rogan
@@ -3182,16 +3191,7 @@ And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gol
 
 Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
 
-*Published on: Mon, 15 Jul 2024 19:48:57 GMT*
-
-
-## Seth Rogan
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+*Published on: Tue, 16 Jul 2024 09:48:57 GMT*
 
 
 ## Seth Rogan
@@ -3241,11 +3241,20 @@ COMME des GARÇONS and Nike are back together, and as you may have suspected, th
 
 ## Simone Biles
 
-## [Valentino Launches Hard-to-Get ‘Haute Couture’ Fragrance](https://www.highsnobiety.com/p/valentino-anatomy-of-dreams-fragrance/)
+## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
 
-Valentino's Haute Couture division now has a fragrance line to match. On Monday, the Italian fashion house unveiled its latest beauty venture, a collection of …
+Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
 
-*Published on: Mon, 15 Jul 2024 17:05:08 GMT*
+*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+
+
+## Simone Biles
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
 ## Simone Biles
@@ -3254,7 +3263,7 @@ Valentino's Haute Couture division now has a fragrance line to match. On Monday,
 
 And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gold...with a new so-called "Sanded Gold" colorway.Indeed, more breathable elderly …
 
-*Published on: Mon, 15 Jul 2024 17:14:42 GMT*
+*Published on: Tue, 16 Jul 2024 07:14:42 GMT*
 
 
 ## Simone Biles
@@ -3263,16 +3272,7 @@ And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gol
 
 Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
 
-*Published on: Mon, 15 Jul 2024 19:48:57 GMT*
-
-
-## Simone Biles
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+*Published on: Tue, 16 Jul 2024 09:48:57 GMT*
 
 
 ## Simone Biles
@@ -3322,11 +3322,20 @@ COMME des GARÇONS and Nike are back together, and as you may have suspected, th
 
 ## Pete Davidson
 
-## [Valentino Launches Hard-to-Get ‘Haute Couture’ Fragrance](https://www.highsnobiety.com/p/valentino-anatomy-of-dreams-fragrance/)
+## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
 
-Valentino's Haute Couture division now has a fragrance line to match. On Monday, the Italian fashion house unveiled its latest beauty venture, a collection of …
+Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
 
-*Published on: Mon, 15 Jul 2024 17:05:08 GMT*
+*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+
+
+## Pete Davidson
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
 ## Pete Davidson
@@ -3335,7 +3344,7 @@ Valentino's Haute Couture division now has a fragrance line to match. On Monday,
 
 And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gold...with a new so-called "Sanded Gold" colorway.Indeed, more breathable elderly …
 
-*Published on: Mon, 15 Jul 2024 17:14:42 GMT*
+*Published on: Tue, 16 Jul 2024 07:14:42 GMT*
 
 
 ## Pete Davidson
@@ -3344,16 +3353,7 @@ And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gol
 
 Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
 
-*Published on: Mon, 15 Jul 2024 19:48:57 GMT*
-
-
-## Pete Davidson
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+*Published on: Tue, 16 Jul 2024 09:48:57 GMT*
 
 
 ## Pete Davidson
@@ -3403,11 +3403,20 @@ COMME des GARÇONS and Nike are back together, and as you may have suspected, th
 
 ## Prince Harry
 
-## [Valentino Launches Hard-to-Get ‘Haute Couture’ Fragrance](https://www.highsnobiety.com/p/valentino-anatomy-of-dreams-fragrance/)
+## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
 
-Valentino's Haute Couture division now has a fragrance line to match. On Monday, the Italian fashion house unveiled its latest beauty venture, a collection of …
+Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
 
-*Published on: Mon, 15 Jul 2024 17:05:08 GMT*
+*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+
+
+## Prince Harry
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
 ## Prince Harry
@@ -3416,7 +3425,7 @@ Valentino's Haute Couture division now has a fragrance line to match. On Monday,
 
 And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gold...with a new so-called "Sanded Gold" colorway.Indeed, more breathable elderly …
 
-*Published on: Mon, 15 Jul 2024 17:14:42 GMT*
+*Published on: Tue, 16 Jul 2024 07:14:42 GMT*
 
 
 ## Prince Harry
@@ -3425,16 +3434,7 @@ And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gol
 
 Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
 
-*Published on: Mon, 15 Jul 2024 19:48:57 GMT*
-
-
-## Prince Harry
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+*Published on: Tue, 16 Jul 2024 09:48:57 GMT*
 
 
 ## Prince Harry
@@ -3484,11 +3484,20 @@ COMME des GARÇONS and Nike are back together, and as you may have suspected, th
 
 ## Princess of Wales
 
-## [Valentino Launches Hard-to-Get ‘Haute Couture’ Fragrance](https://www.highsnobiety.com/p/valentino-anatomy-of-dreams-fragrance/)
+## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
 
-Valentino's Haute Couture division now has a fragrance line to match. On Monday, the Italian fashion house unveiled its latest beauty venture, a collection of …
+Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
 
-*Published on: Mon, 15 Jul 2024 17:05:08 GMT*
+*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+
+
+## Princess of Wales
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
 ## Princess of Wales
@@ -3497,7 +3506,7 @@ Valentino's Haute Couture division now has a fragrance line to match. On Monday,
 
 And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gold...with a new so-called "Sanded Gold" colorway.Indeed, more breathable elderly …
 
-*Published on: Mon, 15 Jul 2024 17:14:42 GMT*
+*Published on: Tue, 16 Jul 2024 07:14:42 GMT*
 
 
 ## Princess of Wales
@@ -3506,16 +3515,7 @@ And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gol
 
 Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
 
-*Published on: Mon, 15 Jul 2024 19:48:57 GMT*
-
-
-## Princess of Wales
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+*Published on: Tue, 16 Jul 2024 09:48:57 GMT*
 
 
 ## Princess of Wales
@@ -3565,11 +3565,20 @@ COMME des GARÇONS and Nike are back together, and as you may have suspected, th
 
 ## Rachel McAdams
 
-## [Valentino Launches Hard-to-Get ‘Haute Couture’ Fragrance](https://www.highsnobiety.com/p/valentino-anatomy-of-dreams-fragrance/)
+## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
 
-Valentino's Haute Couture division now has a fragrance line to match. On Monday, the Italian fashion house unveiled its latest beauty venture, a collection of …
+Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
 
-*Published on: Mon, 15 Jul 2024 17:05:08 GMT*
+*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+
+
+## Rachel McAdams
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
 ## Rachel McAdams
@@ -3578,7 +3587,7 @@ Valentino's Haute Couture division now has a fragrance line to match. On Monday,
 
 And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gold...with a new so-called "Sanded Gold" colorway.Indeed, more breathable elderly …
 
-*Published on: Mon, 15 Jul 2024 17:14:42 GMT*
+*Published on: Tue, 16 Jul 2024 07:14:42 GMT*
 
 
 ## Rachel McAdams
@@ -3587,16 +3596,7 @@ And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gol
 
 Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
 
-*Published on: Mon, 15 Jul 2024 19:48:57 GMT*
-
-
-## Rachel McAdams
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+*Published on: Tue, 16 Jul 2024 09:48:57 GMT*
 
 
 ## Rachel McAdams
@@ -3646,11 +3646,20 @@ COMME des GARÇONS and Nike are back together, and as you may have suspected, th
 
 ## Reneé Rapp
 
-## [Valentino Launches Hard-to-Get ‘Haute Couture’ Fragrance](https://www.highsnobiety.com/p/valentino-anatomy-of-dreams-fragrance/)
+## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
 
-Valentino's Haute Couture division now has a fragrance line to match. On Monday, the Italian fashion house unveiled its latest beauty venture, a collection of …
+Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
 
-*Published on: Mon, 15 Jul 2024 17:05:08 GMT*
+*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+
+
+## Reneé Rapp
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
 ## Reneé Rapp
@@ -3659,7 +3668,7 @@ Valentino's Haute Couture division now has a fragrance line to match. On Monday,
 
 And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gold...with a new so-called "Sanded Gold" colorway.Indeed, more breathable elderly …
 
-*Published on: Mon, 15 Jul 2024 17:14:42 GMT*
+*Published on: Tue, 16 Jul 2024 07:14:42 GMT*
 
 
 ## Reneé Rapp
@@ -3668,16 +3677,7 @@ And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gol
 
 Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
 
-*Published on: Mon, 15 Jul 2024 19:48:57 GMT*
-
-
-## Reneé Rapp
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+*Published on: Tue, 16 Jul 2024 09:48:57 GMT*
 
 
 ## Reneé Rapp
@@ -3727,11 +3727,20 @@ COMME des GARÇONS and Nike are back together, and as you may have suspected, th
 
 ## Rick Ross
 
-## [Valentino Launches Hard-to-Get ‘Haute Couture’ Fragrance](https://www.highsnobiety.com/p/valentino-anatomy-of-dreams-fragrance/)
+## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
 
-Valentino's Haute Couture division now has a fragrance line to match. On Monday, the Italian fashion house unveiled its latest beauty venture, a collection of …
+Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
 
-*Published on: Mon, 15 Jul 2024 17:05:08 GMT*
+*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+
+
+## Rick Ross
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
 ## Rick Ross
@@ -3740,7 +3749,7 @@ Valentino's Haute Couture division now has a fragrance line to match. On Monday,
 
 And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gold...with a new so-called "Sanded Gold" colorway.Indeed, more breathable elderly …
 
-*Published on: Mon, 15 Jul 2024 17:14:42 GMT*
+*Published on: Tue, 16 Jul 2024 07:14:42 GMT*
 
 
 ## Rick Ross
@@ -3749,16 +3758,7 @@ And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gol
 
 Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
 
-*Published on: Mon, 15 Jul 2024 19:48:57 GMT*
-
-
-## Rick Ross
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+*Published on: Tue, 16 Jul 2024 09:48:57 GMT*
 
 
 ## Rick Ross
@@ -3808,11 +3808,20 @@ COMME des GARÇONS and Nike are back together, and as you may have suspected, th
 
 ## Sam Ashgari
 
-## [Valentino Launches Hard-to-Get ‘Haute Couture’ Fragrance](https://www.highsnobiety.com/p/valentino-anatomy-of-dreams-fragrance/)
+## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
 
-Valentino's Haute Couture division now has a fragrance line to match. On Monday, the Italian fashion house unveiled its latest beauty venture, a collection of …
+Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
 
-*Published on: Mon, 15 Jul 2024 17:05:08 GMT*
+*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+
+
+## Sam Ashgari
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
 ## Sam Ashgari
@@ -3821,7 +3830,7 @@ Valentino's Haute Couture division now has a fragrance line to match. On Monday,
 
 And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gold...with a new so-called "Sanded Gold" colorway.Indeed, more breathable elderly …
 
-*Published on: Mon, 15 Jul 2024 17:14:42 GMT*
+*Published on: Tue, 16 Jul 2024 07:14:42 GMT*
 
 
 ## Sam Ashgari
@@ -3830,16 +3839,7 @@ And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gol
 
 Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
 
-*Published on: Mon, 15 Jul 2024 19:48:57 GMT*
-
-
-## Sam Ashgari
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+*Published on: Tue, 16 Jul 2024 09:48:57 GMT*
 
 
 ## Sam Ashgari
@@ -3889,11 +3889,20 @@ COMME des GARÇONS and Nike are back together, and as you may have suspected, th
 
 ## Sandra Oh
 
-## [Valentino Launches Hard-to-Get ‘Haute Couture’ Fragrance](https://www.highsnobiety.com/p/valentino-anatomy-of-dreams-fragrance/)
+## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
 
-Valentino's Haute Couture division now has a fragrance line to match. On Monday, the Italian fashion house unveiled its latest beauty venture, a collection of …
+Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
 
-*Published on: Mon, 15 Jul 2024 17:05:08 GMT*
+*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+
+
+## Sandra Oh
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
 ## Sandra Oh
@@ -3902,7 +3911,7 @@ Valentino's Haute Couture division now has a fragrance line to match. On Monday,
 
 And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gold...with a new so-called "Sanded Gold" colorway.Indeed, more breathable elderly …
 
-*Published on: Mon, 15 Jul 2024 17:14:42 GMT*
+*Published on: Tue, 16 Jul 2024 07:14:42 GMT*
 
 
 ## Sandra Oh
@@ -3911,16 +3920,7 @@ And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gol
 
 Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
 
-*Published on: Mon, 15 Jul 2024 19:48:57 GMT*
-
-
-## Sandra Oh
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+*Published on: Tue, 16 Jul 2024 09:48:57 GMT*
 
 
 ## Sandra Oh
@@ -3970,11 +3970,20 @@ COMME des GARÇONS and Nike are back together, and as you may have suspected, th
 
 ## Donald Trump
 
-## [Valentino Launches Hard-to-Get ‘Haute Couture’ Fragrance](https://www.highsnobiety.com/p/valentino-anatomy-of-dreams-fragrance/)
+## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
 
-Valentino's Haute Couture division now has a fragrance line to match. On Monday, the Italian fashion house unveiled its latest beauty venture, a collection of …
+Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
 
-*Published on: Mon, 15 Jul 2024 17:05:08 GMT*
+*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+
+
+## Donald Trump
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
 ## Donald Trump
@@ -3983,7 +3992,7 @@ Valentino's Haute Couture division now has a fragrance line to match. On Monday,
 
 And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gold...with a new so-called "Sanded Gold" colorway.Indeed, more breathable elderly …
 
-*Published on: Mon, 15 Jul 2024 17:14:42 GMT*
+*Published on: Tue, 16 Jul 2024 07:14:42 GMT*
 
 
 ## Donald Trump
@@ -3992,16 +4001,7 @@ And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gol
 
 Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
 
-*Published on: Mon, 15 Jul 2024 19:48:57 GMT*
-
-
-## Donald Trump
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+*Published on: Tue, 16 Jul 2024 09:48:57 GMT*
 
 
 ## Donald Trump
@@ -4051,11 +4051,20 @@ COMME des GARÇONS and Nike are back together, and as you may have suspected, th
 
 ## Diddy
 
-## [Valentino Launches Hard-to-Get ‘Haute Couture’ Fragrance](https://www.highsnobiety.com/p/valentino-anatomy-of-dreams-fragrance/)
+## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
 
-Valentino's Haute Couture division now has a fragrance line to match. On Monday, the Italian fashion house unveiled its latest beauty venture, a collection of …
+Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
 
-*Published on: Mon, 15 Jul 2024 17:05:08 GMT*
+*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+
+
+## Diddy
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
 ## Diddy
@@ -4064,7 +4073,7 @@ Valentino's Haute Couture division now has a fragrance line to match. On Monday,
 
 And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gold...with a new so-called "Sanded Gold" colorway.Indeed, more breathable elderly …
 
-*Published on: Mon, 15 Jul 2024 17:14:42 GMT*
+*Published on: Tue, 16 Jul 2024 07:14:42 GMT*
 
 
 ## Diddy
@@ -4073,16 +4082,7 @@ And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gol
 
 Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
 
-*Published on: Mon, 15 Jul 2024 19:48:57 GMT*
-
-
-## Diddy
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+*Published on: Tue, 16 Jul 2024 09:48:57 GMT*
 
 
 ## Diddy
@@ -4132,11 +4132,20 @@ COMME des GARÇONS and Nike are back together, and as you may have suspected, th
 
 ## City Girls
 
-## [Valentino Launches Hard-to-Get ‘Haute Couture’ Fragrance](https://www.highsnobiety.com/p/valentino-anatomy-of-dreams-fragrance/)
+## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
 
-Valentino's Haute Couture division now has a fragrance line to match. On Monday, the Italian fashion house unveiled its latest beauty venture, a collection of …
+Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
 
-*Published on: Mon, 15 Jul 2024 17:05:08 GMT*
+*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+
+
+## City Girls
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
 ## City Girls
@@ -4145,7 +4154,7 @@ Valentino's Haute Couture division now has a fragrance line to match. On Monday,
 
 And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gold...with a new so-called "Sanded Gold" colorway.Indeed, more breathable elderly …
 
-*Published on: Mon, 15 Jul 2024 17:14:42 GMT*
+*Published on: Tue, 16 Jul 2024 07:14:42 GMT*
 
 
 ## City Girls
@@ -4154,16 +4163,7 @@ And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gol
 
 Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
 
-*Published on: Mon, 15 Jul 2024 19:48:57 GMT*
-
-
-## City Girls
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+*Published on: Tue, 16 Jul 2024 09:48:57 GMT*
 
 
 ## City Girls
@@ -4213,11 +4213,20 @@ COMME des GARÇONS and Nike are back together, and as you may have suspected, th
 
 ## Chloe Bailey
 
-## [Valentino Launches Hard-to-Get ‘Haute Couture’ Fragrance](https://www.highsnobiety.com/p/valentino-anatomy-of-dreams-fragrance/)
+## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
 
-Valentino's Haute Couture division now has a fragrance line to match. On Monday, the Italian fashion house unveiled its latest beauty venture, a collection of …
+Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
 
-*Published on: Mon, 15 Jul 2024 17:05:08 GMT*
+*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+
+
+## Chloe Bailey
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
 ## Chloe Bailey
@@ -4226,7 +4235,7 @@ Valentino's Haute Couture division now has a fragrance line to match. On Monday,
 
 And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gold...with a new so-called "Sanded Gold" colorway.Indeed, more breathable elderly …
 
-*Published on: Mon, 15 Jul 2024 17:14:42 GMT*
+*Published on: Tue, 16 Jul 2024 07:14:42 GMT*
 
 
 ## Chloe Bailey
@@ -4235,16 +4244,7 @@ And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gol
 
 Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
 
-*Published on: Mon, 15 Jul 2024 19:48:57 GMT*
-
-
-## Chloe Bailey
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+*Published on: Tue, 16 Jul 2024 09:48:57 GMT*
 
 
 ## Chloe Bailey
@@ -4294,11 +4294,20 @@ COMME des GARÇONS and Nike are back together, and as you may have suspected, th
 
 ## Charli D Amelio
 
-## [Valentino Launches Hard-to-Get ‘Haute Couture’ Fragrance](https://www.highsnobiety.com/p/valentino-anatomy-of-dreams-fragrance/)
+## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
 
-Valentino's Haute Couture division now has a fragrance line to match. On Monday, the Italian fashion house unveiled its latest beauty venture, a collection of …
+Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
 
-*Published on: Mon, 15 Jul 2024 17:05:08 GMT*
+*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+
+
+## Charli D Amelio
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
 ## Charli D Amelio
@@ -4307,7 +4316,7 @@ Valentino's Haute Couture division now has a fragrance line to match. On Monday,
 
 And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gold...with a new so-called "Sanded Gold" colorway.Indeed, more breathable elderly …
 
-*Published on: Mon, 15 Jul 2024 17:14:42 GMT*
+*Published on: Tue, 16 Jul 2024 07:14:42 GMT*
 
 
 ## Charli D Amelio
@@ -4316,16 +4325,7 @@ And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gol
 
 Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
 
-*Published on: Mon, 15 Jul 2024 19:48:57 GMT*
-
-
-## Charli D Amelio
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+*Published on: Tue, 16 Jul 2024 09:48:57 GMT*
 
 
 ## Charli D Amelio
@@ -4375,11 +4375,20 @@ COMME des GARÇONS and Nike are back together, and as you may have suspected, th
 
 ## Cardi B
 
-## [Valentino Launches Hard-to-Get ‘Haute Couture’ Fragrance](https://www.highsnobiety.com/p/valentino-anatomy-of-dreams-fragrance/)
+## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
 
-Valentino's Haute Couture division now has a fragrance line to match. On Monday, the Italian fashion house unveiled its latest beauty venture, a collection of …
+Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
 
-*Published on: Mon, 15 Jul 2024 17:05:08 GMT*
+*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+
+
+## Cardi B
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
 ## Cardi B
@@ -4388,7 +4397,7 @@ Valentino's Haute Couture division now has a fragrance line to match. On Monday,
 
 And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gold...with a new so-called "Sanded Gold" colorway.Indeed, more breathable elderly …
 
-*Published on: Mon, 15 Jul 2024 17:14:42 GMT*
+*Published on: Tue, 16 Jul 2024 07:14:42 GMT*
 
 
 ## Cardi B
@@ -4397,16 +4406,7 @@ And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gol
 
 Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
 
-*Published on: Mon, 15 Jul 2024 19:48:57 GMT*
-
-
-## Cardi B
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+*Published on: Tue, 16 Jul 2024 09:48:57 GMT*
 
 
 ## Cardi B
@@ -4456,11 +4456,20 @@ COMME des GARÇONS and Nike are back together, and as you may have suspected, th
 
 ## Bryan Cranston
 
-## [Valentino Launches Hard-to-Get ‘Haute Couture’ Fragrance](https://www.highsnobiety.com/p/valentino-anatomy-of-dreams-fragrance/)
+## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
 
-Valentino's Haute Couture division now has a fragrance line to match. On Monday, the Italian fashion house unveiled its latest beauty venture, a collection of …
+Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
 
-*Published on: Mon, 15 Jul 2024 17:05:08 GMT*
+*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+
+
+## Bryan Cranston
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
 ## Bryan Cranston
@@ -4469,7 +4478,7 @@ Valentino's Haute Couture division now has a fragrance line to match. On Monday,
 
 And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gold...with a new so-called "Sanded Gold" colorway.Indeed, more breathable elderly …
 
-*Published on: Mon, 15 Jul 2024 17:14:42 GMT*
+*Published on: Tue, 16 Jul 2024 07:14:42 GMT*
 
 
 ## Bryan Cranston
@@ -4478,16 +4487,7 @@ And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gol
 
 Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
 
-*Published on: Mon, 15 Jul 2024 19:48:57 GMT*
-
-
-## Bryan Cranston
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+*Published on: Tue, 16 Jul 2024 09:48:57 GMT*
 
 
 ## Bryan Cranston
@@ -4537,11 +4537,20 @@ COMME des GARÇONS and Nike are back together, and as you may have suspected, th
 
 ## Brielle Biermann
 
-## [Valentino Launches Hard-to-Get ‘Haute Couture’ Fragrance](https://www.highsnobiety.com/p/valentino-anatomy-of-dreams-fragrance/)
+## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
 
-Valentino's Haute Couture division now has a fragrance line to match. On Monday, the Italian fashion house unveiled its latest beauty venture, a collection of …
+Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
 
-*Published on: Mon, 15 Jul 2024 17:05:08 GMT*
+*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+
+
+## Brielle Biermann
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
 ## Brielle Biermann
@@ -4550,7 +4559,7 @@ Valentino's Haute Couture division now has a fragrance line to match. On Monday,
 
 And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gold...with a new so-called "Sanded Gold" colorway.Indeed, more breathable elderly …
 
-*Published on: Mon, 15 Jul 2024 17:14:42 GMT*
+*Published on: Tue, 16 Jul 2024 07:14:42 GMT*
 
 
 ## Brielle Biermann
@@ -4559,16 +4568,7 @@ And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gol
 
 Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
 
-*Published on: Mon, 15 Jul 2024 19:48:57 GMT*
-
-
-## Brielle Biermann
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+*Published on: Tue, 16 Jul 2024 09:48:57 GMT*
 
 
 ## Brielle Biermann
@@ -4618,11 +4618,20 @@ COMME des GARÇONS and Nike are back together, and as you may have suspected, th
 
 ## Dua Lipa
 
-## [Valentino Launches Hard-to-Get ‘Haute Couture’ Fragrance](https://www.highsnobiety.com/p/valentino-anatomy-of-dreams-fragrance/)
+## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
 
-Valentino's Haute Couture division now has a fragrance line to match. On Monday, the Italian fashion house unveiled its latest beauty venture, a collection of …
+Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
 
-*Published on: Mon, 15 Jul 2024 17:05:08 GMT*
+*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+
+
+## Dua Lipa
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
 ## Dua Lipa
@@ -4631,7 +4640,7 @@ Valentino's Haute Couture division now has a fragrance line to match. On Monday,
 
 And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gold...with a new so-called "Sanded Gold" colorway.Indeed, more breathable elderly …
 
-*Published on: Mon, 15 Jul 2024 17:14:42 GMT*
+*Published on: Tue, 16 Jul 2024 07:14:42 GMT*
 
 
 ## Dua Lipa
@@ -4640,16 +4649,7 @@ And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gol
 
 Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
 
-*Published on: Mon, 15 Jul 2024 19:48:57 GMT*
-
-
-## Dua Lipa
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+*Published on: Tue, 16 Jul 2024 09:48:57 GMT*
 
 
 ## Dua Lipa
@@ -4699,11 +4699,20 @@ COMME des GARÇONS and Nike are back together, and as you may have suspected, th
 
 ## Drake
 
-## [Valentino Launches Hard-to-Get ‘Haute Couture’ Fragrance](https://www.highsnobiety.com/p/valentino-anatomy-of-dreams-fragrance/)
+## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
 
-Valentino's Haute Couture division now has a fragrance line to match. On Monday, the Italian fashion house unveiled its latest beauty venture, a collection of …
+Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
 
-*Published on: Mon, 15 Jul 2024 17:05:08 GMT*
+*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+
+
+## Drake
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
 ## Drake
@@ -4712,7 +4721,7 @@ Valentino's Haute Couture division now has a fragrance line to match. On Monday,
 
 And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gold...with a new so-called "Sanded Gold" colorway.Indeed, more breathable elderly …
 
-*Published on: Mon, 15 Jul 2024 17:14:42 GMT*
+*Published on: Tue, 16 Jul 2024 07:14:42 GMT*
 
 
 ## Drake
@@ -4721,16 +4730,7 @@ And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gol
 
 Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
 
-*Published on: Mon, 15 Jul 2024 19:48:57 GMT*
-
-
-## Drake
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+*Published on: Tue, 16 Jul 2024 09:48:57 GMT*
 
 
 ## Drake
@@ -4780,11 +4780,20 @@ COMME des GARÇONS and Nike are back together, and as you may have suspected, th
 
 ## Jenner
 
-## [Valentino Launches Hard-to-Get ‘Haute Couture’ Fragrance](https://www.highsnobiety.com/p/valentino-anatomy-of-dreams-fragrance/)
+## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
 
-Valentino's Haute Couture division now has a fragrance line to match. On Monday, the Italian fashion house unveiled its latest beauty venture, a collection of …
+Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
 
-*Published on: Mon, 15 Jul 2024 17:05:08 GMT*
+*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+
+
+## Jenner
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
 ## Jenner
@@ -4793,7 +4802,7 @@ Valentino's Haute Couture division now has a fragrance line to match. On Monday,
 
 And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gold...with a new so-called "Sanded Gold" colorway.Indeed, more breathable elderly …
 
-*Published on: Mon, 15 Jul 2024 17:14:42 GMT*
+*Published on: Tue, 16 Jul 2024 07:14:42 GMT*
 
 
 ## Jenner
@@ -4802,16 +4811,7 @@ And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gol
 
 Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
 
-*Published on: Mon, 15 Jul 2024 19:48:57 GMT*
-
-
-## Jenner
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+*Published on: Tue, 16 Jul 2024 09:48:57 GMT*
 
 
 ## Jenner
@@ -4861,11 +4861,20 @@ COMME des GARÇONS and Nike are back together, and as you may have suspected, th
 
 ## J. Cole
 
-## [Valentino Launches Hard-to-Get ‘Haute Couture’ Fragrance](https://www.highsnobiety.com/p/valentino-anatomy-of-dreams-fragrance/)
+## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
 
-Valentino's Haute Couture division now has a fragrance line to match. On Monday, the Italian fashion house unveiled its latest beauty venture, a collection of …
+Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
 
-*Published on: Mon, 15 Jul 2024 17:05:08 GMT*
+*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+
+
+## J. Cole
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
 ## J. Cole
@@ -4874,7 +4883,7 @@ Valentino's Haute Couture division now has a fragrance line to match. On Monday,
 
 And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gold...with a new so-called "Sanded Gold" colorway.Indeed, more breathable elderly …
 
-*Published on: Mon, 15 Jul 2024 17:14:42 GMT*
+*Published on: Tue, 16 Jul 2024 07:14:42 GMT*
 
 
 ## J. Cole
@@ -4883,16 +4892,7 @@ And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gol
 
 Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
 
-*Published on: Mon, 15 Jul 2024 19:48:57 GMT*
-
-
-## J. Cole
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+*Published on: Tue, 16 Jul 2024 09:48:57 GMT*
 
 
 ## J. Cole
@@ -4942,11 +4942,20 @@ COMME des GARÇONS and Nike are back together, and as you may have suspected, th
 
 ## Jerrod Carmichael
 
-## [Valentino Launches Hard-to-Get ‘Haute Couture’ Fragrance](https://www.highsnobiety.com/p/valentino-anatomy-of-dreams-fragrance/)
+## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
 
-Valentino's Haute Couture division now has a fragrance line to match. On Monday, the Italian fashion house unveiled its latest beauty venture, a collection of …
+Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
 
-*Published on: Mon, 15 Jul 2024 17:05:08 GMT*
+*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+
+
+## Jerrod Carmichael
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
 ## Jerrod Carmichael
@@ -4955,7 +4964,7 @@ Valentino's Haute Couture division now has a fragrance line to match. On Monday,
 
 And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gold...with a new so-called "Sanded Gold" colorway.Indeed, more breathable elderly …
 
-*Published on: Mon, 15 Jul 2024 17:14:42 GMT*
+*Published on: Tue, 16 Jul 2024 07:14:42 GMT*
 
 
 ## Jerrod Carmichael
@@ -4964,16 +4973,7 @@ And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gol
 
 Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
 
-*Published on: Mon, 15 Jul 2024 19:48:57 GMT*
-
-
-## Jerrod Carmichael
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+*Published on: Tue, 16 Jul 2024 09:48:57 GMT*
 
 
 ## Jerrod Carmichael
@@ -5023,11 +5023,20 @@ COMME des GARÇONS and Nike are back together, and as you may have suspected, th
 
 ## Jennifer Lawrence
 
-## [Valentino Launches Hard-to-Get ‘Haute Couture’ Fragrance](https://www.highsnobiety.com/p/valentino-anatomy-of-dreams-fragrance/)
+## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
 
-Valentino's Haute Couture division now has a fragrance line to match. On Monday, the Italian fashion house unveiled its latest beauty venture, a collection of …
+Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
 
-*Published on: Mon, 15 Jul 2024 17:05:08 GMT*
+*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+
+
+## Jennifer Lawrence
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
 ## Jennifer Lawrence
@@ -5036,7 +5045,7 @@ Valentino's Haute Couture division now has a fragrance line to match. On Monday,
 
 And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gold...with a new so-called "Sanded Gold" colorway.Indeed, more breathable elderly …
 
-*Published on: Mon, 15 Jul 2024 17:14:42 GMT*
+*Published on: Tue, 16 Jul 2024 07:14:42 GMT*
 
 
 ## Jennifer Lawrence
@@ -5045,16 +5054,7 @@ And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gol
 
 Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
 
-*Published on: Mon, 15 Jul 2024 19:48:57 GMT*
-
-
-## Jennifer Lawrence
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+*Published on: Tue, 16 Jul 2024 09:48:57 GMT*
 
 
 ## Jennifer Lawrence
@@ -5104,11 +5104,20 @@ COMME des GARÇONS and Nike are back together, and as you may have suspected, th
 
 ## Joe Biden
 
-## [Valentino Launches Hard-to-Get ‘Haute Couture’ Fragrance](https://www.highsnobiety.com/p/valentino-anatomy-of-dreams-fragrance/)
+## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
 
-Valentino's Haute Couture division now has a fragrance line to match. On Monday, the Italian fashion house unveiled its latest beauty venture, a collection of …
+Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
 
-*Published on: Mon, 15 Jul 2024 17:05:08 GMT*
+*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+
+
+## Joe Biden
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
 ## Joe Biden
@@ -5117,7 +5126,7 @@ Valentino's Haute Couture division now has a fragrance line to match. On Monday,
 
 And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gold...with a new so-called "Sanded Gold" colorway.Indeed, more breathable elderly …
 
-*Published on: Mon, 15 Jul 2024 17:14:42 GMT*
+*Published on: Tue, 16 Jul 2024 07:14:42 GMT*
 
 
 ## Joe Biden
@@ -5126,16 +5135,7 @@ And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gol
 
 Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
 
-*Published on: Mon, 15 Jul 2024 19:48:57 GMT*
-
-
-## Joe Biden
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+*Published on: Tue, 16 Jul 2024 09:48:57 GMT*
 
 
 ## Joe Biden
@@ -5185,11 +5185,20 @@ COMME des GARÇONS and Nike are back together, and as you may have suspected, th
 
 ## J.K. Simmons
 
-## [Valentino Launches Hard-to-Get ‘Haute Couture’ Fragrance](https://www.highsnobiety.com/p/valentino-anatomy-of-dreams-fragrance/)
+## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
 
-Valentino's Haute Couture division now has a fragrance line to match. On Monday, the Italian fashion house unveiled its latest beauty venture, a collection of …
+Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
 
-*Published on: Mon, 15 Jul 2024 17:05:08 GMT*
+*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+
+
+## J.K. Simmons
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
 ## J.K. Simmons
@@ -5198,7 +5207,7 @@ Valentino's Haute Couture division now has a fragrance line to match. On Monday,
 
 And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gold...with a new so-called "Sanded Gold" colorway.Indeed, more breathable elderly …
 
-*Published on: Mon, 15 Jul 2024 17:14:42 GMT*
+*Published on: Tue, 16 Jul 2024 07:14:42 GMT*
 
 
 ## J.K. Simmons
@@ -5207,16 +5216,7 @@ And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gol
 
 Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
 
-*Published on: Mon, 15 Jul 2024 19:48:57 GMT*
-
-
-## J.K. Simmons
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+*Published on: Tue, 16 Jul 2024 09:48:57 GMT*
 
 
 ## J.K. Simmons
@@ -5266,11 +5266,20 @@ COMME des GARÇONS and Nike are back together, and as you may have suspected, th
 
 ## Kamala Harris
 
-## [Valentino Launches Hard-to-Get ‘Haute Couture’ Fragrance](https://www.highsnobiety.com/p/valentino-anatomy-of-dreams-fragrance/)
+## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
 
-Valentino's Haute Couture division now has a fragrance line to match. On Monday, the Italian fashion house unveiled its latest beauty venture, a collection of …
+Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
 
-*Published on: Mon, 15 Jul 2024 17:05:08 GMT*
+*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+
+
+## Kamala Harris
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
 ## Kamala Harris
@@ -5279,7 +5288,7 @@ Valentino's Haute Couture division now has a fragrance line to match. On Monday,
 
 And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gold...with a new so-called "Sanded Gold" colorway.Indeed, more breathable elderly …
 
-*Published on: Mon, 15 Jul 2024 17:14:42 GMT*
+*Published on: Tue, 16 Jul 2024 07:14:42 GMT*
 
 
 ## Kamala Harris
@@ -5288,16 +5297,7 @@ And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gol
 
 Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
 
-*Published on: Mon, 15 Jul 2024 19:48:57 GMT*
-
-
-## Kamala Harris
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+*Published on: Tue, 16 Jul 2024 09:48:57 GMT*
 
 
 ## Kamala Harris
@@ -5347,11 +5347,20 @@ COMME des GARÇONS and Nike are back together, and as you may have suspected, th
 
 ## John C Reilly
 
-## [Valentino Launches Hard-to-Get ‘Haute Couture’ Fragrance](https://www.highsnobiety.com/p/valentino-anatomy-of-dreams-fragrance/)
+## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
 
-Valentino's Haute Couture division now has a fragrance line to match. On Monday, the Italian fashion house unveiled its latest beauty venture, a collection of …
+Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
 
-*Published on: Mon, 15 Jul 2024 17:05:08 GMT*
+*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+
+
+## John C Reilly
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
 ## John C Reilly
@@ -5360,7 +5369,7 @@ Valentino's Haute Couture division now has a fragrance line to match. On Monday,
 
 And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gold...with a new so-called "Sanded Gold" colorway.Indeed, more breathable elderly …
 
-*Published on: Mon, 15 Jul 2024 17:14:42 GMT*
+*Published on: Tue, 16 Jul 2024 07:14:42 GMT*
 
 
 ## John C Reilly
@@ -5369,16 +5378,7 @@ And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gol
 
 Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
 
-*Published on: Mon, 15 Jul 2024 19:48:57 GMT*
-
-
-## John C Reilly
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+*Published on: Tue, 16 Jul 2024 09:48:57 GMT*
 
 
 ## John C Reilly
@@ -5428,11 +5428,20 @@ COMME des GARÇONS and Nike are back together, and as you may have suspected, th
 
 ## Kardashian
 
-## [Valentino Launches Hard-to-Get ‘Haute Couture’ Fragrance](https://www.highsnobiety.com/p/valentino-anatomy-of-dreams-fragrance/)
+## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
 
-Valentino's Haute Couture division now has a fragrance line to match. On Monday, the Italian fashion house unveiled its latest beauty venture, a collection of …
+Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
 
-*Published on: Mon, 15 Jul 2024 17:05:08 GMT*
+*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+
+
+## Kardashian
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
 ## Kardashian
@@ -5441,7 +5450,7 @@ Valentino's Haute Couture division now has a fragrance line to match. On Monday,
 
 And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gold...with a new so-called "Sanded Gold" colorway.Indeed, more breathable elderly …
 
-*Published on: Mon, 15 Jul 2024 17:14:42 GMT*
+*Published on: Tue, 16 Jul 2024 07:14:42 GMT*
 
 
 ## Kardashian
@@ -5450,16 +5459,7 @@ And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gol
 
 Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
 
-*Published on: Mon, 15 Jul 2024 19:48:57 GMT*
-
-
-## Kardashian
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+*Published on: Tue, 16 Jul 2024 09:48:57 GMT*
 
 
 ## Kardashian
@@ -5509,11 +5509,20 @@ COMME des GARÇONS and Nike are back together, and as you may have suspected, th
 
 ## Kanye
 
-## [Valentino Launches Hard-to-Get ‘Haute Couture’ Fragrance](https://www.highsnobiety.com/p/valentino-anatomy-of-dreams-fragrance/)
+## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
 
-Valentino's Haute Couture division now has a fragrance line to match. On Monday, the Italian fashion house unveiled its latest beauty venture, a collection of …
+Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
 
-*Published on: Mon, 15 Jul 2024 17:05:08 GMT*
+*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+
+
+## Kanye
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
 ## Kanye
@@ -5522,7 +5531,7 @@ Valentino's Haute Couture division now has a fragrance line to match. On Monday,
 
 And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gold...with a new so-called "Sanded Gold" colorway.Indeed, more breathable elderly …
 
-*Published on: Mon, 15 Jul 2024 17:14:42 GMT*
+*Published on: Tue, 16 Jul 2024 07:14:42 GMT*
 
 
 ## Kanye
@@ -5531,16 +5540,7 @@ And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gol
 
 Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
 
-*Published on: Mon, 15 Jul 2024 19:48:57 GMT*
-
-
-## Kanye
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+*Published on: Tue, 16 Jul 2024 09:48:57 GMT*
 
 
 ## Kanye
@@ -5590,11 +5590,20 @@ COMME des GARÇONS and Nike are back together, and as you may have suspected, th
 
 ## Zendaya
 
-## [Valentino Launches Hard-to-Get ‘Haute Couture’ Fragrance](https://www.highsnobiety.com/p/valentino-anatomy-of-dreams-fragrance/)
+## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
 
-Valentino's Haute Couture division now has a fragrance line to match. On Monday, the Italian fashion house unveiled its latest beauty venture, a collection of …
+Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
 
-*Published on: Mon, 15 Jul 2024 17:05:08 GMT*
+*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+
+
+## Zendaya
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
 ## Zendaya
@@ -5603,7 +5612,7 @@ Valentino's Haute Couture division now has a fragrance line to match. On Monday,
 
 And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gold...with a new so-called "Sanded Gold" colorway.Indeed, more breathable elderly …
 
-*Published on: Mon, 15 Jul 2024 17:14:42 GMT*
+*Published on: Tue, 16 Jul 2024 07:14:42 GMT*
 
 
 ## Zendaya
@@ -5612,16 +5621,7 @@ And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gol
 
 Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
 
-*Published on: Mon, 15 Jul 2024 19:48:57 GMT*
-
-
-## Zendaya
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+*Published on: Tue, 16 Jul 2024 09:48:57 GMT*
 
 
 ## Zendaya
@@ -5671,11 +5671,20 @@ COMME des GARÇONS and Nike are back together, and as you may have suspected, th
 
 ## Will Ferrell
 
-## [Valentino Launches Hard-to-Get ‘Haute Couture’ Fragrance](https://www.highsnobiety.com/p/valentino-anatomy-of-dreams-fragrance/)
+## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
 
-Valentino's Haute Couture division now has a fragrance line to match. On Monday, the Italian fashion house unveiled its latest beauty venture, a collection of …
+Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
 
-*Published on: Mon, 15 Jul 2024 17:05:08 GMT*
+*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+
+
+## Will Ferrell
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
 ## Will Ferrell
@@ -5684,7 +5693,7 @@ Valentino's Haute Couture division now has a fragrance line to match. On Monday,
 
 And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gold...with a new so-called "Sanded Gold" colorway.Indeed, more breathable elderly …
 
-*Published on: Mon, 15 Jul 2024 17:14:42 GMT*
+*Published on: Tue, 16 Jul 2024 07:14:42 GMT*
 
 
 ## Will Ferrell
@@ -5693,16 +5702,7 @@ And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gol
 
 Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
 
-*Published on: Mon, 15 Jul 2024 19:48:57 GMT*
-
-
-## Will Ferrell
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+*Published on: Tue, 16 Jul 2024 09:48:57 GMT*
 
 
 ## Will Ferrell
@@ -5752,11 +5752,20 @@ COMME des GARÇONS and Nike are back together, and as you may have suspected, th
 
 ## Zazie Beetz
 
-## [Valentino Launches Hard-to-Get ‘Haute Couture’ Fragrance](https://www.highsnobiety.com/p/valentino-anatomy-of-dreams-fragrance/)
+## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
 
-Valentino's Haute Couture division now has a fragrance line to match. On Monday, the Italian fashion house unveiled its latest beauty venture, a collection of …
+Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
 
-*Published on: Mon, 15 Jul 2024 17:05:08 GMT*
+*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+
+
+## Zazie Beetz
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
 ## Zazie Beetz
@@ -5765,7 +5774,7 @@ Valentino's Haute Couture division now has a fragrance line to match. On Monday,
 
 And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gold...with a new so-called "Sanded Gold" colorway.Indeed, more breathable elderly …
 
-*Published on: Mon, 15 Jul 2024 17:14:42 GMT*
+*Published on: Tue, 16 Jul 2024 07:14:42 GMT*
 
 
 ## Zazie Beetz
@@ -5774,16 +5783,7 @@ And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gol
 
 Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
 
-*Published on: Mon, 15 Jul 2024 19:48:57 GMT*
-
-
-## Zazie Beetz
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+*Published on: Tue, 16 Jul 2024 09:48:57 GMT*
 
 
 ## Zazie Beetz
@@ -5833,11 +5833,20 @@ COMME des GARÇONS and Nike are back together, and as you may have suspected, th
 
 ## Bob Odenkirk
 
-## [Valentino Launches Hard-to-Get ‘Haute Couture’ Fragrance](https://www.highsnobiety.com/p/valentino-anatomy-of-dreams-fragrance/)
+## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
 
-Valentino's Haute Couture division now has a fragrance line to match. On Monday, the Italian fashion house unveiled its latest beauty venture, a collection of …
+Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
 
-*Published on: Mon, 15 Jul 2024 17:05:08 GMT*
+*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+
+
+## Bob Odenkirk
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
 ## Bob Odenkirk
@@ -5846,7 +5855,7 @@ Valentino's Haute Couture division now has a fragrance line to match. On Monday,
 
 And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gold...with a new so-called "Sanded Gold" colorway.Indeed, more breathable elderly …
 
-*Published on: Mon, 15 Jul 2024 17:14:42 GMT*
+*Published on: Tue, 16 Jul 2024 07:14:42 GMT*
 
 
 ## Bob Odenkirk
@@ -5855,16 +5864,7 @@ And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gol
 
 Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
 
-*Published on: Mon, 15 Jul 2024 19:48:57 GMT*
-
-
-## Bob Odenkirk
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+*Published on: Tue, 16 Jul 2024 09:48:57 GMT*
 
 
 ## Bob Odenkirk
@@ -5914,11 +5914,20 @@ COMME des GARÇONS and Nike are back together, and as you may have suspected, th
 
 ## Brad Pitt
 
-## [Valentino Launches Hard-to-Get ‘Haute Couture’ Fragrance](https://www.highsnobiety.com/p/valentino-anatomy-of-dreams-fragrance/)
+## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
 
-Valentino's Haute Couture division now has a fragrance line to match. On Monday, the Italian fashion house unveiled its latest beauty venture, a collection of …
+Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
 
-*Published on: Mon, 15 Jul 2024 17:05:08 GMT*
+*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+
+
+## Brad Pitt
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
 ## Brad Pitt
@@ -5927,7 +5936,7 @@ Valentino's Haute Couture division now has a fragrance line to match. On Monday,
 
 And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gold...with a new so-called "Sanded Gold" colorway.Indeed, more breathable elderly …
 
-*Published on: Mon, 15 Jul 2024 17:14:42 GMT*
+*Published on: Tue, 16 Jul 2024 07:14:42 GMT*
 
 
 ## Brad Pitt
@@ -5936,16 +5945,7 @@ And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gol
 
 Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
 
-*Published on: Mon, 15 Jul 2024 19:48:57 GMT*
-
-
-## Brad Pitt
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+*Published on: Tue, 16 Jul 2024 09:48:57 GMT*
 
 
 ## Brad Pitt
@@ -5995,11 +5995,20 @@ COMME des GARÇONS and Nike are back together, and as you may have suspected, th
 
 ## Beyoncé
 
-## [Valentino Launches Hard-to-Get ‘Haute Couture’ Fragrance](https://www.highsnobiety.com/p/valentino-anatomy-of-dreams-fragrance/)
+## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
 
-Valentino's Haute Couture division now has a fragrance line to match. On Monday, the Italian fashion house unveiled its latest beauty venture, a collection of …
+Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
 
-*Published on: Mon, 15 Jul 2024 17:05:08 GMT*
+*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+
+
+## Beyoncé
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
 ## Beyoncé
@@ -6008,7 +6017,7 @@ Valentino's Haute Couture division now has a fragrance line to match. On Monday,
 
 And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gold...with a new so-called "Sanded Gold" colorway.Indeed, more breathable elderly …
 
-*Published on: Mon, 15 Jul 2024 17:14:42 GMT*
+*Published on: Tue, 16 Jul 2024 07:14:42 GMT*
 
 
 ## Beyoncé
@@ -6017,16 +6026,7 @@ And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gol
 
 Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
 
-*Published on: Mon, 15 Jul 2024 19:48:57 GMT*
-
-
-## Beyoncé
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+*Published on: Tue, 16 Jul 2024 09:48:57 GMT*
 
 
 ## Beyoncé
@@ -6076,11 +6076,20 @@ COMME des GARÇONS and Nike are back together, and as you may have suspected, th
 
 ## Bia
 
-## [Valentino Launches Hard-to-Get ‘Haute Couture’ Fragrance](https://www.highsnobiety.com/p/valentino-anatomy-of-dreams-fragrance/)
+## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
 
-Valentino's Haute Couture division now has a fragrance line to match. On Monday, the Italian fashion house unveiled its latest beauty venture, a collection of …
+Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
 
-*Published on: Mon, 15 Jul 2024 17:05:08 GMT*
+*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+
+
+## Bia
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
 ## Bia
@@ -6089,7 +6098,7 @@ Valentino's Haute Couture division now has a fragrance line to match. On Monday,
 
 And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gold...with a new so-called "Sanded Gold" colorway.Indeed, more breathable elderly …
 
-*Published on: Mon, 15 Jul 2024 17:14:42 GMT*
+*Published on: Tue, 16 Jul 2024 07:14:42 GMT*
 
 
 ## Bia
@@ -6098,16 +6107,7 @@ And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gol
 
 Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
 
-*Published on: Mon, 15 Jul 2024 19:48:57 GMT*
-
-
-## Bia
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+*Published on: Tue, 16 Jul 2024 09:48:57 GMT*
 
 
 ## Bia
@@ -6157,11 +6157,20 @@ COMME des GARÇONS and Nike are back together, and as you may have suspected, th
 
 ## Avantika
 
-## [Valentino Launches Hard-to-Get ‘Haute Couture’ Fragrance](https://www.highsnobiety.com/p/valentino-anatomy-of-dreams-fragrance/)
+## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
 
-Valentino's Haute Couture division now has a fragrance line to match. On Monday, the Italian fashion house unveiled its latest beauty venture, a collection of …
+Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
 
-*Published on: Mon, 15 Jul 2024 17:05:08 GMT*
+*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+
+
+## Avantika
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
 ## Avantika
@@ -6170,7 +6179,7 @@ Valentino's Haute Couture division now has a fragrance line to match. On Monday,
 
 And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gold...with a new so-called "Sanded Gold" colorway.Indeed, more breathable elderly …
 
-*Published on: Mon, 15 Jul 2024 17:14:42 GMT*
+*Published on: Tue, 16 Jul 2024 07:14:42 GMT*
 
 
 ## Avantika
@@ -6179,16 +6188,7 @@ And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gol
 
 Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
 
-*Published on: Mon, 15 Jul 2024 19:48:57 GMT*
-
-
-## Avantika
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+*Published on: Tue, 16 Jul 2024 09:48:57 GMT*
 
 
 ## Avantika
@@ -6238,11 +6238,20 @@ COMME des GARÇONS and Nike are back together, and as you may have suspected, th
 
 ## Bernie Sanders
 
-## [Valentino Launches Hard-to-Get ‘Haute Couture’ Fragrance](https://www.highsnobiety.com/p/valentino-anatomy-of-dreams-fragrance/)
+## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
 
-Valentino's Haute Couture division now has a fragrance line to match. On Monday, the Italian fashion house unveiled its latest beauty venture, a collection of …
+Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
 
-*Published on: Mon, 15 Jul 2024 17:05:08 GMT*
+*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+
+
+## Bernie Sanders
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
 ## Bernie Sanders
@@ -6251,7 +6260,7 @@ Valentino's Haute Couture division now has a fragrance line to match. On Monday,
 
 And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gold...with a new so-called "Sanded Gold" colorway.Indeed, more breathable elderly …
 
-*Published on: Mon, 15 Jul 2024 17:14:42 GMT*
+*Published on: Tue, 16 Jul 2024 07:14:42 GMT*
 
 
 ## Bernie Sanders
@@ -6260,16 +6269,7 @@ And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gol
 
 Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
 
-*Published on: Mon, 15 Jul 2024 19:48:57 GMT*
-
-
-## Bernie Sanders
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+*Published on: Tue, 16 Jul 2024 09:48:57 GMT*
 
 
 ## Bernie Sanders
@@ -6319,11 +6319,20 @@ COMME des GARÇONS and Nike are back together, and as you may have suspected, th
 
 ## Big Sean
 
-## [Valentino Launches Hard-to-Get ‘Haute Couture’ Fragrance](https://www.highsnobiety.com/p/valentino-anatomy-of-dreams-fragrance/)
+## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
 
-Valentino's Haute Couture division now has a fragrance line to match. On Monday, the Italian fashion house unveiled its latest beauty venture, a collection of …
+Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
 
-*Published on: Mon, 15 Jul 2024 17:05:08 GMT*
+*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+
+
+## Big Sean
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
 ## Big Sean
@@ -6332,7 +6341,7 @@ Valentino's Haute Couture division now has a fragrance line to match. On Monday,
 
 And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gold...with a new so-called "Sanded Gold" colorway.Indeed, more breathable elderly …
 
-*Published on: Mon, 15 Jul 2024 17:14:42 GMT*
+*Published on: Tue, 16 Jul 2024 07:14:42 GMT*
 
 
 ## Big Sean
@@ -6341,16 +6350,7 @@ And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gol
 
 Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
 
-*Published on: Mon, 15 Jul 2024 19:48:57 GMT*
-
-
-## Big Sean
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+*Published on: Tue, 16 Jul 2024 09:48:57 GMT*
 
 
 ## Big Sean
@@ -6400,11 +6400,20 @@ COMME des GARÇONS and Nike are back together, and as you may have suspected, th
 
 ## BlockBoy JB
 
-## [Valentino Launches Hard-to-Get ‘Haute Couture’ Fragrance](https://www.highsnobiety.com/p/valentino-anatomy-of-dreams-fragrance/)
+## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
 
-Valentino's Haute Couture division now has a fragrance line to match. On Monday, the Italian fashion house unveiled its latest beauty venture, a collection of …
+Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
 
-*Published on: Mon, 15 Jul 2024 17:05:08 GMT*
+*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+
+
+## BlockBoy JB
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
 ## BlockBoy JB
@@ -6413,7 +6422,7 @@ Valentino's Haute Couture division now has a fragrance line to match. On Monday,
 
 And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gold...with a new so-called "Sanded Gold" colorway.Indeed, more breathable elderly …
 
-*Published on: Mon, 15 Jul 2024 17:14:42 GMT*
+*Published on: Tue, 16 Jul 2024 07:14:42 GMT*
 
 
 ## BlockBoy JB
@@ -6422,16 +6431,7 @@ And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gol
 
 Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
 
-*Published on: Mon, 15 Jul 2024 19:48:57 GMT*
-
-
-## BlockBoy JB
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+*Published on: Tue, 16 Jul 2024 09:48:57 GMT*
 
 
 ## BlockBoy JB
@@ -6481,11 +6481,20 @@ COMME des GARÇONS and Nike are back together, and as you may have suspected, th
 
 ## Biden
 
-## [Valentino Launches Hard-to-Get ‘Haute Couture’ Fragrance](https://www.highsnobiety.com/p/valentino-anatomy-of-dreams-fragrance/)
+## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
 
-Valentino's Haute Couture division now has a fragrance line to match. On Monday, the Italian fashion house unveiled its latest beauty venture, a collection of …
+Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
 
-*Published on: Mon, 15 Jul 2024 17:05:08 GMT*
+*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+
+
+## Biden
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
 ## Biden
@@ -6494,7 +6503,7 @@ Valentino's Haute Couture division now has a fragrance line to match. On Monday,
 
 And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gold...with a new so-called "Sanded Gold" colorway.Indeed, more breathable elderly …
 
-*Published on: Mon, 15 Jul 2024 17:14:42 GMT*
+*Published on: Tue, 16 Jul 2024 07:14:42 GMT*
 
 
 ## Biden
@@ -6503,16 +6512,7 @@ And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gol
 
 Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
 
-*Published on: Mon, 15 Jul 2024 19:48:57 GMT*
-
-
-## Biden
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+*Published on: Tue, 16 Jul 2024 09:48:57 GMT*
 
 
 ## Biden
@@ -6562,11 +6562,20 @@ COMME des GARÇONS and Nike are back together, and as you may have suspected, th
 
 ## Bieber
 
-## [Valentino Launches Hard-to-Get ‘Haute Couture’ Fragrance](https://www.highsnobiety.com/p/valentino-anatomy-of-dreams-fragrance/)
+## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
 
-Valentino's Haute Couture division now has a fragrance line to match. On Monday, the Italian fashion house unveiled its latest beauty venture, a collection of …
+Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
 
-*Published on: Mon, 15 Jul 2024 17:05:08 GMT*
+*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+
+
+## Bieber
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
 ## Bieber
@@ -6575,7 +6584,7 @@ Valentino's Haute Couture division now has a fragrance line to match. On Monday,
 
 And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gold...with a new so-called "Sanded Gold" colorway.Indeed, more breathable elderly …
 
-*Published on: Mon, 15 Jul 2024 17:14:42 GMT*
+*Published on: Tue, 16 Jul 2024 07:14:42 GMT*
 
 
 ## Bieber
@@ -6584,16 +6593,7 @@ And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gol
 
 Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
 
-*Published on: Mon, 15 Jul 2024 19:48:57 GMT*
-
-
-## Bieber
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+*Published on: Tue, 16 Jul 2024 09:48:57 GMT*
 
 
 ## Bieber
@@ -6643,11 +6643,20 @@ COMME des GARÇONS and Nike are back together, and as you may have suspected, th
 
 ## Paulina Porizkov
 
-## [Valentino Launches Hard-to-Get ‘Haute Couture’ Fragrance](https://www.highsnobiety.com/p/valentino-anatomy-of-dreams-fragrance/)
+## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
 
-Valentino's Haute Couture division now has a fragrance line to match. On Monday, the Italian fashion house unveiled its latest beauty venture, a collection of …
+Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
 
-*Published on: Mon, 15 Jul 2024 17:05:08 GMT*
+*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+
+
+## Paulina Porizkov
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
 ## Paulina Porizkov
@@ -6656,7 +6665,7 @@ Valentino's Haute Couture division now has a fragrance line to match. On Monday,
 
 And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gold...with a new so-called "Sanded Gold" colorway.Indeed, more breathable elderly …
 
-*Published on: Mon, 15 Jul 2024 17:14:42 GMT*
+*Published on: Tue, 16 Jul 2024 07:14:42 GMT*
 
 
 ## Paulina Porizkov
@@ -6665,16 +6674,7 @@ And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gol
 
 Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
 
-*Published on: Mon, 15 Jul 2024 19:48:57 GMT*
-
-
-## Paulina Porizkov
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+*Published on: Tue, 16 Jul 2024 09:48:57 GMT*
 
 
 ## Paulina Porizkov
@@ -6724,11 +6724,20 @@ COMME des GARÇONS and Nike are back together, and as you may have suspected, th
 
 ## Paris Hilton
 
-## [Valentino Launches Hard-to-Get ‘Haute Couture’ Fragrance](https://www.highsnobiety.com/p/valentino-anatomy-of-dreams-fragrance/)
+## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
 
-Valentino's Haute Couture division now has a fragrance line to match. On Monday, the Italian fashion house unveiled its latest beauty venture, a collection of …
+Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
 
-*Published on: Mon, 15 Jul 2024 17:05:08 GMT*
+*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+
+
+## Paris Hilton
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
 ## Paris Hilton
@@ -6737,7 +6746,7 @@ Valentino's Haute Couture division now has a fragrance line to match. On Monday,
 
 And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gold...with a new so-called "Sanded Gold" colorway.Indeed, more breathable elderly …
 
-*Published on: Mon, 15 Jul 2024 17:14:42 GMT*
+*Published on: Tue, 16 Jul 2024 07:14:42 GMT*
 
 
 ## Paris Hilton
@@ -6746,16 +6755,7 @@ And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gol
 
 Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
 
-*Published on: Mon, 15 Jul 2024 19:48:57 GMT*
-
-
-## Paris Hilton
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+*Published on: Tue, 16 Jul 2024 09:48:57 GMT*
 
 
 ## Paris Hilton
@@ -6805,11 +6805,20 @@ COMME des GARÇONS and Nike are back together, and as you may have suspected, th
 
 ## Metro Boomin
 
-## [Valentino Launches Hard-to-Get ‘Haute Couture’ Fragrance](https://www.highsnobiety.com/p/valentino-anatomy-of-dreams-fragrance/)
+## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
 
-Valentino's Haute Couture division now has a fragrance line to match. On Monday, the Italian fashion house unveiled its latest beauty venture, a collection of …
+Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
 
-*Published on: Mon, 15 Jul 2024 17:05:08 GMT*
+*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+
+
+## Metro Boomin
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
 ## Metro Boomin
@@ -6818,7 +6827,7 @@ Valentino's Haute Couture division now has a fragrance line to match. On Monday,
 
 And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gold...with a new so-called "Sanded Gold" colorway.Indeed, more breathable elderly …
 
-*Published on: Mon, 15 Jul 2024 17:14:42 GMT*
+*Published on: Tue, 16 Jul 2024 07:14:42 GMT*
 
 
 ## Metro Boomin
@@ -6827,16 +6836,7 @@ And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gol
 
 Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
 
-*Published on: Mon, 15 Jul 2024 19:48:57 GMT*
-
-
-## Metro Boomin
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+*Published on: Tue, 16 Jul 2024 09:48:57 GMT*
 
 
 ## Metro Boomin
@@ -6886,11 +6886,20 @@ COMME des GARÇONS and Nike are back together, and as you may have suspected, th
 
 ## Meghan Markle
 
-## [Valentino Launches Hard-to-Get ‘Haute Couture’ Fragrance](https://www.highsnobiety.com/p/valentino-anatomy-of-dreams-fragrance/)
+## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
 
-Valentino's Haute Couture division now has a fragrance line to match. On Monday, the Italian fashion house unveiled its latest beauty venture, a collection of …
+Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
 
-*Published on: Mon, 15 Jul 2024 17:05:08 GMT*
+*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+
+
+## Meghan Markle
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
 ## Meghan Markle
@@ -6899,7 +6908,7 @@ Valentino's Haute Couture division now has a fragrance line to match. On Monday,
 
 And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gold...with a new so-called "Sanded Gold" colorway.Indeed, more breathable elderly …
 
-*Published on: Mon, 15 Jul 2024 17:14:42 GMT*
+*Published on: Tue, 16 Jul 2024 07:14:42 GMT*
 
 
 ## Meghan Markle
@@ -6908,16 +6917,7 @@ And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gol
 
 Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
 
-*Published on: Mon, 15 Jul 2024 19:48:57 GMT*
-
-
-## Meghan Markle
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+*Published on: Tue, 16 Jul 2024 09:48:57 GMT*
 
 
 ## Meghan Markle
@@ -6967,11 +6967,20 @@ COMME des GARÇONS and Nike are back together, and as you may have suspected, th
 
 ## Megan Thee Stallion
 
-## [Valentino Launches Hard-to-Get ‘Haute Couture’ Fragrance](https://www.highsnobiety.com/p/valentino-anatomy-of-dreams-fragrance/)
+## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
 
-Valentino's Haute Couture division now has a fragrance line to match. On Monday, the Italian fashion house unveiled its latest beauty venture, a collection of …
+Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
 
-*Published on: Mon, 15 Jul 2024 17:05:08 GMT*
+*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+
+
+## Megan Thee Stallion
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
 ## Megan Thee Stallion
@@ -6980,7 +6989,7 @@ Valentino's Haute Couture division now has a fragrance line to match. On Monday,
 
 And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gold...with a new so-called "Sanded Gold" colorway.Indeed, more breathable elderly …
 
-*Published on: Mon, 15 Jul 2024 17:14:42 GMT*
+*Published on: Tue, 16 Jul 2024 07:14:42 GMT*
 
 
 ## Megan Thee Stallion
@@ -6989,16 +6998,7 @@ And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gol
 
 Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
 
-*Published on: Mon, 15 Jul 2024 19:48:57 GMT*
-
-
-## Megan Thee Stallion
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+*Published on: Tue, 16 Jul 2024 09:48:57 GMT*
 
 
 ## Megan Thee Stallion
@@ -7048,11 +7048,20 @@ COMME des GARÇONS and Nike are back together, and as you may have suspected, th
 
 ## Maya Rudolph
 
-## [Valentino Launches Hard-to-Get ‘Haute Couture’ Fragrance](https://www.highsnobiety.com/p/valentino-anatomy-of-dreams-fragrance/)
+## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
 
-Valentino's Haute Couture division now has a fragrance line to match. On Monday, the Italian fashion house unveiled its latest beauty venture, a collection of …
+Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
 
-*Published on: Mon, 15 Jul 2024 17:05:08 GMT*
+*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+
+
+## Maya Rudolph
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
 ## Maya Rudolph
@@ -7061,7 +7070,7 @@ Valentino's Haute Couture division now has a fragrance line to match. On Monday,
 
 And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gold...with a new so-called "Sanded Gold" colorway.Indeed, more breathable elderly …
 
-*Published on: Mon, 15 Jul 2024 17:14:42 GMT*
+*Published on: Tue, 16 Jul 2024 07:14:42 GMT*
 
 
 ## Maya Rudolph
@@ -7070,16 +7079,7 @@ And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gol
 
 Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
 
-*Published on: Mon, 15 Jul 2024 19:48:57 GMT*
-
-
-## Maya Rudolph
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+*Published on: Tue, 16 Jul 2024 09:48:57 GMT*
 
 
 ## Maya Rudolph
@@ -7129,11 +7129,20 @@ COMME des GARÇONS and Nike are back together, and as you may have suspected, th
 
 ## Olivia Rodrigo
 
-## [Valentino Launches Hard-to-Get ‘Haute Couture’ Fragrance](https://www.highsnobiety.com/p/valentino-anatomy-of-dreams-fragrance/)
+## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
 
-Valentino's Haute Couture division now has a fragrance line to match. On Monday, the Italian fashion house unveiled its latest beauty venture, a collection of …
+Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
 
-*Published on: Mon, 15 Jul 2024 17:05:08 GMT*
+*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+
+
+## Olivia Rodrigo
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
 ## Olivia Rodrigo
@@ -7142,7 +7151,7 @@ Valentino's Haute Couture division now has a fragrance line to match. On Monday,
 
 And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gold...with a new so-called "Sanded Gold" colorway.Indeed, more breathable elderly …
 
-*Published on: Mon, 15 Jul 2024 17:14:42 GMT*
+*Published on: Tue, 16 Jul 2024 07:14:42 GMT*
 
 
 ## Olivia Rodrigo
@@ -7151,16 +7160,7 @@ And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gol
 
 Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
 
-*Published on: Mon, 15 Jul 2024 19:48:57 GMT*
-
-
-## Olivia Rodrigo
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+*Published on: Tue, 16 Jul 2024 09:48:57 GMT*
 
 
 ## Olivia Rodrigo
@@ -7210,11 +7210,20 @@ COMME des GARÇONS and Nike are back together, and as you may have suspected, th
 
 ## Obama
 
-## [Valentino Launches Hard-to-Get ‘Haute Couture’ Fragrance](https://www.highsnobiety.com/p/valentino-anatomy-of-dreams-fragrance/)
+## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
 
-Valentino's Haute Couture division now has a fragrance line to match. On Monday, the Italian fashion house unveiled its latest beauty venture, a collection of …
+Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
 
-*Published on: Mon, 15 Jul 2024 17:05:08 GMT*
+*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+
+
+## Obama
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
 ## Obama
@@ -7223,7 +7232,7 @@ Valentino's Haute Couture division now has a fragrance line to match. On Monday,
 
 And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gold...with a new so-called "Sanded Gold" colorway.Indeed, more breathable elderly …
 
-*Published on: Mon, 15 Jul 2024 17:14:42 GMT*
+*Published on: Tue, 16 Jul 2024 07:14:42 GMT*
 
 
 ## Obama
@@ -7232,16 +7241,7 @@ And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gol
 
 Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
 
-*Published on: Mon, 15 Jul 2024 19:48:57 GMT*
-
-
-## Obama
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+*Published on: Tue, 16 Jul 2024 09:48:57 GMT*
 
 
 ## Obama
@@ -7291,11 +7291,20 @@ COMME des GARÇONS and Nike are back together, and as you may have suspected, th
 
 ## Nicki Minaj
 
-## [Valentino Launches Hard-to-Get ‘Haute Couture’ Fragrance](https://www.highsnobiety.com/p/valentino-anatomy-of-dreams-fragrance/)
+## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
 
-Valentino's Haute Couture division now has a fragrance line to match. On Monday, the Italian fashion house unveiled its latest beauty venture, a collection of …
+Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
 
-*Published on: Mon, 15 Jul 2024 17:05:08 GMT*
+*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+
+
+## Nicki Minaj
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
 ## Nicki Minaj
@@ -7304,7 +7313,7 @@ Valentino's Haute Couture division now has a fragrance line to match. On Monday,
 
 And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gold...with a new so-called "Sanded Gold" colorway.Indeed, more breathable elderly …
 
-*Published on: Mon, 15 Jul 2024 17:14:42 GMT*
+*Published on: Tue, 16 Jul 2024 07:14:42 GMT*
 
 
 ## Nicki Minaj
@@ -7313,16 +7322,7 @@ And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gol
 
 Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
 
-*Published on: Mon, 15 Jul 2024 19:48:57 GMT*
-
-
-## Nicki Minaj
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+*Published on: Tue, 16 Jul 2024 09:48:57 GMT*
 
 
 ## Nicki Minaj
@@ -7372,11 +7372,20 @@ COMME des GARÇONS and Nike are back together, and as you may have suspected, th
 
 ## MrBeast
 
-## [Valentino Launches Hard-to-Get ‘Haute Couture’ Fragrance](https://www.highsnobiety.com/p/valentino-anatomy-of-dreams-fragrance/)
+## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
 
-Valentino's Haute Couture division now has a fragrance line to match. On Monday, the Italian fashion house unveiled its latest beauty venture, a collection of …
+Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
 
-*Published on: Mon, 15 Jul 2024 17:05:08 GMT*
+*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+
+
+## MrBeast
+
+## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
+
+adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
+
+*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
 ## MrBeast
@@ -7385,7 +7394,7 @@ Valentino's Haute Couture division now has a fragrance line to match. On Monday,
 
 And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gold...with a new so-called "Sanded Gold" colorway.Indeed, more breathable elderly …
 
-*Published on: Mon, 15 Jul 2024 17:14:42 GMT*
+*Published on: Tue, 16 Jul 2024 07:14:42 GMT*
 
 
 ## MrBeast
@@ -7394,16 +7403,7 @@ And just like that, the Stüssy x Nike LD-1000 sneaker collaboration strikes gol
 
 Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
 
-*Published on: Mon, 15 Jul 2024 19:48:57 GMT*
-
-
-## MrBeast
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
+*Published on: Tue, 16 Jul 2024 09:48:57 GMT*
 
 
 ## MrBeast
