@@ -1,15 +1,6 @@
 # Latest Stories
 ## Tim Cook
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Mon, 15 Jul 2024 05:40:45 GMT*
-
-
-## Tim Cook
-
 ## [Emma Corrin  Rami Malek Are OOO  Dressing Like It](https://www.highsnobiety.com/p/emma-corrin-rami-malek-beach-outfits/)
 
 Emma Corrin and Rami Malek go together like white linen and summer vacation.On Sunday, the couple was spotted strolling Rio de Janeiro's Ipanema beach looking …
@@ -64,15 +55,6 @@ Pool-side chilling just got extra cozy for adidas fans, especially those with a 
 
 ## Taylor Swift
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Mon, 15 Jul 2024 05:40:45 GMT*
-
-
-## Taylor Swift
-
 ## [Emma Corrin  Rami Malek Are OOO  Dressing Like It](https://www.highsnobiety.com/p/emma-corrin-rami-malek-beach-outfits/)
 
 Emma Corrin and Rami Malek go together like white linen and summer vacation.On Sunday, the couple was spotted strolling Rio de Janeiro's Ipanema beach looking …
@@ -127,15 +109,6 @@ Pool-side chilling just got extra cozy for adidas fans, especially those with a 
 
 ## Tom Brady
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Mon, 15 Jul 2024 05:40:45 GMT*
-
-
-## Tom Brady
-
 ## [Emma Corrin  Rami Malek Are OOO  Dressing Like It](https://www.highsnobiety.com/p/emma-corrin-rami-malek-beach-outfits/)
 
 Emma Corrin and Rami Malek go together like white linen and summer vacation.On Sunday, the couple was spotted strolling Rio de Janeiro's Ipanema beach looking …
@@ -190,15 +163,6 @@ Pool-side chilling just got extra cozy for adidas fans, especially those with a 
 
 ## Tina Fey
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Mon, 15 Jul 2024 05:40:45 GMT*
-
-
-## Tina Fey
-
 ## [Emma Corrin  Rami Malek Are OOO  Dressing Like It](https://www.highsnobiety.com/p/emma-corrin-rami-malek-beach-outfits/)
 
 Emma Corrin and Rami Malek go together like white linen and summer vacation.On Sunday, the couple was spotted strolling Rio de Janeiro's Ipanema beach looking …
@@ -253,15 +217,6 @@ Pool-side chilling just got extra cozy for adidas fans, especially those with a 
 
 ## Steven Yuen
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Mon, 15 Jul 2024 05:40:45 GMT*
-
-
-## Steven Yuen
-
 ## [Emma Corrin  Rami Malek Are OOO  Dressing Like It](https://www.highsnobiety.com/p/emma-corrin-rami-malek-beach-outfits/)
 
 Emma Corrin and Rami Malek go together like white linen and summer vacation.On Sunday, the couple was spotted strolling Rio de Janeiro's Ipanema beach looking …
@@ -316,15 +271,6 @@ Pool-side chilling just got extra cozy for adidas fans, especially those with a 
 
 ## Sommer Ray
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Mon, 15 Jul 2024 05:40:45 GMT*
-
-
-## Sommer Ray
-
 ## [Emma Corrin  Rami Malek Are OOO  Dressing Like It](https://www.highsnobiety.com/p/emma-corrin-rami-malek-beach-outfits/)
 
 Emma Corrin and Rami Malek go together like white linen and summer vacation.On Sunday, the couple was spotted strolling Rio de Janeiro's Ipanema beach looking …
@@ -379,15 +325,6 @@ Pool-side chilling just got extra cozy for adidas fans, especially those with a 
 
 ## Sza
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Mon, 15 Jul 2024 05:40:45 GMT*
-
-
-## Sza
-
 ## [Emma Corrin  Rami Malek Are OOO  Dressing Like It](https://www.highsnobiety.com/p/emma-corrin-rami-malek-beach-outfits/)
 
 Emma Corrin and Rami Malek go together like white linen and summer vacation.On Sunday, the couple was spotted strolling Rio de Janeiro's Ipanema beach looking …
@@ -442,15 +379,6 @@ Pool-side chilling just got extra cozy for adidas fans, especially those with a 
 
 ## Sydney Sweeney
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Mon, 15 Jul 2024 05:40:45 GMT*
-
-
-## Sydney Sweeney
-
 ## [Emma Corrin  Rami Malek Are OOO  Dressing Like It](https://www.highsnobiety.com/p/emma-corrin-rami-malek-beach-outfits/)
 
 Emma Corrin and Rami Malek go together like white linen and summer vacation.On Sunday, the couple was spotted strolling Rio de Janeiro's Ipanema beach looking …
@@ -505,15 +433,6 @@ Pool-side chilling just got extra cozy for adidas fans, especially those with a 
 
 ## Walton Goggins
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Mon, 15 Jul 2024 05:40:45 GMT*
-
-
-## Walton Goggins
-
 ## [Emma Corrin  Rami Malek Are OOO  Dressing Like It](https://www.highsnobiety.com/p/emma-corrin-rami-malek-beach-outfits/)
 
 Emma Corrin and Rami Malek go together like white linen and summer vacation.On Sunday, the couple was spotted strolling Rio de Janeiro's Ipanema beach looking …
@@ -568,15 +487,6 @@ Pool-side chilling just got extra cozy for adidas fans, especially those with a 
 
 ## Tom Holland
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Mon, 15 Jul 2024 05:40:45 GMT*
-
-
-## Tom Holland
-
 ## [Emma Corrin  Rami Malek Are OOO  Dressing Like It](https://www.highsnobiety.com/p/emma-corrin-rami-malek-beach-outfits/)
 
 Emma Corrin and Rami Malek go together like white linen and summer vacation.On Sunday, the couple was spotted strolling Rio de Janeiro's Ipanema beach looking …
@@ -631,15 +541,6 @@ Pool-side chilling just got extra cozy for adidas fans, especially those with a 
 
 ## Gucci Mane
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Mon, 15 Jul 2024 05:40:45 GMT*
-
-
-## Gucci Mane
-
 ## [Emma Corrin  Rami Malek Are OOO  Dressing Like It](https://www.highsnobiety.com/p/emma-corrin-rami-malek-beach-outfits/)
 
 Emma Corrin and Rami Malek go together like white linen and summer vacation.On Sunday, the couple was spotted strolling Rio de Janeiro's Ipanema beach looking …
@@ -694,15 +595,6 @@ Pool-side chilling just got extra cozy for adidas fans, especially those with a 
 
 ## Harry Styles
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Mon, 15 Jul 2024 05:40:45 GMT*
-
-
-## Harry Styles
-
 ## [Emma Corrin  Rami Malek Are OOO  Dressing Like It](https://www.highsnobiety.com/p/emma-corrin-rami-malek-beach-outfits/)
 
 Emma Corrin and Rami Malek go together like white linen and summer vacation.On Sunday, the couple was spotted strolling Rio de Janeiro's Ipanema beach looking …
@@ -757,15 +649,6 @@ Pool-side chilling just got extra cozy for adidas fans, especially those with a 
 
 ## Jake Paul
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Mon, 15 Jul 2024 05:40:45 GMT*
-
-
-## Jake Paul
-
 ## [Emma Corrin  Rami Malek Are OOO  Dressing Like It](https://www.highsnobiety.com/p/emma-corrin-rami-malek-beach-outfits/)
 
 Emma Corrin and Rami Malek go together like white linen and summer vacation.On Sunday, the couple was spotted strolling Rio de Janeiro's Ipanema beach looking …
@@ -820,15 +703,6 @@ Pool-side chilling just got extra cozy for adidas fans, especially those with a 
 
 ## Jameela Jamil
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Mon, 15 Jul 2024 05:40:45 GMT*
-
-
-## Jameela Jamil
-
 ## [Emma Corrin  Rami Malek Are OOO  Dressing Like It](https://www.highsnobiety.com/p/emma-corrin-rami-malek-beach-outfits/)
 
 Emma Corrin and Rami Malek go together like white linen and summer vacation.On Sunday, the couple was spotted strolling Rio de Janeiro's Ipanema beach looking …
@@ -883,15 +757,6 @@ Pool-side chilling just got extra cozy for adidas fans, especially those with a 
 
 ## Elon Musk
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Mon, 15 Jul 2024 05:40:45 GMT*
-
-
-## Elon Musk
-
 ## [Emma Corrin  Rami Malek Are OOO  Dressing Like It](https://www.highsnobiety.com/p/emma-corrin-rami-malek-beach-outfits/)
 
 Emma Corrin and Rami Malek go together like white linen and summer vacation.On Sunday, the couple was spotted strolling Rio de Janeiro's Ipanema beach looking …
@@ -946,15 +811,6 @@ Pool-side chilling just got extra cozy for adidas fans, especially those with a 
 
 ## Gabrielle Union
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Mon, 15 Jul 2024 05:40:45 GMT*
-
-
-## Gabrielle Union
-
 ## [Emma Corrin  Rami Malek Are OOO  Dressing Like It](https://www.highsnobiety.com/p/emma-corrin-rami-malek-beach-outfits/)
 
 Emma Corrin and Rami Malek go together like white linen and summer vacation.On Sunday, the couple was spotted strolling Rio de Janeiro's Ipanema beach looking …
@@ -1009,15 +865,6 @@ Pool-side chilling just got extra cozy for adidas fans, especially those with a 
 
 ## Giancarlo Esposito
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Mon, 15 Jul 2024 05:40:45 GMT*
-
-
-## Giancarlo Esposito
-
 ## [Emma Corrin  Rami Malek Are OOO  Dressing Like It](https://www.highsnobiety.com/p/emma-corrin-rami-malek-beach-outfits/)
 
 Emma Corrin and Rami Malek go together like white linen and summer vacation.On Sunday, the couple was spotted strolling Rio de Janeiro's Ipanema beach looking …
@@ -1072,15 +919,6 @@ Pool-side chilling just got extra cozy for adidas fans, especially those with a 
 
 ## Gillian Jacobs
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Mon, 15 Jul 2024 05:40:45 GMT*
-
-
-## Gillian Jacobs
-
 ## [Emma Corrin  Rami Malek Are OOO  Dressing Like It](https://www.highsnobiety.com/p/emma-corrin-rami-malek-beach-outfits/)
 
 Emma Corrin and Rami Malek go together like white linen and summer vacation.On Sunday, the couple was spotted strolling Rio de Janeiro's Ipanema beach looking …
@@ -1135,15 +973,6 @@ Pool-side chilling just got extra cozy for adidas fans, especially those with a 
 
 ## Jason Mantzoukas
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Mon, 15 Jul 2024 05:40:45 GMT*
-
-
-## Jason Mantzoukas
-
 ## [Emma Corrin  Rami Malek Are OOO  Dressing Like It](https://www.highsnobiety.com/p/emma-corrin-rami-malek-beach-outfits/)
 
 Emma Corrin and Rami Malek go together like white linen and summer vacation.On Sunday, the couple was spotted strolling Rio de Janeiro's Ipanema beach looking …
@@ -1198,15 +1027,6 @@ Pool-side chilling just got extra cozy for adidas fans, especially those with a 
 
 ## JB Smoove
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Mon, 15 Jul 2024 05:40:45 GMT*
-
-
-## JB Smoove
-
 ## [Emma Corrin  Rami Malek Are OOO  Dressing Like It](https://www.highsnobiety.com/p/emma-corrin-rami-malek-beach-outfits/)
 
 Emma Corrin and Rami Malek go together like white linen and summer vacation.On Sunday, the couple was spotted strolling Rio de Janeiro's Ipanema beach looking …
@@ -1261,15 +1081,6 @@ Pool-side chilling just got extra cozy for adidas fans, especially those with a 
 
 ## Madison Pettis
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Mon, 15 Jul 2024 05:40:45 GMT*
-
-
-## Madison Pettis
-
 ## [Emma Corrin  Rami Malek Are OOO  Dressing Like It](https://www.highsnobiety.com/p/emma-corrin-rami-malek-beach-outfits/)
 
 Emma Corrin and Rami Malek go together like white linen and summer vacation.On Sunday, the couple was spotted strolling Rio de Janeiro's Ipanema beach looking …
@@ -1324,15 +1135,6 @@ Pool-side chilling just got extra cozy for adidas fans, especially those with a 
 
 ## Austin Butler
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Mon, 15 Jul 2024 05:40:45 GMT*
-
-
-## Austin Butler
-
 ## [Emma Corrin  Rami Malek Are OOO  Dressing Like It](https://www.highsnobiety.com/p/emma-corrin-rami-malek-beach-outfits/)
 
 Emma Corrin and Rami Malek go together like white linen and summer vacation.On Sunday, the couple was spotted strolling Rio de Janeiro's Ipanema beach looking …
@@ -1387,15 +1189,6 @@ Pool-side chilling just got extra cozy for adidas fans, especially those with a 
 
 ## Mark Zuckerberg
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Mon, 15 Jul 2024 05:40:45 GMT*
-
-
-## Mark Zuckerberg
-
 ## [Emma Corrin  Rami Malek Are OOO  Dressing Like It](https://www.highsnobiety.com/p/emma-corrin-rami-malek-beach-outfits/)
 
 Emma Corrin and Rami Malek go together like white linen and summer vacation.On Sunday, the couple was spotted strolling Rio de Janeiro's Ipanema beach looking …
@@ -1450,15 +1243,6 @@ Pool-side chilling just got extra cozy for adidas fans, especially those with a 
 
 ## Ariana Grande
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Mon, 15 Jul 2024 05:40:45 GMT*
-
-
-## Ariana Grande
-
 ## [Emma Corrin  Rami Malek Are OOO  Dressing Like It](https://www.highsnobiety.com/p/emma-corrin-rami-malek-beach-outfits/)
 
 Emma Corrin and Rami Malek go together like white linen and summer vacation.On Sunday, the couple was spotted strolling Rio de Janeiro's Ipanema beach looking …
@@ -1513,15 +1297,6 @@ Pool-side chilling just got extra cozy for adidas fans, especially those with a 
 
 ## Livvy Dunne
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Mon, 15 Jul 2024 05:40:45 GMT*
-
-
-## Livvy Dunne
-
 ## [Emma Corrin  Rami Malek Are OOO  Dressing Like It](https://www.highsnobiety.com/p/emma-corrin-rami-malek-beach-outfits/)
 
 Emma Corrin and Rami Malek go together like white linen and summer vacation.On Sunday, the couple was spotted strolling Rio de Janeiro's Ipanema beach looking …
@@ -1576,15 +1351,6 @@ Pool-side chilling just got extra cozy for adidas fans, especially those with a 
 
 ## Ali Wong
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Mon, 15 Jul 2024 05:40:45 GMT*
-
-
-## Ali Wong
-
 ## [Emma Corrin  Rami Malek Are OOO  Dressing Like It](https://www.highsnobiety.com/p/emma-corrin-rami-malek-beach-outfits/)
 
 Emma Corrin and Rami Malek go together like white linen and summer vacation.On Sunday, the couple was spotted strolling Rio de Janeiro's Ipanema beach looking …
@@ -1639,15 +1405,6 @@ Pool-side chilling just got extra cozy for adidas fans, especially those with a 
 
 ## Lizzo
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Mon, 15 Jul 2024 05:40:45 GMT*
-
-
-## Lizzo
-
 ## [Emma Corrin  Rami Malek Are OOO  Dressing Like It](https://www.highsnobiety.com/p/emma-corrin-rami-malek-beach-outfits/)
 
 Emma Corrin and Rami Malek go together like white linen and summer vacation.On Sunday, the couple was spotted strolling Rio de Janeiro's Ipanema beach looking …
@@ -1702,15 +1459,6 @@ Pool-side chilling just got extra cozy for adidas fans, especially those with a 
 
 ## Alison Brie
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Mon, 15 Jul 2024 05:40:45 GMT*
-
-
-## Alison Brie
-
 ## [Emma Corrin  Rami Malek Are OOO  Dressing Like It](https://www.highsnobiety.com/p/emma-corrin-rami-malek-beach-outfits/)
 
 Emma Corrin and Rami Malek go together like white linen and summer vacation.On Sunday, the couple was spotted strolling Rio de Janeiro's Ipanema beach looking …
@@ -1765,15 +1513,6 @@ Pool-side chilling just got extra cozy for adidas fans, especially those with a 
 
 ## Lil Wayne
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Mon, 15 Jul 2024 05:40:45 GMT*
-
-
-## Lil Wayne
-
 ## [Emma Corrin  Rami Malek Are OOO  Dressing Like It](https://www.highsnobiety.com/p/emma-corrin-rami-malek-beach-outfits/)
 
 Emma Corrin and Rami Malek go together like white linen and summer vacation.On Sunday, the couple was spotted strolling Rio de Janeiro's Ipanema beach looking …
@@ -1828,15 +1567,6 @@ Pool-side chilling just got extra cozy for adidas fans, especially those with a 
 
 ## Adele
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Mon, 15 Jul 2024 05:40:45 GMT*
-
-
-## Adele
-
 ## [Emma Corrin  Rami Malek Are OOO  Dressing Like It](https://www.highsnobiety.com/p/emma-corrin-rami-malek-beach-outfits/)
 
 Emma Corrin and Rami Malek go together like white linen and summer vacation.On Sunday, the couple was spotted strolling Rio de Janeiro's Ipanema beach looking …
@@ -1891,15 +1621,6 @@ Pool-side chilling just got extra cozy for adidas fans, especially those with a 
 
 ## Lindsay Lohan
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Mon, 15 Jul 2024 05:40:45 GMT*
-
-
-## Lindsay Lohan
-
 ## [Emma Corrin  Rami Malek Are OOO  Dressing Like It](https://www.highsnobiety.com/p/emma-corrin-rami-malek-beach-outfits/)
 
 Emma Corrin and Rami Malek go together like white linen and summer vacation.On Sunday, the couple was spotted strolling Rio de Janeiro's Ipanema beach looking …
@@ -1954,15 +1675,6 @@ Pool-side chilling just got extra cozy for adidas fans, especially those with a 
 
 ## Addison Rae
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Mon, 15 Jul 2024 05:40:45 GMT*
-
-
-## Addison Rae
-
 ## [Emma Corrin  Rami Malek Are OOO  Dressing Like It](https://www.highsnobiety.com/p/emma-corrin-rami-malek-beach-outfits/)
 
 Emma Corrin and Rami Malek go together like white linen and summer vacation.On Sunday, the couple was spotted strolling Rio de Janeiro's Ipanema beach looking …
@@ -2017,15 +1729,6 @@ Pool-side chilling just got extra cozy for adidas fans, especially those with a 
 
 ## Latto
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Mon, 15 Jul 2024 05:40:45 GMT*
-
-
-## Latto
-
 ## [Emma Corrin  Rami Malek Are OOO  Dressing Like It](https://www.highsnobiety.com/p/emma-corrin-rami-malek-beach-outfits/)
 
 Emma Corrin and Rami Malek go together like white linen and summer vacation.On Sunday, the couple was spotted strolling Rio de Janeiro's Ipanema beach looking …
@@ -2080,15 +1783,6 @@ Pool-side chilling just got extra cozy for adidas fans, especially those with a 
 
 ## Aaron Paul
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Mon, 15 Jul 2024 05:40:45 GMT*
-
-
-## Aaron Paul
-
 ## [Emma Corrin  Rami Malek Are OOO  Dressing Like It](https://www.highsnobiety.com/p/emma-corrin-rami-malek-beach-outfits/)
 
 Emma Corrin and Rami Malek go together like white linen and summer vacation.On Sunday, the couple was spotted strolling Rio de Janeiro's Ipanema beach looking …
@@ -2143,15 +1837,6 @@ Pool-side chilling just got extra cozy for adidas fans, especially those with a 
 
 ## LeBron James
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Mon, 15 Jul 2024 05:40:45 GMT*
-
-
-## LeBron James
-
 ## [Emma Corrin  Rami Malek Are OOO  Dressing Like It](https://www.highsnobiety.com/p/emma-corrin-rami-malek-beach-outfits/)
 
 Emma Corrin and Rami Malek go together like white linen and summer vacation.On Sunday, the couple was spotted strolling Rio de Janeiro's Ipanema beach looking …
@@ -2206,15 +1891,6 @@ Pool-side chilling just got extra cozy for adidas fans, especially those with a 
 
 ## 50 Cent
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Mon, 15 Jul 2024 05:40:45 GMT*
-
-
-## 50 Cent
-
 ## [Emma Corrin  Rami Malek Are OOO  Dressing Like It](https://www.highsnobiety.com/p/emma-corrin-rami-malek-beach-outfits/)
 
 Emma Corrin and Rami Malek go together like white linen and summer vacation.On Sunday, the couple was spotted strolling Rio de Janeiro's Ipanema beach looking …
@@ -2269,15 +1945,6 @@ Pool-side chilling just got extra cozy for adidas fans, especially those with a 
 
 ## Kesha
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Mon, 15 Jul 2024 05:40:45 GMT*
-
-
-## Kesha
-
 ## [Emma Corrin  Rami Malek Are OOO  Dressing Like It](https://www.highsnobiety.com/p/emma-corrin-rami-malek-beach-outfits/)
 
 Emma Corrin and Rami Malek go together like white linen and summer vacation.On Sunday, the couple was spotted strolling Rio de Janeiro's Ipanema beach looking …
@@ -2332,15 +1999,6 @@ Pool-side chilling just got extra cozy for adidas fans, especially those with a 
 
 ## 21 Savage
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Mon, 15 Jul 2024 05:40:45 GMT*
-
-
-## 21 Savage
-
 ## [Emma Corrin  Rami Malek Are OOO  Dressing Like It](https://www.highsnobiety.com/p/emma-corrin-rami-malek-beach-outfits/)
 
 Emma Corrin and Rami Malek go together like white linen and summer vacation.On Sunday, the couple was spotted strolling Rio de Janeiro's Ipanema beach looking …
@@ -2395,15 +2053,6 @@ Pool-side chilling just got extra cozy for adidas fans, especially those with a 
 
 ## Larry David
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Mon, 15 Jul 2024 05:40:45 GMT*
-
-
-## Larry David
-
 ## [Emma Corrin  Rami Malek Are OOO  Dressing Like It](https://www.highsnobiety.com/p/emma-corrin-rami-malek-beach-outfits/)
 
 Emma Corrin and Rami Malek go together like white linen and summer vacation.On Sunday, the couple was spotted strolling Rio de Janeiro's Ipanema beach looking …
@@ -2458,15 +2107,6 @@ Pool-side chilling just got extra cozy for adidas fans, especially those with a 
 
 ## Seth Rogan
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Mon, 15 Jul 2024 05:40:45 GMT*
-
-
-## Seth Rogan
-
 ## [Emma Corrin  Rami Malek Are OOO  Dressing Like It](https://www.highsnobiety.com/p/emma-corrin-rami-malek-beach-outfits/)
 
 Emma Corrin and Rami Malek go together like white linen and summer vacation.On Sunday, the couple was spotted strolling Rio de Janeiro's Ipanema beach looking …
@@ -2521,15 +2161,6 @@ Pool-side chilling just got extra cozy for adidas fans, especially those with a 
 
 ## Simone Biles
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Mon, 15 Jul 2024 05:40:45 GMT*
-
-
-## Simone Biles
-
 ## [Emma Corrin  Rami Malek Are OOO  Dressing Like It](https://www.highsnobiety.com/p/emma-corrin-rami-malek-beach-outfits/)
 
 Emma Corrin and Rami Malek go together like white linen and summer vacation.On Sunday, the couple was spotted strolling Rio de Janeiro's Ipanema beach looking …
@@ -2584,15 +2215,6 @@ Pool-side chilling just got extra cozy for adidas fans, especially those with a 
 
 ## Pete Davidson
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Mon, 15 Jul 2024 05:40:45 GMT*
-
-
-## Pete Davidson
-
 ## [Emma Corrin  Rami Malek Are OOO  Dressing Like It](https://www.highsnobiety.com/p/emma-corrin-rami-malek-beach-outfits/)
 
 Emma Corrin and Rami Malek go together like white linen and summer vacation.On Sunday, the couple was spotted strolling Rio de Janeiro's Ipanema beach looking …
@@ -2647,15 +2269,6 @@ Pool-side chilling just got extra cozy for adidas fans, especially those with a 
 
 ## Prince Harry
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Mon, 15 Jul 2024 05:40:45 GMT*
-
-
-## Prince Harry
-
 ## [Emma Corrin  Rami Malek Are OOO  Dressing Like It](https://www.highsnobiety.com/p/emma-corrin-rami-malek-beach-outfits/)
 
 Emma Corrin and Rami Malek go together like white linen and summer vacation.On Sunday, the couple was spotted strolling Rio de Janeiro's Ipanema beach looking …
@@ -2710,15 +2323,6 @@ Pool-side chilling just got extra cozy for adidas fans, especially those with a 
 
 ## Princess of Wales
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Mon, 15 Jul 2024 05:40:45 GMT*
-
-
-## Princess of Wales
-
 ## [Emma Corrin  Rami Malek Are OOO  Dressing Like It](https://www.highsnobiety.com/p/emma-corrin-rami-malek-beach-outfits/)
 
 Emma Corrin and Rami Malek go together like white linen and summer vacation.On Sunday, the couple was spotted strolling Rio de Janeiro's Ipanema beach looking …
@@ -2773,15 +2377,6 @@ Pool-side chilling just got extra cozy for adidas fans, especially those with a 
 
 ## Rachel McAdams
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Mon, 15 Jul 2024 05:40:45 GMT*
-
-
-## Rachel McAdams
-
 ## [Emma Corrin  Rami Malek Are OOO  Dressing Like It](https://www.highsnobiety.com/p/emma-corrin-rami-malek-beach-outfits/)
 
 Emma Corrin and Rami Malek go together like white linen and summer vacation.On Sunday, the couple was spotted strolling Rio de Janeiro's Ipanema beach looking …
@@ -2836,15 +2431,6 @@ Pool-side chilling just got extra cozy for adidas fans, especially those with a 
 
 ## Reneé Rapp
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Mon, 15 Jul 2024 05:40:45 GMT*
-
-
-## Reneé Rapp
-
 ## [Emma Corrin  Rami Malek Are OOO  Dressing Like It](https://www.highsnobiety.com/p/emma-corrin-rami-malek-beach-outfits/)
 
 Emma Corrin and Rami Malek go together like white linen and summer vacation.On Sunday, the couple was spotted strolling Rio de Janeiro's Ipanema beach looking …
@@ -2899,15 +2485,6 @@ Pool-side chilling just got extra cozy for adidas fans, especially those with a 
 
 ## Rick Ross
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Mon, 15 Jul 2024 05:40:45 GMT*
-
-
-## Rick Ross
-
 ## [Emma Corrin  Rami Malek Are OOO  Dressing Like It](https://www.highsnobiety.com/p/emma-corrin-rami-malek-beach-outfits/)
 
 Emma Corrin and Rami Malek go together like white linen and summer vacation.On Sunday, the couple was spotted strolling Rio de Janeiro's Ipanema beach looking …
@@ -2962,15 +2539,6 @@ Pool-side chilling just got extra cozy for adidas fans, especially those with a 
 
 ## Sam Ashgari
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Mon, 15 Jul 2024 05:40:45 GMT*
-
-
-## Sam Ashgari
-
 ## [Emma Corrin  Rami Malek Are OOO  Dressing Like It](https://www.highsnobiety.com/p/emma-corrin-rami-malek-beach-outfits/)
 
 Emma Corrin and Rami Malek go together like white linen and summer vacation.On Sunday, the couple was spotted strolling Rio de Janeiro's Ipanema beach looking …
@@ -3025,15 +2593,6 @@ Pool-side chilling just got extra cozy for adidas fans, especially those with a 
 
 ## Sandra Oh
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Mon, 15 Jul 2024 05:40:45 GMT*
-
-
-## Sandra Oh
-
 ## [Emma Corrin  Rami Malek Are OOO  Dressing Like It](https://www.highsnobiety.com/p/emma-corrin-rami-malek-beach-outfits/)
 
 Emma Corrin and Rami Malek go together like white linen and summer vacation.On Sunday, the couple was spotted strolling Rio de Janeiro's Ipanema beach looking …
@@ -3088,15 +2647,6 @@ Pool-side chilling just got extra cozy for adidas fans, especially those with a 
 
 ## Donald Trump
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Mon, 15 Jul 2024 05:40:45 GMT*
-
-
-## Donald Trump
-
 ## [Emma Corrin  Rami Malek Are OOO  Dressing Like It](https://www.highsnobiety.com/p/emma-corrin-rami-malek-beach-outfits/)
 
 Emma Corrin and Rami Malek go together like white linen and summer vacation.On Sunday, the couple was spotted strolling Rio de Janeiro's Ipanema beach looking …
@@ -3151,15 +2701,6 @@ Pool-side chilling just got extra cozy for adidas fans, especially those with a 
 
 ## Diddy
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Mon, 15 Jul 2024 05:40:45 GMT*
-
-
-## Diddy
-
 ## [Emma Corrin  Rami Malek Are OOO  Dressing Like It](https://www.highsnobiety.com/p/emma-corrin-rami-malek-beach-outfits/)
 
 Emma Corrin and Rami Malek go together like white linen and summer vacation.On Sunday, the couple was spotted strolling Rio de Janeiro's Ipanema beach looking …
@@ -3214,15 +2755,6 @@ Pool-side chilling just got extra cozy for adidas fans, especially those with a 
 
 ## City Girls
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Mon, 15 Jul 2024 05:40:45 GMT*
-
-
-## City Girls
-
 ## [Emma Corrin  Rami Malek Are OOO  Dressing Like It](https://www.highsnobiety.com/p/emma-corrin-rami-malek-beach-outfits/)
 
 Emma Corrin and Rami Malek go together like white linen and summer vacation.On Sunday, the couple was spotted strolling Rio de Janeiro's Ipanema beach looking …
@@ -3277,15 +2809,6 @@ Pool-side chilling just got extra cozy for adidas fans, especially those with a 
 
 ## Chloe Bailey
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Mon, 15 Jul 2024 05:40:45 GMT*
-
-
-## Chloe Bailey
-
 ## [Emma Corrin  Rami Malek Are OOO  Dressing Like It](https://www.highsnobiety.com/p/emma-corrin-rami-malek-beach-outfits/)
 
 Emma Corrin and Rami Malek go together like white linen and summer vacation.On Sunday, the couple was spotted strolling Rio de Janeiro's Ipanema beach looking …
@@ -3340,15 +2863,6 @@ Pool-side chilling just got extra cozy for adidas fans, especially those with a 
 
 ## Charli D Amelio
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Mon, 15 Jul 2024 05:40:45 GMT*
-
-
-## Charli D Amelio
-
 ## [Emma Corrin  Rami Malek Are OOO  Dressing Like It](https://www.highsnobiety.com/p/emma-corrin-rami-malek-beach-outfits/)
 
 Emma Corrin and Rami Malek go together like white linen and summer vacation.On Sunday, the couple was spotted strolling Rio de Janeiro's Ipanema beach looking …
@@ -3403,15 +2917,6 @@ Pool-side chilling just got extra cozy for adidas fans, especially those with a 
 
 ## Cardi B
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Mon, 15 Jul 2024 05:40:45 GMT*
-
-
-## Cardi B
-
 ## [Emma Corrin  Rami Malek Are OOO  Dressing Like It](https://www.highsnobiety.com/p/emma-corrin-rami-malek-beach-outfits/)
 
 Emma Corrin and Rami Malek go together like white linen and summer vacation.On Sunday, the couple was spotted strolling Rio de Janeiro's Ipanema beach looking …
@@ -3466,15 +2971,6 @@ Pool-side chilling just got extra cozy for adidas fans, especially those with a 
 
 ## Bryan Cranston
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Mon, 15 Jul 2024 05:40:45 GMT*
-
-
-## Bryan Cranston
-
 ## [Emma Corrin  Rami Malek Are OOO  Dressing Like It](https://www.highsnobiety.com/p/emma-corrin-rami-malek-beach-outfits/)
 
 Emma Corrin and Rami Malek go together like white linen and summer vacation.On Sunday, the couple was spotted strolling Rio de Janeiro's Ipanema beach looking …
@@ -3529,15 +3025,6 @@ Pool-side chilling just got extra cozy for adidas fans, especially those with a 
 
 ## Brielle Biermann
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Mon, 15 Jul 2024 05:40:45 GMT*
-
-
-## Brielle Biermann
-
 ## [Emma Corrin  Rami Malek Are OOO  Dressing Like It](https://www.highsnobiety.com/p/emma-corrin-rami-malek-beach-outfits/)
 
 Emma Corrin and Rami Malek go together like white linen and summer vacation.On Sunday, the couple was spotted strolling Rio de Janeiro's Ipanema beach looking …
@@ -3592,15 +3079,6 @@ Pool-side chilling just got extra cozy for adidas fans, especially those with a 
 
 ## Dua Lipa
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Mon, 15 Jul 2024 05:40:45 GMT*
-
-
-## Dua Lipa
-
 ## [Emma Corrin  Rami Malek Are OOO  Dressing Like It](https://www.highsnobiety.com/p/emma-corrin-rami-malek-beach-outfits/)
 
 Emma Corrin and Rami Malek go together like white linen and summer vacation.On Sunday, the couple was spotted strolling Rio de Janeiro's Ipanema beach looking …
@@ -3655,15 +3133,6 @@ Pool-side chilling just got extra cozy for adidas fans, especially those with a 
 
 ## Drake
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Mon, 15 Jul 2024 05:40:45 GMT*
-
-
-## Drake
-
 ## [Emma Corrin  Rami Malek Are OOO  Dressing Like It](https://www.highsnobiety.com/p/emma-corrin-rami-malek-beach-outfits/)
 
 Emma Corrin and Rami Malek go together like white linen and summer vacation.On Sunday, the couple was spotted strolling Rio de Janeiro's Ipanema beach looking …
@@ -3718,15 +3187,6 @@ Pool-side chilling just got extra cozy for adidas fans, especially those with a 
 
 ## Jenner
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Mon, 15 Jul 2024 05:40:45 GMT*
-
-
-## Jenner
-
 ## [Emma Corrin  Rami Malek Are OOO  Dressing Like It](https://www.highsnobiety.com/p/emma-corrin-rami-malek-beach-outfits/)
 
 Emma Corrin and Rami Malek go together like white linen and summer vacation.On Sunday, the couple was spotted strolling Rio de Janeiro's Ipanema beach looking …
@@ -3781,15 +3241,6 @@ Pool-side chilling just got extra cozy for adidas fans, especially those with a 
 
 ## J. Cole
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Mon, 15 Jul 2024 05:40:45 GMT*
-
-
-## J. Cole
-
 ## [Emma Corrin  Rami Malek Are OOO  Dressing Like It](https://www.highsnobiety.com/p/emma-corrin-rami-malek-beach-outfits/)
 
 Emma Corrin and Rami Malek go together like white linen and summer vacation.On Sunday, the couple was spotted strolling Rio de Janeiro's Ipanema beach looking …
@@ -3844,15 +3295,6 @@ Pool-side chilling just got extra cozy for adidas fans, especially those with a 
 
 ## Jerrod Carmichael
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Mon, 15 Jul 2024 05:40:45 GMT*
-
-
-## Jerrod Carmichael
-
 ## [Emma Corrin  Rami Malek Are OOO  Dressing Like It](https://www.highsnobiety.com/p/emma-corrin-rami-malek-beach-outfits/)
 
 Emma Corrin and Rami Malek go together like white linen and summer vacation.On Sunday, the couple was spotted strolling Rio de Janeiro's Ipanema beach looking …
@@ -3907,15 +3349,6 @@ Pool-side chilling just got extra cozy for adidas fans, especially those with a 
 
 ## Jennifer Lawrence
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Mon, 15 Jul 2024 05:40:45 GMT*
-
-
-## Jennifer Lawrence
-
 ## [Emma Corrin  Rami Malek Are OOO  Dressing Like It](https://www.highsnobiety.com/p/emma-corrin-rami-malek-beach-outfits/)
 
 Emma Corrin and Rami Malek go together like white linen and summer vacation.On Sunday, the couple was spotted strolling Rio de Janeiro's Ipanema beach looking …
@@ -3970,15 +3403,6 @@ Pool-side chilling just got extra cozy for adidas fans, especially those with a 
 
 ## Joe Biden
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Mon, 15 Jul 2024 05:40:45 GMT*
-
-
-## Joe Biden
-
 ## [Emma Corrin  Rami Malek Are OOO  Dressing Like It](https://www.highsnobiety.com/p/emma-corrin-rami-malek-beach-outfits/)
 
 Emma Corrin and Rami Malek go together like white linen and summer vacation.On Sunday, the couple was spotted strolling Rio de Janeiro's Ipanema beach looking …
@@ -4033,15 +3457,6 @@ Pool-side chilling just got extra cozy for adidas fans, especially those with a 
 
 ## J.K. Simmons
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Mon, 15 Jul 2024 05:40:45 GMT*
-
-
-## J.K. Simmons
-
 ## [Emma Corrin  Rami Malek Are OOO  Dressing Like It](https://www.highsnobiety.com/p/emma-corrin-rami-malek-beach-outfits/)
 
 Emma Corrin and Rami Malek go together like white linen and summer vacation.On Sunday, the couple was spotted strolling Rio de Janeiro's Ipanema beach looking …
@@ -4096,15 +3511,6 @@ Pool-side chilling just got extra cozy for adidas fans, especially those with a 
 
 ## Kamala Harris
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Mon, 15 Jul 2024 05:40:45 GMT*
-
-
-## Kamala Harris
-
 ## [Emma Corrin  Rami Malek Are OOO  Dressing Like It](https://www.highsnobiety.com/p/emma-corrin-rami-malek-beach-outfits/)
 
 Emma Corrin and Rami Malek go together like white linen and summer vacation.On Sunday, the couple was spotted strolling Rio de Janeiro's Ipanema beach looking …
@@ -4159,15 +3565,6 @@ Pool-side chilling just got extra cozy for adidas fans, especially those with a 
 
 ## John C Reilly
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Mon, 15 Jul 2024 05:40:45 GMT*
-
-
-## John C Reilly
-
 ## [Emma Corrin  Rami Malek Are OOO  Dressing Like It](https://www.highsnobiety.com/p/emma-corrin-rami-malek-beach-outfits/)
 
 Emma Corrin and Rami Malek go together like white linen and summer vacation.On Sunday, the couple was spotted strolling Rio de Janeiro's Ipanema beach looking …
@@ -4222,15 +3619,6 @@ Pool-side chilling just got extra cozy for adidas fans, especially those with a 
 
 ## Kardashian
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Mon, 15 Jul 2024 05:40:45 GMT*
-
-
-## Kardashian
-
 ## [Emma Corrin  Rami Malek Are OOO  Dressing Like It](https://www.highsnobiety.com/p/emma-corrin-rami-malek-beach-outfits/)
 
 Emma Corrin and Rami Malek go together like white linen and summer vacation.On Sunday, the couple was spotted strolling Rio de Janeiro's Ipanema beach looking …
@@ -4285,15 +3673,6 @@ Pool-side chilling just got extra cozy for adidas fans, especially those with a 
 
 ## Kanye
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Mon, 15 Jul 2024 05:40:45 GMT*
-
-
-## Kanye
-
 ## [Emma Corrin  Rami Malek Are OOO  Dressing Like It](https://www.highsnobiety.com/p/emma-corrin-rami-malek-beach-outfits/)
 
 Emma Corrin and Rami Malek go together like white linen and summer vacation.On Sunday, the couple was spotted strolling Rio de Janeiro's Ipanema beach looking …
@@ -4348,15 +3727,6 @@ Pool-side chilling just got extra cozy for adidas fans, especially those with a 
 
 ## Zendaya
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Mon, 15 Jul 2024 05:40:45 GMT*
-
-
-## Zendaya
-
 ## [Emma Corrin  Rami Malek Are OOO  Dressing Like It](https://www.highsnobiety.com/p/emma-corrin-rami-malek-beach-outfits/)
 
 Emma Corrin and Rami Malek go together like white linen and summer vacation.On Sunday, the couple was spotted strolling Rio de Janeiro's Ipanema beach looking …
@@ -4411,15 +3781,6 @@ Pool-side chilling just got extra cozy for adidas fans, especially those with a 
 
 ## Will Ferrell
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Mon, 15 Jul 2024 05:40:45 GMT*
-
-
-## Will Ferrell
-
 ## [Emma Corrin  Rami Malek Are OOO  Dressing Like It](https://www.highsnobiety.com/p/emma-corrin-rami-malek-beach-outfits/)
 
 Emma Corrin and Rami Malek go together like white linen and summer vacation.On Sunday, the couple was spotted strolling Rio de Janeiro's Ipanema beach looking …
@@ -4474,15 +3835,6 @@ Pool-side chilling just got extra cozy for adidas fans, especially those with a 
 
 ## Zazie Beetz
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Mon, 15 Jul 2024 05:40:45 GMT*
-
-
-## Zazie Beetz
-
 ## [Emma Corrin  Rami Malek Are OOO  Dressing Like It](https://www.highsnobiety.com/p/emma-corrin-rami-malek-beach-outfits/)
 
 Emma Corrin and Rami Malek go together like white linen and summer vacation.On Sunday, the couple was spotted strolling Rio de Janeiro's Ipanema beach looking …
@@ -4537,15 +3889,6 @@ Pool-side chilling just got extra cozy for adidas fans, especially those with a 
 
 ## Bob Odenkirk
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Mon, 15 Jul 2024 05:40:45 GMT*
-
-
-## Bob Odenkirk
-
 ## [Emma Corrin  Rami Malek Are OOO  Dressing Like It](https://www.highsnobiety.com/p/emma-corrin-rami-malek-beach-outfits/)
 
 Emma Corrin and Rami Malek go together like white linen and summer vacation.On Sunday, the couple was spotted strolling Rio de Janeiro's Ipanema beach looking …
@@ -4600,15 +3943,6 @@ Pool-side chilling just got extra cozy for adidas fans, especially those with a 
 
 ## Brad Pitt
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Mon, 15 Jul 2024 05:40:45 GMT*
-
-
-## Brad Pitt
-
 ## [Emma Corrin  Rami Malek Are OOO  Dressing Like It](https://www.highsnobiety.com/p/emma-corrin-rami-malek-beach-outfits/)
 
 Emma Corrin and Rami Malek go together like white linen and summer vacation.On Sunday, the couple was spotted strolling Rio de Janeiro's Ipanema beach looking …
@@ -4663,15 +3997,6 @@ Pool-side chilling just got extra cozy for adidas fans, especially those with a 
 
 ## Beyoncé
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Mon, 15 Jul 2024 05:40:45 GMT*
-
-
-## Beyoncé
-
 ## [Emma Corrin  Rami Malek Are OOO  Dressing Like It](https://www.highsnobiety.com/p/emma-corrin-rami-malek-beach-outfits/)
 
 Emma Corrin and Rami Malek go together like white linen and summer vacation.On Sunday, the couple was spotted strolling Rio de Janeiro's Ipanema beach looking …
@@ -4726,15 +4051,6 @@ Pool-side chilling just got extra cozy for adidas fans, especially those with a 
 
 ## Bia
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Mon, 15 Jul 2024 05:40:45 GMT*
-
-
-## Bia
-
 ## [Emma Corrin  Rami Malek Are OOO  Dressing Like It](https://www.highsnobiety.com/p/emma-corrin-rami-malek-beach-outfits/)
 
 Emma Corrin and Rami Malek go together like white linen and summer vacation.On Sunday, the couple was spotted strolling Rio de Janeiro's Ipanema beach looking …
@@ -4789,15 +4105,6 @@ Pool-side chilling just got extra cozy for adidas fans, especially those with a 
 
 ## Avantika
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Mon, 15 Jul 2024 05:40:45 GMT*
-
-
-## Avantika
-
 ## [Emma Corrin  Rami Malek Are OOO  Dressing Like It](https://www.highsnobiety.com/p/emma-corrin-rami-malek-beach-outfits/)
 
 Emma Corrin and Rami Malek go together like white linen and summer vacation.On Sunday, the couple was spotted strolling Rio de Janeiro's Ipanema beach looking …
@@ -4852,15 +4159,6 @@ Pool-side chilling just got extra cozy for adidas fans, especially those with a 
 
 ## Bernie Sanders
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Mon, 15 Jul 2024 05:40:45 GMT*
-
-
-## Bernie Sanders
-
 ## [Emma Corrin  Rami Malek Are OOO  Dressing Like It](https://www.highsnobiety.com/p/emma-corrin-rami-malek-beach-outfits/)
 
 Emma Corrin and Rami Malek go together like white linen and summer vacation.On Sunday, the couple was spotted strolling Rio de Janeiro's Ipanema beach looking …
@@ -4915,15 +4213,6 @@ Pool-side chilling just got extra cozy for adidas fans, especially those with a 
 
 ## Big Sean
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Mon, 15 Jul 2024 05:40:45 GMT*
-
-
-## Big Sean
-
 ## [Emma Corrin  Rami Malek Are OOO  Dressing Like It](https://www.highsnobiety.com/p/emma-corrin-rami-malek-beach-outfits/)
 
 Emma Corrin and Rami Malek go together like white linen and summer vacation.On Sunday, the couple was spotted strolling Rio de Janeiro's Ipanema beach looking …
@@ -4978,15 +4267,6 @@ Pool-side chilling just got extra cozy for adidas fans, especially those with a 
 
 ## BlockBoy JB
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Mon, 15 Jul 2024 05:40:45 GMT*
-
-
-## BlockBoy JB
-
 ## [Emma Corrin  Rami Malek Are OOO  Dressing Like It](https://www.highsnobiety.com/p/emma-corrin-rami-malek-beach-outfits/)
 
 Emma Corrin and Rami Malek go together like white linen and summer vacation.On Sunday, the couple was spotted strolling Rio de Janeiro's Ipanema beach looking …
@@ -5041,15 +4321,6 @@ Pool-side chilling just got extra cozy for adidas fans, especially those with a 
 
 ## Biden
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Mon, 15 Jul 2024 05:40:45 GMT*
-
-
-## Biden
-
 ## [Emma Corrin  Rami Malek Are OOO  Dressing Like It](https://www.highsnobiety.com/p/emma-corrin-rami-malek-beach-outfits/)
 
 Emma Corrin and Rami Malek go together like white linen and summer vacation.On Sunday, the couple was spotted strolling Rio de Janeiro's Ipanema beach looking …
@@ -5104,15 +4375,6 @@ Pool-side chilling just got extra cozy for adidas fans, especially those with a 
 
 ## Bieber
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Mon, 15 Jul 2024 05:40:45 GMT*
-
-
-## Bieber
-
 ## [Emma Corrin  Rami Malek Are OOO  Dressing Like It](https://www.highsnobiety.com/p/emma-corrin-rami-malek-beach-outfits/)
 
 Emma Corrin and Rami Malek go together like white linen and summer vacation.On Sunday, the couple was spotted strolling Rio de Janeiro's Ipanema beach looking …
@@ -5167,15 +4429,6 @@ Pool-side chilling just got extra cozy for adidas fans, especially those with a 
 
 ## Paulina Porizkov
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Mon, 15 Jul 2024 05:40:45 GMT*
-
-
-## Paulina Porizkov
-
 ## [Emma Corrin  Rami Malek Are OOO  Dressing Like It](https://www.highsnobiety.com/p/emma-corrin-rami-malek-beach-outfits/)
 
 Emma Corrin and Rami Malek go together like white linen and summer vacation.On Sunday, the couple was spotted strolling Rio de Janeiro's Ipanema beach looking …
@@ -5230,15 +4483,6 @@ Pool-side chilling just got extra cozy for adidas fans, especially those with a 
 
 ## Paris Hilton
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Mon, 15 Jul 2024 05:40:45 GMT*
-
-
-## Paris Hilton
-
 ## [Emma Corrin  Rami Malek Are OOO  Dressing Like It](https://www.highsnobiety.com/p/emma-corrin-rami-malek-beach-outfits/)
 
 Emma Corrin and Rami Malek go together like white linen and summer vacation.On Sunday, the couple was spotted strolling Rio de Janeiro's Ipanema beach looking …
@@ -5293,15 +4537,6 @@ Pool-side chilling just got extra cozy for adidas fans, especially those with a 
 
 ## Metro Boomin
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Mon, 15 Jul 2024 05:40:45 GMT*
-
-
-## Metro Boomin
-
 ## [Emma Corrin  Rami Malek Are OOO  Dressing Like It](https://www.highsnobiety.com/p/emma-corrin-rami-malek-beach-outfits/)
 
 Emma Corrin and Rami Malek go together like white linen and summer vacation.On Sunday, the couple was spotted strolling Rio de Janeiro's Ipanema beach looking …
@@ -5356,15 +4591,6 @@ Pool-side chilling just got extra cozy for adidas fans, especially those with a 
 
 ## Meghan Markle
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Mon, 15 Jul 2024 05:40:45 GMT*
-
-
-## Meghan Markle
-
 ## [Emma Corrin  Rami Malek Are OOO  Dressing Like It](https://www.highsnobiety.com/p/emma-corrin-rami-malek-beach-outfits/)
 
 Emma Corrin and Rami Malek go together like white linen and summer vacation.On Sunday, the couple was spotted strolling Rio de Janeiro's Ipanema beach looking …
@@ -5415,15 +4641,6 @@ Nigel Sylvester is sharing his grandmother's driveway with the world through his
 Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
 
 *Published on: Mon, 15 Jul 2024 21:11:51 GMT*
-
-
-## Megan Thee Stallion
-
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Mon, 15 Jul 2024 05:40:45 GMT*
 
 
 ## Megan Thee Stallion
@@ -5482,15 +4699,6 @@ Pool-side chilling just got extra cozy for adidas fans, especially those with a 
 
 ## Maya Rudolph
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Mon, 15 Jul 2024 05:40:45 GMT*
-
-
-## Maya Rudolph
-
 ## [Emma Corrin  Rami Malek Are OOO  Dressing Like It](https://www.highsnobiety.com/p/emma-corrin-rami-malek-beach-outfits/)
 
 Emma Corrin and Rami Malek go together like white linen and summer vacation.On Sunday, the couple was spotted strolling Rio de Janeiro's Ipanema beach looking …
@@ -5541,15 +4749,6 @@ Nigel Sylvester is sharing his grandmother's driveway with the world through his
 Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
 
 *Published on: Mon, 15 Jul 2024 21:11:51 GMT*
-
-
-## Olivia Rodrigo
-
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Mon, 15 Jul 2024 05:40:45 GMT*
 
 
 ## Olivia Rodrigo
@@ -5608,15 +4807,6 @@ Pool-side chilling just got extra cozy for adidas fans, especially those with a 
 
 ## Obama
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Mon, 15 Jul 2024 05:40:45 GMT*
-
-
-## Obama
-
 ## [Emma Corrin  Rami Malek Are OOO  Dressing Like It](https://www.highsnobiety.com/p/emma-corrin-rami-malek-beach-outfits/)
 
 Emma Corrin and Rami Malek go together like white linen and summer vacation.On Sunday, the couple was spotted strolling Rio de Janeiro's Ipanema beach looking …
@@ -5671,15 +4861,6 @@ Pool-side chilling just got extra cozy for adidas fans, especially those with a 
 
 ## Nicki Minaj
 
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Mon, 15 Jul 2024 05:40:45 GMT*
-
-
-## Nicki Minaj
-
 ## [Emma Corrin  Rami Malek Are OOO  Dressing Like It](https://www.highsnobiety.com/p/emma-corrin-rami-malek-beach-outfits/)
 
 Emma Corrin and Rami Malek go together like white linen and summer vacation.On Sunday, the couple was spotted strolling Rio de Janeiro's Ipanema beach looking …
@@ -5730,15 +4911,6 @@ Nigel Sylvester is sharing his grandmother's driveway with the world through his
 Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
 
 *Published on: Mon, 15 Jul 2024 21:11:51 GMT*
-
-
-## MrBeast
-
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Mon, 15 Jul 2024 05:40:45 GMT*
 
 
 ## MrBeast
