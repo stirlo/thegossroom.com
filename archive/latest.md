@@ -1,15 +1,6 @@
 # Latest Stories
 ## Tim Cook
 
-## [The Ultimate Buyer's Guide to Maison Margiela Sneakers](https://www.highsnobiety.com/p/margiela-sneakers-guide-buy-online/)
-
-When it comes to high fashion's sneaker offering, regular readers of Highsnobiety will know all about our love for Maison Margiela 's output. If you're going t…
-
-*Published on: Wed, 17 Jul 2024 08:10:40 GMT*
-
-
-## Tim Cook
-
 ## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
 
 There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
@@ -82,11 +73,101 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Tim Cook
 
-## [We're Only Wearing Retro Sunglasses This Summer](https://www.highsnobiety.com/p/retro-sunglasses-buy-online/)
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
 
-Whether it feels like it or not, sun is on its way. And when it does, there’s a mad rush to cop all your summer essentials as if it’s a surprise that summer ac…
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
 
-*Published on: Tue, 16 Jul 2024 13:12:11 GMT*
+*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
+
+
+## Tim Cook
+
+## [The Ultimate Buyer's Guide to Maison Margiela Sneakers](https://www.highsnobiety.com/p/margiela-sneakers-guide-buy-online/)
+
+When it comes to high fashion's sneaker offering, regular readers of Highsnobiety will know all about our love for Maison Margiela 's output. If you're going t…
+
+*Published on: Wed, 17 Jul 2024 08:10:40 GMT*
+
+
+## Taylor Swift
+
+## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
+
+There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
+
+*Published on: Wed, 17 Jul 2024 08:49:16 GMT*
+
+
+## Taylor Swift
+
+## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
+
+Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
+
+*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
+
+
+## Taylor Swift
+
+## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
+
+On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
+
+*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
+
+
+## Taylor Swift
+
+## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
+
+In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
+
+*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
+
+
+## Taylor Swift
+
+## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
+
+COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
+
+*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
+
+
+## Taylor Swift
+
+## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
+
+VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
+
+*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
+
+
+## Taylor Swift
+
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
+
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
+
+*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
+
+
+## Taylor Swift
+
+## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
+
+Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
+
+*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
+
+
+## Taylor Swift
+
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
+
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
+
+*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
 
 
 ## Taylor Swift
@@ -98,96 +179,6 @@ When it comes to high fashion's sneaker offering, regular readers of Highsnobiet
 *Published on: Wed, 17 Jul 2024 08:10:40 GMT*
 
 
-## Taylor Swift
-
-## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
-
-There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
-
-*Published on: Wed, 17 Jul 2024 08:49:16 GMT*
-
-
-## Taylor Swift
-
-## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
-
-Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
-
-*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
-
-
-## Taylor Swift
-
-## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
-
-On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
-
-*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
-
-
-## Taylor Swift
-
-## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
-
-In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
-
-*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
-
-
-## Taylor Swift
-
-## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
-
-COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
-
-*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
-
-
-## Taylor Swift
-
-## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
-
-VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
-
-*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
-
-
-## Taylor Swift
-
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
-
-
-## Taylor Swift
-
-## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
-
-Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
-
-*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
-
-
-## Taylor Swift
-
-## [We're Only Wearing Retro Sunglasses This Summer](https://www.highsnobiety.com/p/retro-sunglasses-buy-online/)
-
-Whether it feels like it or not, sun is on its way. And when it does, there’s a mad rush to cop all your summer essentials as if it’s a surprise that summer ac…
-
-*Published on: Tue, 16 Jul 2024 13:12:11 GMT*
-
-
-## Tom Brady
-
-## [The Ultimate Buyer's Guide to Maison Margiela Sneakers](https://www.highsnobiety.com/p/margiela-sneakers-guide-buy-online/)
-
-When it comes to high fashion's sneaker offering, regular readers of Highsnobiety will know all about our love for Maison Margiela 's output. If you're going t…
-
-*Published on: Wed, 17 Jul 2024 08:10:40 GMT*
-
-
 ## Tom Brady
 
 ## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
@@ -262,14 +253,14 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Tom Brady
 
-## [We're Only Wearing Retro Sunglasses This Summer](https://www.highsnobiety.com/p/retro-sunglasses-buy-online/)
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
 
-Whether it feels like it or not, sun is on its way. And when it does, there’s a mad rush to cop all your summer essentials as if it’s a surprise that summer ac…
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
 
-*Published on: Tue, 16 Jul 2024 13:12:11 GMT*
+*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
 
 
-## Tina Fey
+## Tom Brady
 
 ## [The Ultimate Buyer's Guide to Maison Margiela Sneakers](https://www.highsnobiety.com/p/margiela-sneakers-guide-buy-online/)
 
@@ -352,11 +343,101 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Tina Fey
 
-## [We're Only Wearing Retro Sunglasses This Summer](https://www.highsnobiety.com/p/retro-sunglasses-buy-online/)
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
 
-Whether it feels like it or not, sun is on its way. And when it does, there’s a mad rush to cop all your summer essentials as if it’s a surprise that summer ac…
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
 
-*Published on: Tue, 16 Jul 2024 13:12:11 GMT*
+*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
+
+
+## Tina Fey
+
+## [The Ultimate Buyer's Guide to Maison Margiela Sneakers](https://www.highsnobiety.com/p/margiela-sneakers-guide-buy-online/)
+
+When it comes to high fashion's sneaker offering, regular readers of Highsnobiety will know all about our love for Maison Margiela 's output. If you're going t…
+
+*Published on: Wed, 17 Jul 2024 08:10:40 GMT*
+
+
+## Steven Yuen
+
+## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
+
+There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
+
+*Published on: Wed, 17 Jul 2024 08:49:16 GMT*
+
+
+## Steven Yuen
+
+## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
+
+Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
+
+*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
+
+
+## Steven Yuen
+
+## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
+
+On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
+
+*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
+
+
+## Steven Yuen
+
+## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
+
+In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
+
+*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
+
+
+## Steven Yuen
+
+## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
+
+COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
+
+*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
+
+
+## Steven Yuen
+
+## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
+
+VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
+
+*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
+
+
+## Steven Yuen
+
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
+
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
+
+*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
+
+
+## Steven Yuen
+
+## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
+
+Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
+
+*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
+
+
+## Steven Yuen
+
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
+
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
+
+*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
 
 
 ## Steven Yuen
@@ -368,96 +449,6 @@ When it comes to high fashion's sneaker offering, regular readers of Highsnobiet
 *Published on: Wed, 17 Jul 2024 08:10:40 GMT*
 
 
-## Steven Yuen
-
-## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
-
-There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
-
-*Published on: Wed, 17 Jul 2024 08:49:16 GMT*
-
-
-## Steven Yuen
-
-## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
-
-Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
-
-*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
-
-
-## Steven Yuen
-
-## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
-
-On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
-
-*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
-
-
-## Steven Yuen
-
-## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
-
-In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
-
-*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
-
-
-## Steven Yuen
-
-## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
-
-COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
-
-*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
-
-
-## Steven Yuen
-
-## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
-
-VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
-
-*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
-
-
-## Steven Yuen
-
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
-
-
-## Steven Yuen
-
-## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
-
-Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
-
-*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
-
-
-## Steven Yuen
-
-## [We're Only Wearing Retro Sunglasses This Summer](https://www.highsnobiety.com/p/retro-sunglasses-buy-online/)
-
-Whether it feels like it or not, sun is on its way. And when it does, there’s a mad rush to cop all your summer essentials as if it’s a surprise that summer ac…
-
-*Published on: Tue, 16 Jul 2024 13:12:11 GMT*
-
-
-## Sommer Ray
-
-## [The Ultimate Buyer's Guide to Maison Margiela Sneakers](https://www.highsnobiety.com/p/margiela-sneakers-guide-buy-online/)
-
-When it comes to high fashion's sneaker offering, regular readers of Highsnobiety will know all about our love for Maison Margiela 's output. If you're going t…
-
-*Published on: Wed, 17 Jul 2024 08:10:40 GMT*
-
-
 ## Sommer Ray
 
 ## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
@@ -532,14 +523,14 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Sommer Ray
 
-## [We're Only Wearing Retro Sunglasses This Summer](https://www.highsnobiety.com/p/retro-sunglasses-buy-online/)
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
 
-Whether it feels like it or not, sun is on its way. And when it does, there’s a mad rush to cop all your summer essentials as if it’s a surprise that summer ac…
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
 
-*Published on: Tue, 16 Jul 2024 13:12:11 GMT*
+*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
 
 
-## Sza
+## Sommer Ray
 
 ## [The Ultimate Buyer's Guide to Maison Margiela Sneakers](https://www.highsnobiety.com/p/margiela-sneakers-guide-buy-online/)
 
@@ -622,11 +613,101 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Sza
 
-## [We're Only Wearing Retro Sunglasses This Summer](https://www.highsnobiety.com/p/retro-sunglasses-buy-online/)
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
 
-Whether it feels like it or not, sun is on its way. And when it does, there’s a mad rush to cop all your summer essentials as if it’s a surprise that summer ac…
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
 
-*Published on: Tue, 16 Jul 2024 13:12:11 GMT*
+*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
+
+
+## Sza
+
+## [The Ultimate Buyer's Guide to Maison Margiela Sneakers](https://www.highsnobiety.com/p/margiela-sneakers-guide-buy-online/)
+
+When it comes to high fashion's sneaker offering, regular readers of Highsnobiety will know all about our love for Maison Margiela 's output. If you're going t…
+
+*Published on: Wed, 17 Jul 2024 08:10:40 GMT*
+
+
+## Sydney Sweeney
+
+## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
+
+There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
+
+*Published on: Wed, 17 Jul 2024 08:49:16 GMT*
+
+
+## Sydney Sweeney
+
+## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
+
+Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
+
+*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
+
+
+## Sydney Sweeney
+
+## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
+
+On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
+
+*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
+
+
+## Sydney Sweeney
+
+## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
+
+In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
+
+*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
+
+
+## Sydney Sweeney
+
+## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
+
+COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
+
+*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
+
+
+## Sydney Sweeney
+
+## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
+
+VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
+
+*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
+
+
+## Sydney Sweeney
+
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
+
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
+
+*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
+
+
+## Sydney Sweeney
+
+## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
+
+Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
+
+*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
+
+
+## Sydney Sweeney
+
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
+
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
+
+*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
 
 
 ## Sydney Sweeney
@@ -638,96 +719,6 @@ When it comes to high fashion's sneaker offering, regular readers of Highsnobiet
 *Published on: Wed, 17 Jul 2024 08:10:40 GMT*
 
 
-## Sydney Sweeney
-
-## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
-
-There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
-
-*Published on: Wed, 17 Jul 2024 08:49:16 GMT*
-
-
-## Sydney Sweeney
-
-## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
-
-Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
-
-*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
-
-
-## Sydney Sweeney
-
-## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
-
-On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
-
-*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
-
-
-## Sydney Sweeney
-
-## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
-
-In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
-
-*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
-
-
-## Sydney Sweeney
-
-## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
-
-COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
-
-*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
-
-
-## Sydney Sweeney
-
-## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
-
-VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
-
-*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
-
-
-## Sydney Sweeney
-
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
-
-
-## Sydney Sweeney
-
-## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
-
-Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
-
-*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
-
-
-## Sydney Sweeney
-
-## [We're Only Wearing Retro Sunglasses This Summer](https://www.highsnobiety.com/p/retro-sunglasses-buy-online/)
-
-Whether it feels like it or not, sun is on its way. And when it does, there’s a mad rush to cop all your summer essentials as if it’s a surprise that summer ac…
-
-*Published on: Tue, 16 Jul 2024 13:12:11 GMT*
-
-
-## Walton Goggins
-
-## [The Ultimate Buyer's Guide to Maison Margiela Sneakers](https://www.highsnobiety.com/p/margiela-sneakers-guide-buy-online/)
-
-When it comes to high fashion's sneaker offering, regular readers of Highsnobiety will know all about our love for Maison Margiela 's output. If you're going t…
-
-*Published on: Wed, 17 Jul 2024 08:10:40 GMT*
-
-
 ## Walton Goggins
 
 ## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
@@ -802,14 +793,14 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Walton Goggins
 
-## [We're Only Wearing Retro Sunglasses This Summer](https://www.highsnobiety.com/p/retro-sunglasses-buy-online/)
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
 
-Whether it feels like it or not, sun is on its way. And when it does, there’s a mad rush to cop all your summer essentials as if it’s a surprise that summer ac…
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
 
-*Published on: Tue, 16 Jul 2024 13:12:11 GMT*
+*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
 
 
-## Tom Holland
+## Walton Goggins
 
 ## [The Ultimate Buyer's Guide to Maison Margiela Sneakers](https://www.highsnobiety.com/p/margiela-sneakers-guide-buy-online/)
 
@@ -892,11 +883,101 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Tom Holland
 
-## [We're Only Wearing Retro Sunglasses This Summer](https://www.highsnobiety.com/p/retro-sunglasses-buy-online/)
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
 
-Whether it feels like it or not, sun is on its way. And when it does, there’s a mad rush to cop all your summer essentials as if it’s a surprise that summer ac…
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
 
-*Published on: Tue, 16 Jul 2024 13:12:11 GMT*
+*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
+
+
+## Tom Holland
+
+## [The Ultimate Buyer's Guide to Maison Margiela Sneakers](https://www.highsnobiety.com/p/margiela-sneakers-guide-buy-online/)
+
+When it comes to high fashion's sneaker offering, regular readers of Highsnobiety will know all about our love for Maison Margiela 's output. If you're going t…
+
+*Published on: Wed, 17 Jul 2024 08:10:40 GMT*
+
+
+## Gucci Mane
+
+## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
+
+There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
+
+*Published on: Wed, 17 Jul 2024 08:49:16 GMT*
+
+
+## Gucci Mane
+
+## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
+
+Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
+
+*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
+
+
+## Gucci Mane
+
+## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
+
+On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
+
+*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
+
+
+## Gucci Mane
+
+## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
+
+In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
+
+*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
+
+
+## Gucci Mane
+
+## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
+
+COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
+
+*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
+
+
+## Gucci Mane
+
+## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
+
+VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
+
+*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
+
+
+## Gucci Mane
+
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
+
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
+
+*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
+
+
+## Gucci Mane
+
+## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
+
+Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
+
+*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
+
+
+## Gucci Mane
+
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
+
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
+
+*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
 
 
 ## Gucci Mane
@@ -908,96 +989,6 @@ When it comes to high fashion's sneaker offering, regular readers of Highsnobiet
 *Published on: Wed, 17 Jul 2024 08:10:40 GMT*
 
 
-## Gucci Mane
-
-## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
-
-There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
-
-*Published on: Wed, 17 Jul 2024 08:49:16 GMT*
-
-
-## Gucci Mane
-
-## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
-
-Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
-
-*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
-
-
-## Gucci Mane
-
-## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
-
-On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
-
-*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
-
-
-## Gucci Mane
-
-## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
-
-In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
-
-*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
-
-
-## Gucci Mane
-
-## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
-
-COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
-
-*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
-
-
-## Gucci Mane
-
-## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
-
-VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
-
-*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
-
-
-## Gucci Mane
-
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
-
-
-## Gucci Mane
-
-## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
-
-Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
-
-*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
-
-
-## Gucci Mane
-
-## [We're Only Wearing Retro Sunglasses This Summer](https://www.highsnobiety.com/p/retro-sunglasses-buy-online/)
-
-Whether it feels like it or not, sun is on its way. And when it does, there’s a mad rush to cop all your summer essentials as if it’s a surprise that summer ac…
-
-*Published on: Tue, 16 Jul 2024 13:12:11 GMT*
-
-
-## Harry Styles
-
-## [The Ultimate Buyer's Guide to Maison Margiela Sneakers](https://www.highsnobiety.com/p/margiela-sneakers-guide-buy-online/)
-
-When it comes to high fashion's sneaker offering, regular readers of Highsnobiety will know all about our love for Maison Margiela 's output. If you're going t…
-
-*Published on: Wed, 17 Jul 2024 08:10:40 GMT*
-
-
 ## Harry Styles
 
 ## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
@@ -1072,14 +1063,14 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Harry Styles
 
-## [We're Only Wearing Retro Sunglasses This Summer](https://www.highsnobiety.com/p/retro-sunglasses-buy-online/)
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
 
-Whether it feels like it or not, sun is on its way. And when it does, there’s a mad rush to cop all your summer essentials as if it’s a surprise that summer ac…
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
 
-*Published on: Tue, 16 Jul 2024 13:12:11 GMT*
+*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
 
 
-## Jake Paul
+## Harry Styles
 
 ## [The Ultimate Buyer's Guide to Maison Margiela Sneakers](https://www.highsnobiety.com/p/margiela-sneakers-guide-buy-online/)
 
@@ -1162,11 +1153,101 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Jake Paul
 
-## [We're Only Wearing Retro Sunglasses This Summer](https://www.highsnobiety.com/p/retro-sunglasses-buy-online/)
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
 
-Whether it feels like it or not, sun is on its way. And when it does, there’s a mad rush to cop all your summer essentials as if it’s a surprise that summer ac…
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
 
-*Published on: Tue, 16 Jul 2024 13:12:11 GMT*
+*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
+
+
+## Jake Paul
+
+## [The Ultimate Buyer's Guide to Maison Margiela Sneakers](https://www.highsnobiety.com/p/margiela-sneakers-guide-buy-online/)
+
+When it comes to high fashion's sneaker offering, regular readers of Highsnobiety will know all about our love for Maison Margiela 's output. If you're going t…
+
+*Published on: Wed, 17 Jul 2024 08:10:40 GMT*
+
+
+## Jameela Jamil
+
+## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
+
+There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
+
+*Published on: Wed, 17 Jul 2024 08:49:16 GMT*
+
+
+## Jameela Jamil
+
+## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
+
+Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
+
+*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
+
+
+## Jameela Jamil
+
+## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
+
+On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
+
+*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
+
+
+## Jameela Jamil
+
+## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
+
+In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
+
+*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
+
+
+## Jameela Jamil
+
+## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
+
+COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
+
+*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
+
+
+## Jameela Jamil
+
+## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
+
+VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
+
+*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
+
+
+## Jameela Jamil
+
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
+
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
+
+*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
+
+
+## Jameela Jamil
+
+## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
+
+Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
+
+*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
+
+
+## Jameela Jamil
+
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
+
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
+
+*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
 
 
 ## Jameela Jamil
@@ -1178,96 +1259,6 @@ When it comes to high fashion's sneaker offering, regular readers of Highsnobiet
 *Published on: Wed, 17 Jul 2024 08:10:40 GMT*
 
 
-## Jameela Jamil
-
-## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
-
-There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
-
-*Published on: Wed, 17 Jul 2024 08:49:16 GMT*
-
-
-## Jameela Jamil
-
-## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
-
-Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
-
-*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
-
-
-## Jameela Jamil
-
-## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
-
-On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
-
-*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
-
-
-## Jameela Jamil
-
-## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
-
-In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
-
-*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
-
-
-## Jameela Jamil
-
-## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
-
-COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
-
-*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
-
-
-## Jameela Jamil
-
-## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
-
-VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
-
-*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
-
-
-## Jameela Jamil
-
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
-
-
-## Jameela Jamil
-
-## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
-
-Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
-
-*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
-
-
-## Jameela Jamil
-
-## [We're Only Wearing Retro Sunglasses This Summer](https://www.highsnobiety.com/p/retro-sunglasses-buy-online/)
-
-Whether it feels like it or not, sun is on its way. And when it does, there’s a mad rush to cop all your summer essentials as if it’s a surprise that summer ac…
-
-*Published on: Tue, 16 Jul 2024 13:12:11 GMT*
-
-
-## Elon Musk
-
-## [The Ultimate Buyer's Guide to Maison Margiela Sneakers](https://www.highsnobiety.com/p/margiela-sneakers-guide-buy-online/)
-
-When it comes to high fashion's sneaker offering, regular readers of Highsnobiety will know all about our love for Maison Margiela 's output. If you're going t…
-
-*Published on: Wed, 17 Jul 2024 08:10:40 GMT*
-
-
 ## Elon Musk
 
 ## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
@@ -1342,14 +1333,14 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Elon Musk
 
-## [We're Only Wearing Retro Sunglasses This Summer](https://www.highsnobiety.com/p/retro-sunglasses-buy-online/)
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
 
-Whether it feels like it or not, sun is on its way. And when it does, there’s a mad rush to cop all your summer essentials as if it’s a surprise that summer ac…
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
 
-*Published on: Tue, 16 Jul 2024 13:12:11 GMT*
+*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
 
 
-## Gabrielle Union
+## Elon Musk
 
 ## [The Ultimate Buyer's Guide to Maison Margiela Sneakers](https://www.highsnobiety.com/p/margiela-sneakers-guide-buy-online/)
 
@@ -1432,11 +1423,101 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Gabrielle Union
 
-## [We're Only Wearing Retro Sunglasses This Summer](https://www.highsnobiety.com/p/retro-sunglasses-buy-online/)
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
 
-Whether it feels like it or not, sun is on its way. And when it does, there’s a mad rush to cop all your summer essentials as if it’s a surprise that summer ac…
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
 
-*Published on: Tue, 16 Jul 2024 13:12:11 GMT*
+*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
+
+
+## Gabrielle Union
+
+## [The Ultimate Buyer's Guide to Maison Margiela Sneakers](https://www.highsnobiety.com/p/margiela-sneakers-guide-buy-online/)
+
+When it comes to high fashion's sneaker offering, regular readers of Highsnobiety will know all about our love for Maison Margiela 's output. If you're going t…
+
+*Published on: Wed, 17 Jul 2024 08:10:40 GMT*
+
+
+## Giancarlo Esposito
+
+## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
+
+There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
+
+*Published on: Wed, 17 Jul 2024 08:49:16 GMT*
+
+
+## Giancarlo Esposito
+
+## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
+
+Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
+
+*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
+
+
+## Giancarlo Esposito
+
+## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
+
+On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
+
+*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
+
+
+## Giancarlo Esposito
+
+## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
+
+In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
+
+*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
+
+
+## Giancarlo Esposito
+
+## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
+
+COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
+
+*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
+
+
+## Giancarlo Esposito
+
+## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
+
+VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
+
+*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
+
+
+## Giancarlo Esposito
+
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
+
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
+
+*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
+
+
+## Giancarlo Esposito
+
+## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
+
+Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
+
+*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
+
+
+## Giancarlo Esposito
+
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
+
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
+
+*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
 
 
 ## Giancarlo Esposito
@@ -1448,96 +1529,6 @@ When it comes to high fashion's sneaker offering, regular readers of Highsnobiet
 *Published on: Wed, 17 Jul 2024 08:10:40 GMT*
 
 
-## Giancarlo Esposito
-
-## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
-
-There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
-
-*Published on: Wed, 17 Jul 2024 08:49:16 GMT*
-
-
-## Giancarlo Esposito
-
-## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
-
-Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
-
-*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
-
-
-## Giancarlo Esposito
-
-## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
-
-On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
-
-*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
-
-
-## Giancarlo Esposito
-
-## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
-
-In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
-
-*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
-
-
-## Giancarlo Esposito
-
-## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
-
-COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
-
-*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
-
-
-## Giancarlo Esposito
-
-## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
-
-VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
-
-*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
-
-
-## Giancarlo Esposito
-
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
-
-
-## Giancarlo Esposito
-
-## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
-
-Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
-
-*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
-
-
-## Giancarlo Esposito
-
-## [We're Only Wearing Retro Sunglasses This Summer](https://www.highsnobiety.com/p/retro-sunglasses-buy-online/)
-
-Whether it feels like it or not, sun is on its way. And when it does, there’s a mad rush to cop all your summer essentials as if it’s a surprise that summer ac…
-
-*Published on: Tue, 16 Jul 2024 13:12:11 GMT*
-
-
-## Gillian Jacobs
-
-## [The Ultimate Buyer's Guide to Maison Margiela Sneakers](https://www.highsnobiety.com/p/margiela-sneakers-guide-buy-online/)
-
-When it comes to high fashion's sneaker offering, regular readers of Highsnobiety will know all about our love for Maison Margiela 's output. If you're going t…
-
-*Published on: Wed, 17 Jul 2024 08:10:40 GMT*
-
-
 ## Gillian Jacobs
 
 ## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
@@ -1612,14 +1603,14 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Gillian Jacobs
 
-## [We're Only Wearing Retro Sunglasses This Summer](https://www.highsnobiety.com/p/retro-sunglasses-buy-online/)
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
 
-Whether it feels like it or not, sun is on its way. And when it does, there’s a mad rush to cop all your summer essentials as if it’s a surprise that summer ac…
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
 
-*Published on: Tue, 16 Jul 2024 13:12:11 GMT*
+*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
 
 
-## Jason Mantzoukas
+## Gillian Jacobs
 
 ## [The Ultimate Buyer's Guide to Maison Margiela Sneakers](https://www.highsnobiety.com/p/margiela-sneakers-guide-buy-online/)
 
@@ -1702,11 +1693,101 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Jason Mantzoukas
 
-## [We're Only Wearing Retro Sunglasses This Summer](https://www.highsnobiety.com/p/retro-sunglasses-buy-online/)
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
 
-Whether it feels like it or not, sun is on its way. And when it does, there’s a mad rush to cop all your summer essentials as if it’s a surprise that summer ac…
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
 
-*Published on: Tue, 16 Jul 2024 13:12:11 GMT*
+*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
+
+
+## Jason Mantzoukas
+
+## [The Ultimate Buyer's Guide to Maison Margiela Sneakers](https://www.highsnobiety.com/p/margiela-sneakers-guide-buy-online/)
+
+When it comes to high fashion's sneaker offering, regular readers of Highsnobiety will know all about our love for Maison Margiela 's output. If you're going t…
+
+*Published on: Wed, 17 Jul 2024 08:10:40 GMT*
+
+
+## JB Smoove
+
+## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
+
+There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
+
+*Published on: Wed, 17 Jul 2024 08:49:16 GMT*
+
+
+## JB Smoove
+
+## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
+
+Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
+
+*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
+
+
+## JB Smoove
+
+## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
+
+On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
+
+*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
+
+
+## JB Smoove
+
+## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
+
+In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
+
+*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
+
+
+## JB Smoove
+
+## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
+
+COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
+
+*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
+
+
+## JB Smoove
+
+## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
+
+VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
+
+*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
+
+
+## JB Smoove
+
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
+
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
+
+*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
+
+
+## JB Smoove
+
+## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
+
+Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
+
+*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
+
+
+## JB Smoove
+
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
+
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
+
+*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
 
 
 ## JB Smoove
@@ -1718,96 +1799,6 @@ When it comes to high fashion's sneaker offering, regular readers of Highsnobiet
 *Published on: Wed, 17 Jul 2024 08:10:40 GMT*
 
 
-## JB Smoove
-
-## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
-
-There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
-
-*Published on: Wed, 17 Jul 2024 08:49:16 GMT*
-
-
-## JB Smoove
-
-## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
-
-Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
-
-*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
-
-
-## JB Smoove
-
-## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
-
-On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
-
-*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
-
-
-## JB Smoove
-
-## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
-
-In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
-
-*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
-
-
-## JB Smoove
-
-## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
-
-COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
-
-*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
-
-
-## JB Smoove
-
-## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
-
-VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
-
-*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
-
-
-## JB Smoove
-
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
-
-
-## JB Smoove
-
-## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
-
-Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
-
-*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
-
-
-## JB Smoove
-
-## [We're Only Wearing Retro Sunglasses This Summer](https://www.highsnobiety.com/p/retro-sunglasses-buy-online/)
-
-Whether it feels like it or not, sun is on its way. And when it does, there’s a mad rush to cop all your summer essentials as if it’s a surprise that summer ac…
-
-*Published on: Tue, 16 Jul 2024 13:12:11 GMT*
-
-
-## Madison Pettis
-
-## [The Ultimate Buyer's Guide to Maison Margiela Sneakers](https://www.highsnobiety.com/p/margiela-sneakers-guide-buy-online/)
-
-When it comes to high fashion's sneaker offering, regular readers of Highsnobiety will know all about our love for Maison Margiela 's output. If you're going t…
-
-*Published on: Wed, 17 Jul 2024 08:10:40 GMT*
-
-
 ## Madison Pettis
 
 ## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
@@ -1882,14 +1873,14 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Madison Pettis
 
-## [We're Only Wearing Retro Sunglasses This Summer](https://www.highsnobiety.com/p/retro-sunglasses-buy-online/)
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
 
-Whether it feels like it or not, sun is on its way. And when it does, there’s a mad rush to cop all your summer essentials as if it’s a surprise that summer ac…
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
 
-*Published on: Tue, 16 Jul 2024 13:12:11 GMT*
+*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
 
 
-## Austin Butler
+## Madison Pettis
 
 ## [The Ultimate Buyer's Guide to Maison Margiela Sneakers](https://www.highsnobiety.com/p/margiela-sneakers-guide-buy-online/)
 
@@ -1972,11 +1963,101 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Austin Butler
 
-## [We're Only Wearing Retro Sunglasses This Summer](https://www.highsnobiety.com/p/retro-sunglasses-buy-online/)
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
 
-Whether it feels like it or not, sun is on its way. And when it does, there’s a mad rush to cop all your summer essentials as if it’s a surprise that summer ac…
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
 
-*Published on: Tue, 16 Jul 2024 13:12:11 GMT*
+*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
+
+
+## Austin Butler
+
+## [The Ultimate Buyer's Guide to Maison Margiela Sneakers](https://www.highsnobiety.com/p/margiela-sneakers-guide-buy-online/)
+
+When it comes to high fashion's sneaker offering, regular readers of Highsnobiety will know all about our love for Maison Margiela 's output. If you're going t…
+
+*Published on: Wed, 17 Jul 2024 08:10:40 GMT*
+
+
+## Mark Zuckerberg
+
+## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
+
+There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
+
+*Published on: Wed, 17 Jul 2024 08:49:16 GMT*
+
+
+## Mark Zuckerberg
+
+## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
+
+Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
+
+*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
+
+
+## Mark Zuckerberg
+
+## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
+
+On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
+
+*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
+
+
+## Mark Zuckerberg
+
+## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
+
+In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
+
+*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
+
+
+## Mark Zuckerberg
+
+## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
+
+COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
+
+*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
+
+
+## Mark Zuckerberg
+
+## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
+
+VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
+
+*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
+
+
+## Mark Zuckerberg
+
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
+
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
+
+*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
+
+
+## Mark Zuckerberg
+
+## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
+
+Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
+
+*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
+
+
+## Mark Zuckerberg
+
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
+
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
+
+*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
 
 
 ## Mark Zuckerberg
@@ -1988,96 +2069,6 @@ When it comes to high fashion's sneaker offering, regular readers of Highsnobiet
 *Published on: Wed, 17 Jul 2024 08:10:40 GMT*
 
 
-## Mark Zuckerberg
-
-## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
-
-There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
-
-*Published on: Wed, 17 Jul 2024 08:49:16 GMT*
-
-
-## Mark Zuckerberg
-
-## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
-
-Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
-
-*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
-
-
-## Mark Zuckerberg
-
-## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
-
-On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
-
-*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
-
-
-## Mark Zuckerberg
-
-## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
-
-In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
-
-*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
-
-
-## Mark Zuckerberg
-
-## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
-
-COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
-
-*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
-
-
-## Mark Zuckerberg
-
-## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
-
-VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
-
-*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
-
-
-## Mark Zuckerberg
-
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
-
-
-## Mark Zuckerberg
-
-## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
-
-Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
-
-*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
-
-
-## Mark Zuckerberg
-
-## [We're Only Wearing Retro Sunglasses This Summer](https://www.highsnobiety.com/p/retro-sunglasses-buy-online/)
-
-Whether it feels like it or not, sun is on its way. And when it does, there’s a mad rush to cop all your summer essentials as if it’s a surprise that summer ac…
-
-*Published on: Tue, 16 Jul 2024 13:12:11 GMT*
-
-
-## Ariana Grande
-
-## [The Ultimate Buyer's Guide to Maison Margiela Sneakers](https://www.highsnobiety.com/p/margiela-sneakers-guide-buy-online/)
-
-When it comes to high fashion's sneaker offering, regular readers of Highsnobiety will know all about our love for Maison Margiela 's output. If you're going t…
-
-*Published on: Wed, 17 Jul 2024 08:10:40 GMT*
-
-
 ## Ariana Grande
 
 ## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
@@ -2152,14 +2143,14 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Ariana Grande
 
-## [We're Only Wearing Retro Sunglasses This Summer](https://www.highsnobiety.com/p/retro-sunglasses-buy-online/)
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
 
-Whether it feels like it or not, sun is on its way. And when it does, there’s a mad rush to cop all your summer essentials as if it’s a surprise that summer ac…
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
 
-*Published on: Tue, 16 Jul 2024 13:12:11 GMT*
+*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
 
 
-## Livvy Dunne
+## Ariana Grande
 
 ## [The Ultimate Buyer's Guide to Maison Margiela Sneakers](https://www.highsnobiety.com/p/margiela-sneakers-guide-buy-online/)
 
@@ -2242,11 +2233,101 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Livvy Dunne
 
-## [We're Only Wearing Retro Sunglasses This Summer](https://www.highsnobiety.com/p/retro-sunglasses-buy-online/)
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
 
-Whether it feels like it or not, sun is on its way. And when it does, there’s a mad rush to cop all your summer essentials as if it’s a surprise that summer ac…
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
 
-*Published on: Tue, 16 Jul 2024 13:12:11 GMT*
+*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
+
+
+## Livvy Dunne
+
+## [The Ultimate Buyer's Guide to Maison Margiela Sneakers](https://www.highsnobiety.com/p/margiela-sneakers-guide-buy-online/)
+
+When it comes to high fashion's sneaker offering, regular readers of Highsnobiety will know all about our love for Maison Margiela 's output. If you're going t…
+
+*Published on: Wed, 17 Jul 2024 08:10:40 GMT*
+
+
+## Ali Wong
+
+## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
+
+There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
+
+*Published on: Wed, 17 Jul 2024 08:49:16 GMT*
+
+
+## Ali Wong
+
+## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
+
+Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
+
+*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
+
+
+## Ali Wong
+
+## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
+
+On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
+
+*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
+
+
+## Ali Wong
+
+## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
+
+In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
+
+*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
+
+
+## Ali Wong
+
+## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
+
+COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
+
+*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
+
+
+## Ali Wong
+
+## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
+
+VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
+
+*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
+
+
+## Ali Wong
+
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
+
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
+
+*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
+
+
+## Ali Wong
+
+## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
+
+Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
+
+*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
+
+
+## Ali Wong
+
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
+
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
+
+*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
 
 
 ## Ali Wong
@@ -2258,96 +2339,6 @@ When it comes to high fashion's sneaker offering, regular readers of Highsnobiet
 *Published on: Wed, 17 Jul 2024 08:10:40 GMT*
 
 
-## Ali Wong
-
-## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
-
-There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
-
-*Published on: Wed, 17 Jul 2024 08:49:16 GMT*
-
-
-## Ali Wong
-
-## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
-
-Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
-
-*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
-
-
-## Ali Wong
-
-## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
-
-On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
-
-*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
-
-
-## Ali Wong
-
-## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
-
-In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
-
-*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
-
-
-## Ali Wong
-
-## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
-
-COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
-
-*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
-
-
-## Ali Wong
-
-## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
-
-VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
-
-*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
-
-
-## Ali Wong
-
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
-
-
-## Ali Wong
-
-## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
-
-Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
-
-*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
-
-
-## Ali Wong
-
-## [We're Only Wearing Retro Sunglasses This Summer](https://www.highsnobiety.com/p/retro-sunglasses-buy-online/)
-
-Whether it feels like it or not, sun is on its way. And when it does, there’s a mad rush to cop all your summer essentials as if it’s a surprise that summer ac…
-
-*Published on: Tue, 16 Jul 2024 13:12:11 GMT*
-
-
-## Lizzo
-
-## [The Ultimate Buyer's Guide to Maison Margiela Sneakers](https://www.highsnobiety.com/p/margiela-sneakers-guide-buy-online/)
-
-When it comes to high fashion's sneaker offering, regular readers of Highsnobiety will know all about our love for Maison Margiela 's output. If you're going t…
-
-*Published on: Wed, 17 Jul 2024 08:10:40 GMT*
-
-
 ## Lizzo
 
 ## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
@@ -2422,14 +2413,14 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Lizzo
 
-## [We're Only Wearing Retro Sunglasses This Summer](https://www.highsnobiety.com/p/retro-sunglasses-buy-online/)
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
 
-Whether it feels like it or not, sun is on its way. And when it does, there’s a mad rush to cop all your summer essentials as if it’s a surprise that summer ac…
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
 
-*Published on: Tue, 16 Jul 2024 13:12:11 GMT*
+*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
 
 
-## Alison Brie
+## Lizzo
 
 ## [The Ultimate Buyer's Guide to Maison Margiela Sneakers](https://www.highsnobiety.com/p/margiela-sneakers-guide-buy-online/)
 
@@ -2512,11 +2503,101 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Alison Brie
 
-## [We're Only Wearing Retro Sunglasses This Summer](https://www.highsnobiety.com/p/retro-sunglasses-buy-online/)
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
 
-Whether it feels like it or not, sun is on its way. And when it does, there’s a mad rush to cop all your summer essentials as if it’s a surprise that summer ac…
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
 
-*Published on: Tue, 16 Jul 2024 13:12:11 GMT*
+*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
+
+
+## Alison Brie
+
+## [The Ultimate Buyer's Guide to Maison Margiela Sneakers](https://www.highsnobiety.com/p/margiela-sneakers-guide-buy-online/)
+
+When it comes to high fashion's sneaker offering, regular readers of Highsnobiety will know all about our love for Maison Margiela 's output. If you're going t…
+
+*Published on: Wed, 17 Jul 2024 08:10:40 GMT*
+
+
+## Lil Wayne
+
+## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
+
+There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
+
+*Published on: Wed, 17 Jul 2024 08:49:16 GMT*
+
+
+## Lil Wayne
+
+## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
+
+Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
+
+*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
+
+
+## Lil Wayne
+
+## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
+
+On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
+
+*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
+
+
+## Lil Wayne
+
+## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
+
+In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
+
+*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
+
+
+## Lil Wayne
+
+## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
+
+COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
+
+*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
+
+
+## Lil Wayne
+
+## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
+
+VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
+
+*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
+
+
+## Lil Wayne
+
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
+
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
+
+*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
+
+
+## Lil Wayne
+
+## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
+
+Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
+
+*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
+
+
+## Lil Wayne
+
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
+
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
+
+*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
 
 
 ## Lil Wayne
@@ -2528,96 +2609,6 @@ When it comes to high fashion's sneaker offering, regular readers of Highsnobiet
 *Published on: Wed, 17 Jul 2024 08:10:40 GMT*
 
 
-## Lil Wayne
-
-## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
-
-There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
-
-*Published on: Wed, 17 Jul 2024 08:49:16 GMT*
-
-
-## Lil Wayne
-
-## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
-
-Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
-
-*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
-
-
-## Lil Wayne
-
-## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
-
-On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
-
-*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
-
-
-## Lil Wayne
-
-## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
-
-In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
-
-*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
-
-
-## Lil Wayne
-
-## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
-
-COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
-
-*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
-
-
-## Lil Wayne
-
-## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
-
-VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
-
-*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
-
-
-## Lil Wayne
-
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
-
-
-## Lil Wayne
-
-## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
-
-Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
-
-*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
-
-
-## Lil Wayne
-
-## [We're Only Wearing Retro Sunglasses This Summer](https://www.highsnobiety.com/p/retro-sunglasses-buy-online/)
-
-Whether it feels like it or not, sun is on its way. And when it does, there’s a mad rush to cop all your summer essentials as if it’s a surprise that summer ac…
-
-*Published on: Tue, 16 Jul 2024 13:12:11 GMT*
-
-
-## Adele
-
-## [The Ultimate Buyer's Guide to Maison Margiela Sneakers](https://www.highsnobiety.com/p/margiela-sneakers-guide-buy-online/)
-
-When it comes to high fashion's sneaker offering, regular readers of Highsnobiety will know all about our love for Maison Margiela 's output. If you're going t…
-
-*Published on: Wed, 17 Jul 2024 08:10:40 GMT*
-
-
 ## Adele
 
 ## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
@@ -2692,14 +2683,14 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Adele
 
-## [We're Only Wearing Retro Sunglasses This Summer](https://www.highsnobiety.com/p/retro-sunglasses-buy-online/)
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
 
-Whether it feels like it or not, sun is on its way. And when it does, there’s a mad rush to cop all your summer essentials as if it’s a surprise that summer ac…
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
 
-*Published on: Tue, 16 Jul 2024 13:12:11 GMT*
+*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
 
 
-## Lindsay Lohan
+## Adele
 
 ## [The Ultimate Buyer's Guide to Maison Margiela Sneakers](https://www.highsnobiety.com/p/margiela-sneakers-guide-buy-online/)
 
@@ -2782,11 +2773,101 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Lindsay Lohan
 
-## [We're Only Wearing Retro Sunglasses This Summer](https://www.highsnobiety.com/p/retro-sunglasses-buy-online/)
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
 
-Whether it feels like it or not, sun is on its way. And when it does, there’s a mad rush to cop all your summer essentials as if it’s a surprise that summer ac…
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
 
-*Published on: Tue, 16 Jul 2024 13:12:11 GMT*
+*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
+
+
+## Lindsay Lohan
+
+## [The Ultimate Buyer's Guide to Maison Margiela Sneakers](https://www.highsnobiety.com/p/margiela-sneakers-guide-buy-online/)
+
+When it comes to high fashion's sneaker offering, regular readers of Highsnobiety will know all about our love for Maison Margiela 's output. If you're going t…
+
+*Published on: Wed, 17 Jul 2024 08:10:40 GMT*
+
+
+## Addison Rae
+
+## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
+
+There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
+
+*Published on: Wed, 17 Jul 2024 08:49:16 GMT*
+
+
+## Addison Rae
+
+## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
+
+Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
+
+*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
+
+
+## Addison Rae
+
+## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
+
+On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
+
+*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
+
+
+## Addison Rae
+
+## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
+
+In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
+
+*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
+
+
+## Addison Rae
+
+## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
+
+COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
+
+*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
+
+
+## Addison Rae
+
+## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
+
+VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
+
+*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
+
+
+## Addison Rae
+
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
+
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
+
+*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
+
+
+## Addison Rae
+
+## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
+
+Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
+
+*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
+
+
+## Addison Rae
+
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
+
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
+
+*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
 
 
 ## Addison Rae
@@ -2798,96 +2879,6 @@ When it comes to high fashion's sneaker offering, regular readers of Highsnobiet
 *Published on: Wed, 17 Jul 2024 08:10:40 GMT*
 
 
-## Addison Rae
-
-## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
-
-There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
-
-*Published on: Wed, 17 Jul 2024 08:49:16 GMT*
-
-
-## Addison Rae
-
-## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
-
-Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
-
-*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
-
-
-## Addison Rae
-
-## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
-
-On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
-
-*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
-
-
-## Addison Rae
-
-## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
-
-In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
-
-*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
-
-
-## Addison Rae
-
-## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
-
-COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
-
-*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
-
-
-## Addison Rae
-
-## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
-
-VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
-
-*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
-
-
-## Addison Rae
-
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
-
-
-## Addison Rae
-
-## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
-
-Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
-
-*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
-
-
-## Addison Rae
-
-## [We're Only Wearing Retro Sunglasses This Summer](https://www.highsnobiety.com/p/retro-sunglasses-buy-online/)
-
-Whether it feels like it or not, sun is on its way. And when it does, there’s a mad rush to cop all your summer essentials as if it’s a surprise that summer ac…
-
-*Published on: Tue, 16 Jul 2024 13:12:11 GMT*
-
-
-## Latto
-
-## [The Ultimate Buyer's Guide to Maison Margiela Sneakers](https://www.highsnobiety.com/p/margiela-sneakers-guide-buy-online/)
-
-When it comes to high fashion's sneaker offering, regular readers of Highsnobiety will know all about our love for Maison Margiela 's output. If you're going t…
-
-*Published on: Wed, 17 Jul 2024 08:10:40 GMT*
-
-
 ## Latto
 
 ## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
@@ -2962,14 +2953,14 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Latto
 
-## [We're Only Wearing Retro Sunglasses This Summer](https://www.highsnobiety.com/p/retro-sunglasses-buy-online/)
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
 
-Whether it feels like it or not, sun is on its way. And when it does, there’s a mad rush to cop all your summer essentials as if it’s a surprise that summer ac…
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
 
-*Published on: Tue, 16 Jul 2024 13:12:11 GMT*
+*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
 
 
-## Aaron Paul
+## Latto
 
 ## [The Ultimate Buyer's Guide to Maison Margiela Sneakers](https://www.highsnobiety.com/p/margiela-sneakers-guide-buy-online/)
 
@@ -3052,11 +3043,101 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Aaron Paul
 
-## [We're Only Wearing Retro Sunglasses This Summer](https://www.highsnobiety.com/p/retro-sunglasses-buy-online/)
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
 
-Whether it feels like it or not, sun is on its way. And when it does, there’s a mad rush to cop all your summer essentials as if it’s a surprise that summer ac…
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
 
-*Published on: Tue, 16 Jul 2024 13:12:11 GMT*
+*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
+
+
+## Aaron Paul
+
+## [The Ultimate Buyer's Guide to Maison Margiela Sneakers](https://www.highsnobiety.com/p/margiela-sneakers-guide-buy-online/)
+
+When it comes to high fashion's sneaker offering, regular readers of Highsnobiety will know all about our love for Maison Margiela 's output. If you're going t…
+
+*Published on: Wed, 17 Jul 2024 08:10:40 GMT*
+
+
+## LeBron James
+
+## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
+
+There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
+
+*Published on: Wed, 17 Jul 2024 08:49:16 GMT*
+
+
+## LeBron James
+
+## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
+
+Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
+
+*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
+
+
+## LeBron James
+
+## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
+
+On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
+
+*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
+
+
+## LeBron James
+
+## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
+
+In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
+
+*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
+
+
+## LeBron James
+
+## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
+
+COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
+
+*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
+
+
+## LeBron James
+
+## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
+
+VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
+
+*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
+
+
+## LeBron James
+
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
+
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
+
+*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
+
+
+## LeBron James
+
+## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
+
+Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
+
+*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
+
+
+## LeBron James
+
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
+
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
+
+*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
 
 
 ## LeBron James
@@ -3068,96 +3149,6 @@ When it comes to high fashion's sneaker offering, regular readers of Highsnobiet
 *Published on: Wed, 17 Jul 2024 08:10:40 GMT*
 
 
-## LeBron James
-
-## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
-
-There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
-
-*Published on: Wed, 17 Jul 2024 08:49:16 GMT*
-
-
-## LeBron James
-
-## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
-
-Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
-
-*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
-
-
-## LeBron James
-
-## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
-
-On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
-
-*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
-
-
-## LeBron James
-
-## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
-
-In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
-
-*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
-
-
-## LeBron James
-
-## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
-
-COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
-
-*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
-
-
-## LeBron James
-
-## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
-
-VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
-
-*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
-
-
-## LeBron James
-
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
-
-
-## LeBron James
-
-## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
-
-Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
-
-*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
-
-
-## LeBron James
-
-## [We're Only Wearing Retro Sunglasses This Summer](https://www.highsnobiety.com/p/retro-sunglasses-buy-online/)
-
-Whether it feels like it or not, sun is on its way. And when it does, there’s a mad rush to cop all your summer essentials as if it’s a surprise that summer ac…
-
-*Published on: Tue, 16 Jul 2024 13:12:11 GMT*
-
-
-## 50 Cent
-
-## [The Ultimate Buyer's Guide to Maison Margiela Sneakers](https://www.highsnobiety.com/p/margiela-sneakers-guide-buy-online/)
-
-When it comes to high fashion's sneaker offering, regular readers of Highsnobiety will know all about our love for Maison Margiela 's output. If you're going t…
-
-*Published on: Wed, 17 Jul 2024 08:10:40 GMT*
-
-
 ## 50 Cent
 
 ## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
@@ -3232,14 +3223,14 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## 50 Cent
 
-## [We're Only Wearing Retro Sunglasses This Summer](https://www.highsnobiety.com/p/retro-sunglasses-buy-online/)
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
 
-Whether it feels like it or not, sun is on its way. And when it does, there’s a mad rush to cop all your summer essentials as if it’s a surprise that summer ac…
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
 
-*Published on: Tue, 16 Jul 2024 13:12:11 GMT*
+*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
 
 
-## Kesha
+## 50 Cent
 
 ## [The Ultimate Buyer's Guide to Maison Margiela Sneakers](https://www.highsnobiety.com/p/margiela-sneakers-guide-buy-online/)
 
@@ -3322,11 +3313,101 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Kesha
 
-## [We're Only Wearing Retro Sunglasses This Summer](https://www.highsnobiety.com/p/retro-sunglasses-buy-online/)
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
 
-Whether it feels like it or not, sun is on its way. And when it does, there’s a mad rush to cop all your summer essentials as if it’s a surprise that summer ac…
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
 
-*Published on: Tue, 16 Jul 2024 13:12:11 GMT*
+*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
+
+
+## Kesha
+
+## [The Ultimate Buyer's Guide to Maison Margiela Sneakers](https://www.highsnobiety.com/p/margiela-sneakers-guide-buy-online/)
+
+When it comes to high fashion's sneaker offering, regular readers of Highsnobiety will know all about our love for Maison Margiela 's output. If you're going t…
+
+*Published on: Wed, 17 Jul 2024 08:10:40 GMT*
+
+
+## 21 Savage
+
+## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
+
+There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
+
+*Published on: Wed, 17 Jul 2024 08:49:16 GMT*
+
+
+## 21 Savage
+
+## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
+
+Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
+
+*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
+
+
+## 21 Savage
+
+## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
+
+On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
+
+*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
+
+
+## 21 Savage
+
+## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
+
+In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
+
+*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
+
+
+## 21 Savage
+
+## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
+
+COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
+
+*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
+
+
+## 21 Savage
+
+## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
+
+VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
+
+*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
+
+
+## 21 Savage
+
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
+
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
+
+*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
+
+
+## 21 Savage
+
+## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
+
+Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
+
+*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
+
+
+## 21 Savage
+
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
+
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
+
+*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
 
 
 ## 21 Savage
@@ -3338,96 +3419,6 @@ When it comes to high fashion's sneaker offering, regular readers of Highsnobiet
 *Published on: Wed, 17 Jul 2024 08:10:40 GMT*
 
 
-## 21 Savage
-
-## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
-
-There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
-
-*Published on: Wed, 17 Jul 2024 08:49:16 GMT*
-
-
-## 21 Savage
-
-## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
-
-Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
-
-*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
-
-
-## 21 Savage
-
-## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
-
-On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
-
-*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
-
-
-## 21 Savage
-
-## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
-
-In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
-
-*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
-
-
-## 21 Savage
-
-## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
-
-COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
-
-*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
-
-
-## 21 Savage
-
-## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
-
-VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
-
-*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
-
-
-## 21 Savage
-
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
-
-
-## 21 Savage
-
-## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
-
-Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
-
-*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
-
-
-## 21 Savage
-
-## [We're Only Wearing Retro Sunglasses This Summer](https://www.highsnobiety.com/p/retro-sunglasses-buy-online/)
-
-Whether it feels like it or not, sun is on its way. And when it does, there’s a mad rush to cop all your summer essentials as if it’s a surprise that summer ac…
-
-*Published on: Tue, 16 Jul 2024 13:12:11 GMT*
-
-
-## Larry David
-
-## [The Ultimate Buyer's Guide to Maison Margiela Sneakers](https://www.highsnobiety.com/p/margiela-sneakers-guide-buy-online/)
-
-When it comes to high fashion's sneaker offering, regular readers of Highsnobiety will know all about our love for Maison Margiela 's output. If you're going t…
-
-*Published on: Wed, 17 Jul 2024 08:10:40 GMT*
-
-
 ## Larry David
 
 ## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
@@ -3502,14 +3493,14 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Larry David
 
-## [We're Only Wearing Retro Sunglasses This Summer](https://www.highsnobiety.com/p/retro-sunglasses-buy-online/)
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
 
-Whether it feels like it or not, sun is on its way. And when it does, there’s a mad rush to cop all your summer essentials as if it’s a surprise that summer ac…
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
 
-*Published on: Tue, 16 Jul 2024 13:12:11 GMT*
+*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
 
 
-## Seth Rogan
+## Larry David
 
 ## [The Ultimate Buyer's Guide to Maison Margiela Sneakers](https://www.highsnobiety.com/p/margiela-sneakers-guide-buy-online/)
 
@@ -3592,11 +3583,101 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Seth Rogan
 
-## [We're Only Wearing Retro Sunglasses This Summer](https://www.highsnobiety.com/p/retro-sunglasses-buy-online/)
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
 
-Whether it feels like it or not, sun is on its way. And when it does, there’s a mad rush to cop all your summer essentials as if it’s a surprise that summer ac…
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
 
-*Published on: Tue, 16 Jul 2024 13:12:11 GMT*
+*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
+
+
+## Seth Rogan
+
+## [The Ultimate Buyer's Guide to Maison Margiela Sneakers](https://www.highsnobiety.com/p/margiela-sneakers-guide-buy-online/)
+
+When it comes to high fashion's sneaker offering, regular readers of Highsnobiety will know all about our love for Maison Margiela 's output. If you're going t…
+
+*Published on: Wed, 17 Jul 2024 08:10:40 GMT*
+
+
+## Simone Biles
+
+## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
+
+There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
+
+*Published on: Wed, 17 Jul 2024 08:49:16 GMT*
+
+
+## Simone Biles
+
+## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
+
+Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
+
+*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
+
+
+## Simone Biles
+
+## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
+
+On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
+
+*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
+
+
+## Simone Biles
+
+## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
+
+In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
+
+*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
+
+
+## Simone Biles
+
+## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
+
+COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
+
+*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
+
+
+## Simone Biles
+
+## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
+
+VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
+
+*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
+
+
+## Simone Biles
+
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
+
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
+
+*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
+
+
+## Simone Biles
+
+## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
+
+Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
+
+*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
+
+
+## Simone Biles
+
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
+
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
+
+*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
 
 
 ## Simone Biles
@@ -3608,96 +3689,6 @@ When it comes to high fashion's sneaker offering, regular readers of Highsnobiet
 *Published on: Wed, 17 Jul 2024 08:10:40 GMT*
 
 
-## Simone Biles
-
-## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
-
-There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
-
-*Published on: Wed, 17 Jul 2024 08:49:16 GMT*
-
-
-## Simone Biles
-
-## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
-
-Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
-
-*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
-
-
-## Simone Biles
-
-## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
-
-On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
-
-*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
-
-
-## Simone Biles
-
-## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
-
-In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
-
-*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
-
-
-## Simone Biles
-
-## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
-
-COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
-
-*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
-
-
-## Simone Biles
-
-## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
-
-VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
-
-*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
-
-
-## Simone Biles
-
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
-
-
-## Simone Biles
-
-## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
-
-Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
-
-*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
-
-
-## Simone Biles
-
-## [We're Only Wearing Retro Sunglasses This Summer](https://www.highsnobiety.com/p/retro-sunglasses-buy-online/)
-
-Whether it feels like it or not, sun is on its way. And when it does, there’s a mad rush to cop all your summer essentials as if it’s a surprise that summer ac…
-
-*Published on: Tue, 16 Jul 2024 13:12:11 GMT*
-
-
-## Pete Davidson
-
-## [The Ultimate Buyer's Guide to Maison Margiela Sneakers](https://www.highsnobiety.com/p/margiela-sneakers-guide-buy-online/)
-
-When it comes to high fashion's sneaker offering, regular readers of Highsnobiety will know all about our love for Maison Margiela 's output. If you're going t…
-
-*Published on: Wed, 17 Jul 2024 08:10:40 GMT*
-
-
 ## Pete Davidson
 
 ## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
@@ -3772,14 +3763,14 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Pete Davidson
 
-## [We're Only Wearing Retro Sunglasses This Summer](https://www.highsnobiety.com/p/retro-sunglasses-buy-online/)
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
 
-Whether it feels like it or not, sun is on its way. And when it does, there’s a mad rush to cop all your summer essentials as if it’s a surprise that summer ac…
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
 
-*Published on: Tue, 16 Jul 2024 13:12:11 GMT*
+*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
 
 
-## Prince Harry
+## Pete Davidson
 
 ## [The Ultimate Buyer's Guide to Maison Margiela Sneakers](https://www.highsnobiety.com/p/margiela-sneakers-guide-buy-online/)
 
@@ -3862,11 +3853,101 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Prince Harry
 
-## [We're Only Wearing Retro Sunglasses This Summer](https://www.highsnobiety.com/p/retro-sunglasses-buy-online/)
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
 
-Whether it feels like it or not, sun is on its way. And when it does, there’s a mad rush to cop all your summer essentials as if it’s a surprise that summer ac…
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
 
-*Published on: Tue, 16 Jul 2024 13:12:11 GMT*
+*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
+
+
+## Prince Harry
+
+## [The Ultimate Buyer's Guide to Maison Margiela Sneakers](https://www.highsnobiety.com/p/margiela-sneakers-guide-buy-online/)
+
+When it comes to high fashion's sneaker offering, regular readers of Highsnobiety will know all about our love for Maison Margiela 's output. If you're going t…
+
+*Published on: Wed, 17 Jul 2024 08:10:40 GMT*
+
+
+## Princess of Wales
+
+## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
+
+There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
+
+*Published on: Wed, 17 Jul 2024 08:49:16 GMT*
+
+
+## Princess of Wales
+
+## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
+
+Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
+
+*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
+
+
+## Princess of Wales
+
+## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
+
+On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
+
+*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
+
+
+## Princess of Wales
+
+## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
+
+In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
+
+*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
+
+
+## Princess of Wales
+
+## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
+
+COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
+
+*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
+
+
+## Princess of Wales
+
+## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
+
+VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
+
+*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
+
+
+## Princess of Wales
+
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
+
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
+
+*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
+
+
+## Princess of Wales
+
+## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
+
+Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
+
+*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
+
+
+## Princess of Wales
+
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
+
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
+
+*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
 
 
 ## Princess of Wales
@@ -3878,96 +3959,6 @@ When it comes to high fashion's sneaker offering, regular readers of Highsnobiet
 *Published on: Wed, 17 Jul 2024 08:10:40 GMT*
 
 
-## Princess of Wales
-
-## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
-
-There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
-
-*Published on: Wed, 17 Jul 2024 08:49:16 GMT*
-
-
-## Princess of Wales
-
-## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
-
-Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
-
-*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
-
-
-## Princess of Wales
-
-## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
-
-On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
-
-*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
-
-
-## Princess of Wales
-
-## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
-
-In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
-
-*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
-
-
-## Princess of Wales
-
-## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
-
-COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
-
-*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
-
-
-## Princess of Wales
-
-## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
-
-VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
-
-*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
-
-
-## Princess of Wales
-
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
-
-
-## Princess of Wales
-
-## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
-
-Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
-
-*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
-
-
-## Princess of Wales
-
-## [We're Only Wearing Retro Sunglasses This Summer](https://www.highsnobiety.com/p/retro-sunglasses-buy-online/)
-
-Whether it feels like it or not, sun is on its way. And when it does, there’s a mad rush to cop all your summer essentials as if it’s a surprise that summer ac…
-
-*Published on: Tue, 16 Jul 2024 13:12:11 GMT*
-
-
-## Rachel McAdams
-
-## [The Ultimate Buyer's Guide to Maison Margiela Sneakers](https://www.highsnobiety.com/p/margiela-sneakers-guide-buy-online/)
-
-When it comes to high fashion's sneaker offering, regular readers of Highsnobiety will know all about our love for Maison Margiela 's output. If you're going t…
-
-*Published on: Wed, 17 Jul 2024 08:10:40 GMT*
-
-
 ## Rachel McAdams
 
 ## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
@@ -4042,14 +4033,14 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Rachel McAdams
 
-## [We're Only Wearing Retro Sunglasses This Summer](https://www.highsnobiety.com/p/retro-sunglasses-buy-online/)
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
 
-Whether it feels like it or not, sun is on its way. And when it does, there’s a mad rush to cop all your summer essentials as if it’s a surprise that summer ac…
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
 
-*Published on: Tue, 16 Jul 2024 13:12:11 GMT*
+*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
 
 
-## Reneé Rapp
+## Rachel McAdams
 
 ## [The Ultimate Buyer's Guide to Maison Margiela Sneakers](https://www.highsnobiety.com/p/margiela-sneakers-guide-buy-online/)
 
@@ -4132,11 +4123,101 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Reneé Rapp
 
-## [We're Only Wearing Retro Sunglasses This Summer](https://www.highsnobiety.com/p/retro-sunglasses-buy-online/)
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
 
-Whether it feels like it or not, sun is on its way. And when it does, there’s a mad rush to cop all your summer essentials as if it’s a surprise that summer ac…
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
 
-*Published on: Tue, 16 Jul 2024 13:12:11 GMT*
+*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
+
+
+## Reneé Rapp
+
+## [The Ultimate Buyer's Guide to Maison Margiela Sneakers](https://www.highsnobiety.com/p/margiela-sneakers-guide-buy-online/)
+
+When it comes to high fashion's sneaker offering, regular readers of Highsnobiety will know all about our love for Maison Margiela 's output. If you're going t…
+
+*Published on: Wed, 17 Jul 2024 08:10:40 GMT*
+
+
+## Rick Ross
+
+## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
+
+There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
+
+*Published on: Wed, 17 Jul 2024 08:49:16 GMT*
+
+
+## Rick Ross
+
+## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
+
+Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
+
+*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
+
+
+## Rick Ross
+
+## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
+
+On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
+
+*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
+
+
+## Rick Ross
+
+## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
+
+In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
+
+*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
+
+
+## Rick Ross
+
+## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
+
+COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
+
+*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
+
+
+## Rick Ross
+
+## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
+
+VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
+
+*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
+
+
+## Rick Ross
+
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
+
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
+
+*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
+
+
+## Rick Ross
+
+## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
+
+Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
+
+*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
+
+
+## Rick Ross
+
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
+
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
+
+*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
 
 
 ## Rick Ross
@@ -4148,96 +4229,6 @@ When it comes to high fashion's sneaker offering, regular readers of Highsnobiet
 *Published on: Wed, 17 Jul 2024 08:10:40 GMT*
 
 
-## Rick Ross
-
-## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
-
-There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
-
-*Published on: Wed, 17 Jul 2024 08:49:16 GMT*
-
-
-## Rick Ross
-
-## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
-
-Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
-
-*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
-
-
-## Rick Ross
-
-## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
-
-On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
-
-*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
-
-
-## Rick Ross
-
-## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
-
-In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
-
-*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
-
-
-## Rick Ross
-
-## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
-
-COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
-
-*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
-
-
-## Rick Ross
-
-## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
-
-VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
-
-*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
-
-
-## Rick Ross
-
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
-
-
-## Rick Ross
-
-## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
-
-Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
-
-*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
-
-
-## Rick Ross
-
-## [We're Only Wearing Retro Sunglasses This Summer](https://www.highsnobiety.com/p/retro-sunglasses-buy-online/)
-
-Whether it feels like it or not, sun is on its way. And when it does, there’s a mad rush to cop all your summer essentials as if it’s a surprise that summer ac…
-
-*Published on: Tue, 16 Jul 2024 13:12:11 GMT*
-
-
-## Sam Ashgari
-
-## [The Ultimate Buyer's Guide to Maison Margiela Sneakers](https://www.highsnobiety.com/p/margiela-sneakers-guide-buy-online/)
-
-When it comes to high fashion's sneaker offering, regular readers of Highsnobiety will know all about our love for Maison Margiela 's output. If you're going t…
-
-*Published on: Wed, 17 Jul 2024 08:10:40 GMT*
-
-
 ## Sam Ashgari
 
 ## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
@@ -4312,14 +4303,14 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Sam Ashgari
 
-## [We're Only Wearing Retro Sunglasses This Summer](https://www.highsnobiety.com/p/retro-sunglasses-buy-online/)
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
 
-Whether it feels like it or not, sun is on its way. And when it does, there’s a mad rush to cop all your summer essentials as if it’s a surprise that summer ac…
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
 
-*Published on: Tue, 16 Jul 2024 13:12:11 GMT*
+*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
 
 
-## Sandra Oh
+## Sam Ashgari
 
 ## [The Ultimate Buyer's Guide to Maison Margiela Sneakers](https://www.highsnobiety.com/p/margiela-sneakers-guide-buy-online/)
 
@@ -4402,11 +4393,101 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Sandra Oh
 
-## [We're Only Wearing Retro Sunglasses This Summer](https://www.highsnobiety.com/p/retro-sunglasses-buy-online/)
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
 
-Whether it feels like it or not, sun is on its way. And when it does, there’s a mad rush to cop all your summer essentials as if it’s a surprise that summer ac…
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
 
-*Published on: Tue, 16 Jul 2024 13:12:11 GMT*
+*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
+
+
+## Sandra Oh
+
+## [The Ultimate Buyer's Guide to Maison Margiela Sneakers](https://www.highsnobiety.com/p/margiela-sneakers-guide-buy-online/)
+
+When it comes to high fashion's sneaker offering, regular readers of Highsnobiety will know all about our love for Maison Margiela 's output. If you're going t…
+
+*Published on: Wed, 17 Jul 2024 08:10:40 GMT*
+
+
+## Donald Trump
+
+## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
+
+There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
+
+*Published on: Wed, 17 Jul 2024 08:49:16 GMT*
+
+
+## Donald Trump
+
+## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
+
+Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
+
+*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
+
+
+## Donald Trump
+
+## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
+
+On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
+
+*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
+
+
+## Donald Trump
+
+## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
+
+In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
+
+*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
+
+
+## Donald Trump
+
+## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
+
+COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
+
+*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
+
+
+## Donald Trump
+
+## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
+
+VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
+
+*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
+
+
+## Donald Trump
+
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
+
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
+
+*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
+
+
+## Donald Trump
+
+## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
+
+Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
+
+*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
+
+
+## Donald Trump
+
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
+
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
+
+*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
 
 
 ## Donald Trump
@@ -4418,96 +4499,6 @@ When it comes to high fashion's sneaker offering, regular readers of Highsnobiet
 *Published on: Wed, 17 Jul 2024 08:10:40 GMT*
 
 
-## Donald Trump
-
-## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
-
-There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
-
-*Published on: Wed, 17 Jul 2024 08:49:16 GMT*
-
-
-## Donald Trump
-
-## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
-
-Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
-
-*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
-
-
-## Donald Trump
-
-## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
-
-On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
-
-*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
-
-
-## Donald Trump
-
-## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
-
-In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
-
-*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
-
-
-## Donald Trump
-
-## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
-
-COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
-
-*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
-
-
-## Donald Trump
-
-## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
-
-VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
-
-*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
-
-
-## Donald Trump
-
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
-
-
-## Donald Trump
-
-## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
-
-Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
-
-*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
-
-
-## Donald Trump
-
-## [We're Only Wearing Retro Sunglasses This Summer](https://www.highsnobiety.com/p/retro-sunglasses-buy-online/)
-
-Whether it feels like it or not, sun is on its way. And when it does, there’s a mad rush to cop all your summer essentials as if it’s a surprise that summer ac…
-
-*Published on: Tue, 16 Jul 2024 13:12:11 GMT*
-
-
-## Diddy
-
-## [The Ultimate Buyer's Guide to Maison Margiela Sneakers](https://www.highsnobiety.com/p/margiela-sneakers-guide-buy-online/)
-
-When it comes to high fashion's sneaker offering, regular readers of Highsnobiety will know all about our love for Maison Margiela 's output. If you're going t…
-
-*Published on: Wed, 17 Jul 2024 08:10:40 GMT*
-
-
 ## Diddy
 
 ## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
@@ -4582,14 +4573,14 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Diddy
 
-## [We're Only Wearing Retro Sunglasses This Summer](https://www.highsnobiety.com/p/retro-sunglasses-buy-online/)
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
 
-Whether it feels like it or not, sun is on its way. And when it does, there’s a mad rush to cop all your summer essentials as if it’s a surprise that summer ac…
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
 
-*Published on: Tue, 16 Jul 2024 13:12:11 GMT*
+*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
 
 
-## City Girls
+## Diddy
 
 ## [The Ultimate Buyer's Guide to Maison Margiela Sneakers](https://www.highsnobiety.com/p/margiela-sneakers-guide-buy-online/)
 
@@ -4672,11 +4663,101 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## City Girls
 
-## [We're Only Wearing Retro Sunglasses This Summer](https://www.highsnobiety.com/p/retro-sunglasses-buy-online/)
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
 
-Whether it feels like it or not, sun is on its way. And when it does, there’s a mad rush to cop all your summer essentials as if it’s a surprise that summer ac…
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
 
-*Published on: Tue, 16 Jul 2024 13:12:11 GMT*
+*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
+
+
+## City Girls
+
+## [The Ultimate Buyer's Guide to Maison Margiela Sneakers](https://www.highsnobiety.com/p/margiela-sneakers-guide-buy-online/)
+
+When it comes to high fashion's sneaker offering, regular readers of Highsnobiety will know all about our love for Maison Margiela 's output. If you're going t…
+
+*Published on: Wed, 17 Jul 2024 08:10:40 GMT*
+
+
+## Chloe Bailey
+
+## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
+
+There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
+
+*Published on: Wed, 17 Jul 2024 08:49:16 GMT*
+
+
+## Chloe Bailey
+
+## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
+
+Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
+
+*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
+
+
+## Chloe Bailey
+
+## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
+
+On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
+
+*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
+
+
+## Chloe Bailey
+
+## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
+
+In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
+
+*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
+
+
+## Chloe Bailey
+
+## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
+
+COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
+
+*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
+
+
+## Chloe Bailey
+
+## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
+
+VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
+
+*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
+
+
+## Chloe Bailey
+
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
+
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
+
+*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
+
+
+## Chloe Bailey
+
+## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
+
+Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
+
+*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
+
+
+## Chloe Bailey
+
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
+
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
+
+*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
 
 
 ## Chloe Bailey
@@ -4688,96 +4769,6 @@ When it comes to high fashion's sneaker offering, regular readers of Highsnobiet
 *Published on: Wed, 17 Jul 2024 08:10:40 GMT*
 
 
-## Chloe Bailey
-
-## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
-
-There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
-
-*Published on: Wed, 17 Jul 2024 08:49:16 GMT*
-
-
-## Chloe Bailey
-
-## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
-
-Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
-
-*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
-
-
-## Chloe Bailey
-
-## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
-
-On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
-
-*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
-
-
-## Chloe Bailey
-
-## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
-
-In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
-
-*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
-
-
-## Chloe Bailey
-
-## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
-
-COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
-
-*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
-
-
-## Chloe Bailey
-
-## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
-
-VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
-
-*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
-
-
-## Chloe Bailey
-
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
-
-
-## Chloe Bailey
-
-## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
-
-Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
-
-*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
-
-
-## Chloe Bailey
-
-## [We're Only Wearing Retro Sunglasses This Summer](https://www.highsnobiety.com/p/retro-sunglasses-buy-online/)
-
-Whether it feels like it or not, sun is on its way. And when it does, there’s a mad rush to cop all your summer essentials as if it’s a surprise that summer ac…
-
-*Published on: Tue, 16 Jul 2024 13:12:11 GMT*
-
-
-## Charli D Amelio
-
-## [The Ultimate Buyer's Guide to Maison Margiela Sneakers](https://www.highsnobiety.com/p/margiela-sneakers-guide-buy-online/)
-
-When it comes to high fashion's sneaker offering, regular readers of Highsnobiety will know all about our love for Maison Margiela 's output. If you're going t…
-
-*Published on: Wed, 17 Jul 2024 08:10:40 GMT*
-
-
 ## Charli D Amelio
 
 ## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
@@ -4852,14 +4843,14 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Charli D Amelio
 
-## [We're Only Wearing Retro Sunglasses This Summer](https://www.highsnobiety.com/p/retro-sunglasses-buy-online/)
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
 
-Whether it feels like it or not, sun is on its way. And when it does, there’s a mad rush to cop all your summer essentials as if it’s a surprise that summer ac…
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
 
-*Published on: Tue, 16 Jul 2024 13:12:11 GMT*
+*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
 
 
-## Cardi B
+## Charli D Amelio
 
 ## [The Ultimate Buyer's Guide to Maison Margiela Sneakers](https://www.highsnobiety.com/p/margiela-sneakers-guide-buy-online/)
 
@@ -4942,11 +4933,101 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Cardi B
 
-## [We're Only Wearing Retro Sunglasses This Summer](https://www.highsnobiety.com/p/retro-sunglasses-buy-online/)
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
 
-Whether it feels like it or not, sun is on its way. And when it does, there’s a mad rush to cop all your summer essentials as if it’s a surprise that summer ac…
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
 
-*Published on: Tue, 16 Jul 2024 13:12:11 GMT*
+*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
+
+
+## Cardi B
+
+## [The Ultimate Buyer's Guide to Maison Margiela Sneakers](https://www.highsnobiety.com/p/margiela-sneakers-guide-buy-online/)
+
+When it comes to high fashion's sneaker offering, regular readers of Highsnobiety will know all about our love for Maison Margiela 's output. If you're going t…
+
+*Published on: Wed, 17 Jul 2024 08:10:40 GMT*
+
+
+## Bryan Cranston
+
+## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
+
+There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
+
+*Published on: Wed, 17 Jul 2024 08:49:16 GMT*
+
+
+## Bryan Cranston
+
+## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
+
+Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
+
+*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
+
+
+## Bryan Cranston
+
+## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
+
+On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
+
+*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
+
+
+## Bryan Cranston
+
+## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
+
+In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
+
+*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
+
+
+## Bryan Cranston
+
+## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
+
+COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
+
+*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
+
+
+## Bryan Cranston
+
+## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
+
+VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
+
+*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
+
+
+## Bryan Cranston
+
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
+
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
+
+*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
+
+
+## Bryan Cranston
+
+## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
+
+Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
+
+*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
+
+
+## Bryan Cranston
+
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
+
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
+
+*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
 
 
 ## Bryan Cranston
@@ -4958,96 +5039,6 @@ When it comes to high fashion's sneaker offering, regular readers of Highsnobiet
 *Published on: Wed, 17 Jul 2024 08:10:40 GMT*
 
 
-## Bryan Cranston
-
-## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
-
-There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
-
-*Published on: Wed, 17 Jul 2024 08:49:16 GMT*
-
-
-## Bryan Cranston
-
-## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
-
-Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
-
-*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
-
-
-## Bryan Cranston
-
-## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
-
-On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
-
-*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
-
-
-## Bryan Cranston
-
-## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
-
-In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
-
-*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
-
-
-## Bryan Cranston
-
-## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
-
-COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
-
-*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
-
-
-## Bryan Cranston
-
-## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
-
-VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
-
-*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
-
-
-## Bryan Cranston
-
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
-
-
-## Bryan Cranston
-
-## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
-
-Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
-
-*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
-
-
-## Bryan Cranston
-
-## [We're Only Wearing Retro Sunglasses This Summer](https://www.highsnobiety.com/p/retro-sunglasses-buy-online/)
-
-Whether it feels like it or not, sun is on its way. And when it does, there’s a mad rush to cop all your summer essentials as if it’s a surprise that summer ac…
-
-*Published on: Tue, 16 Jul 2024 13:12:11 GMT*
-
-
-## Brielle Biermann
-
-## [The Ultimate Buyer's Guide to Maison Margiela Sneakers](https://www.highsnobiety.com/p/margiela-sneakers-guide-buy-online/)
-
-When it comes to high fashion's sneaker offering, regular readers of Highsnobiety will know all about our love for Maison Margiela 's output. If you're going t…
-
-*Published on: Wed, 17 Jul 2024 08:10:40 GMT*
-
-
 ## Brielle Biermann
 
 ## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
@@ -5122,14 +5113,14 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Brielle Biermann
 
-## [We're Only Wearing Retro Sunglasses This Summer](https://www.highsnobiety.com/p/retro-sunglasses-buy-online/)
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
 
-Whether it feels like it or not, sun is on its way. And when it does, there’s a mad rush to cop all your summer essentials as if it’s a surprise that summer ac…
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
 
-*Published on: Tue, 16 Jul 2024 13:12:11 GMT*
+*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
 
 
-## Dua Lipa
+## Brielle Biermann
 
 ## [The Ultimate Buyer's Guide to Maison Margiela Sneakers](https://www.highsnobiety.com/p/margiela-sneakers-guide-buy-online/)
 
@@ -5212,11 +5203,101 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Dua Lipa
 
-## [We're Only Wearing Retro Sunglasses This Summer](https://www.highsnobiety.com/p/retro-sunglasses-buy-online/)
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
 
-Whether it feels like it or not, sun is on its way. And when it does, there’s a mad rush to cop all your summer essentials as if it’s a surprise that summer ac…
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
 
-*Published on: Tue, 16 Jul 2024 13:12:11 GMT*
+*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
+
+
+## Dua Lipa
+
+## [The Ultimate Buyer's Guide to Maison Margiela Sneakers](https://www.highsnobiety.com/p/margiela-sneakers-guide-buy-online/)
+
+When it comes to high fashion's sneaker offering, regular readers of Highsnobiety will know all about our love for Maison Margiela 's output. If you're going t…
+
+*Published on: Wed, 17 Jul 2024 08:10:40 GMT*
+
+
+## Drake
+
+## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
+
+There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
+
+*Published on: Wed, 17 Jul 2024 08:49:16 GMT*
+
+
+## Drake
+
+## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
+
+Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
+
+*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
+
+
+## Drake
+
+## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
+
+On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
+
+*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
+
+
+## Drake
+
+## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
+
+In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
+
+*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
+
+
+## Drake
+
+## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
+
+COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
+
+*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
+
+
+## Drake
+
+## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
+
+VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
+
+*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
+
+
+## Drake
+
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
+
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
+
+*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
+
+
+## Drake
+
+## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
+
+Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
+
+*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
+
+
+## Drake
+
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
+
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
+
+*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
 
 
 ## Drake
@@ -5228,96 +5309,6 @@ When it comes to high fashion's sneaker offering, regular readers of Highsnobiet
 *Published on: Wed, 17 Jul 2024 08:10:40 GMT*
 
 
-## Drake
-
-## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
-
-There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
-
-*Published on: Wed, 17 Jul 2024 08:49:16 GMT*
-
-
-## Drake
-
-## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
-
-Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
-
-*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
-
-
-## Drake
-
-## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
-
-On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
-
-*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
-
-
-## Drake
-
-## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
-
-In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
-
-*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
-
-
-## Drake
-
-## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
-
-COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
-
-*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
-
-
-## Drake
-
-## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
-
-VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
-
-*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
-
-
-## Drake
-
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
-
-
-## Drake
-
-## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
-
-Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
-
-*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
-
-
-## Drake
-
-## [We're Only Wearing Retro Sunglasses This Summer](https://www.highsnobiety.com/p/retro-sunglasses-buy-online/)
-
-Whether it feels like it or not, sun is on its way. And when it does, there’s a mad rush to cop all your summer essentials as if it’s a surprise that summer ac…
-
-*Published on: Tue, 16 Jul 2024 13:12:11 GMT*
-
-
-## Jenner
-
-## [The Ultimate Buyer's Guide to Maison Margiela Sneakers](https://www.highsnobiety.com/p/margiela-sneakers-guide-buy-online/)
-
-When it comes to high fashion's sneaker offering, regular readers of Highsnobiety will know all about our love for Maison Margiela 's output. If you're going t…
-
-*Published on: Wed, 17 Jul 2024 08:10:40 GMT*
-
-
 ## Jenner
 
 ## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
@@ -5392,14 +5383,14 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Jenner
 
-## [We're Only Wearing Retro Sunglasses This Summer](https://www.highsnobiety.com/p/retro-sunglasses-buy-online/)
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
 
-Whether it feels like it or not, sun is on its way. And when it does, there’s a mad rush to cop all your summer essentials as if it’s a surprise that summer ac…
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
 
-*Published on: Tue, 16 Jul 2024 13:12:11 GMT*
+*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
 
 
-## J. Cole
+## Jenner
 
 ## [The Ultimate Buyer's Guide to Maison Margiela Sneakers](https://www.highsnobiety.com/p/margiela-sneakers-guide-buy-online/)
 
@@ -5482,11 +5473,101 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## J. Cole
 
-## [We're Only Wearing Retro Sunglasses This Summer](https://www.highsnobiety.com/p/retro-sunglasses-buy-online/)
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
 
-Whether it feels like it or not, sun is on its way. And when it does, there’s a mad rush to cop all your summer essentials as if it’s a surprise that summer ac…
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
 
-*Published on: Tue, 16 Jul 2024 13:12:11 GMT*
+*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
+
+
+## J. Cole
+
+## [The Ultimate Buyer's Guide to Maison Margiela Sneakers](https://www.highsnobiety.com/p/margiela-sneakers-guide-buy-online/)
+
+When it comes to high fashion's sneaker offering, regular readers of Highsnobiety will know all about our love for Maison Margiela 's output. If you're going t…
+
+*Published on: Wed, 17 Jul 2024 08:10:40 GMT*
+
+
+## Jerrod Carmichael
+
+## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
+
+There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
+
+*Published on: Wed, 17 Jul 2024 08:49:16 GMT*
+
+
+## Jerrod Carmichael
+
+## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
+
+Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
+
+*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
+
+
+## Jerrod Carmichael
+
+## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
+
+On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
+
+*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
+
+
+## Jerrod Carmichael
+
+## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
+
+In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
+
+*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
+
+
+## Jerrod Carmichael
+
+## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
+
+COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
+
+*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
+
+
+## Jerrod Carmichael
+
+## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
+
+VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
+
+*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
+
+
+## Jerrod Carmichael
+
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
+
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
+
+*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
+
+
+## Jerrod Carmichael
+
+## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
+
+Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
+
+*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
+
+
+## Jerrod Carmichael
+
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
+
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
+
+*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
 
 
 ## Jerrod Carmichael
@@ -5498,96 +5579,6 @@ When it comes to high fashion's sneaker offering, regular readers of Highsnobiet
 *Published on: Wed, 17 Jul 2024 08:10:40 GMT*
 
 
-## Jerrod Carmichael
-
-## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
-
-There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
-
-*Published on: Wed, 17 Jul 2024 08:49:16 GMT*
-
-
-## Jerrod Carmichael
-
-## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
-
-Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
-
-*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
-
-
-## Jerrod Carmichael
-
-## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
-
-On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
-
-*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
-
-
-## Jerrod Carmichael
-
-## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
-
-In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
-
-*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
-
-
-## Jerrod Carmichael
-
-## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
-
-COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
-
-*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
-
-
-## Jerrod Carmichael
-
-## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
-
-VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
-
-*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
-
-
-## Jerrod Carmichael
-
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
-
-
-## Jerrod Carmichael
-
-## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
-
-Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
-
-*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
-
-
-## Jerrod Carmichael
-
-## [We're Only Wearing Retro Sunglasses This Summer](https://www.highsnobiety.com/p/retro-sunglasses-buy-online/)
-
-Whether it feels like it or not, sun is on its way. And when it does, there’s a mad rush to cop all your summer essentials as if it’s a surprise that summer ac…
-
-*Published on: Tue, 16 Jul 2024 13:12:11 GMT*
-
-
-## Jennifer Lawrence
-
-## [The Ultimate Buyer's Guide to Maison Margiela Sneakers](https://www.highsnobiety.com/p/margiela-sneakers-guide-buy-online/)
-
-When it comes to high fashion's sneaker offering, regular readers of Highsnobiety will know all about our love for Maison Margiela 's output. If you're going t…
-
-*Published on: Wed, 17 Jul 2024 08:10:40 GMT*
-
-
 ## Jennifer Lawrence
 
 ## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
@@ -5662,14 +5653,14 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Jennifer Lawrence
 
-## [We're Only Wearing Retro Sunglasses This Summer](https://www.highsnobiety.com/p/retro-sunglasses-buy-online/)
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
 
-Whether it feels like it or not, sun is on its way. And when it does, there’s a mad rush to cop all your summer essentials as if it’s a surprise that summer ac…
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
 
-*Published on: Tue, 16 Jul 2024 13:12:11 GMT*
+*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
 
 
-## Joe Biden
+## Jennifer Lawrence
 
 ## [The Ultimate Buyer's Guide to Maison Margiela Sneakers](https://www.highsnobiety.com/p/margiela-sneakers-guide-buy-online/)
 
@@ -5752,11 +5743,101 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Joe Biden
 
-## [We're Only Wearing Retro Sunglasses This Summer](https://www.highsnobiety.com/p/retro-sunglasses-buy-online/)
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
 
-Whether it feels like it or not, sun is on its way. And when it does, there’s a mad rush to cop all your summer essentials as if it’s a surprise that summer ac…
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
 
-*Published on: Tue, 16 Jul 2024 13:12:11 GMT*
+*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
+
+
+## Joe Biden
+
+## [The Ultimate Buyer's Guide to Maison Margiela Sneakers](https://www.highsnobiety.com/p/margiela-sneakers-guide-buy-online/)
+
+When it comes to high fashion's sneaker offering, regular readers of Highsnobiety will know all about our love for Maison Margiela 's output. If you're going t…
+
+*Published on: Wed, 17 Jul 2024 08:10:40 GMT*
+
+
+## J.K. Simmons
+
+## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
+
+There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
+
+*Published on: Wed, 17 Jul 2024 08:49:16 GMT*
+
+
+## J.K. Simmons
+
+## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
+
+Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
+
+*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
+
+
+## J.K. Simmons
+
+## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
+
+On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
+
+*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
+
+
+## J.K. Simmons
+
+## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
+
+In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
+
+*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
+
+
+## J.K. Simmons
+
+## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
+
+COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
+
+*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
+
+
+## J.K. Simmons
+
+## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
+
+VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
+
+*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
+
+
+## J.K. Simmons
+
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
+
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
+
+*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
+
+
+## J.K. Simmons
+
+## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
+
+Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
+
+*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
+
+
+## J.K. Simmons
+
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
+
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
+
+*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
 
 
 ## J.K. Simmons
@@ -5768,96 +5849,6 @@ When it comes to high fashion's sneaker offering, regular readers of Highsnobiet
 *Published on: Wed, 17 Jul 2024 08:10:40 GMT*
 
 
-## J.K. Simmons
-
-## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
-
-There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
-
-*Published on: Wed, 17 Jul 2024 08:49:16 GMT*
-
-
-## J.K. Simmons
-
-## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
-
-Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
-
-*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
-
-
-## J.K. Simmons
-
-## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
-
-On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
-
-*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
-
-
-## J.K. Simmons
-
-## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
-
-In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
-
-*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
-
-
-## J.K. Simmons
-
-## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
-
-COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
-
-*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
-
-
-## J.K. Simmons
-
-## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
-
-VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
-
-*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
-
-
-## J.K. Simmons
-
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
-
-
-## J.K. Simmons
-
-## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
-
-Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
-
-*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
-
-
-## J.K. Simmons
-
-## [We're Only Wearing Retro Sunglasses This Summer](https://www.highsnobiety.com/p/retro-sunglasses-buy-online/)
-
-Whether it feels like it or not, sun is on its way. And when it does, there’s a mad rush to cop all your summer essentials as if it’s a surprise that summer ac…
-
-*Published on: Tue, 16 Jul 2024 13:12:11 GMT*
-
-
-## Kamala Harris
-
-## [The Ultimate Buyer's Guide to Maison Margiela Sneakers](https://www.highsnobiety.com/p/margiela-sneakers-guide-buy-online/)
-
-When it comes to high fashion's sneaker offering, regular readers of Highsnobiety will know all about our love for Maison Margiela 's output. If you're going t…
-
-*Published on: Wed, 17 Jul 2024 08:10:40 GMT*
-
-
 ## Kamala Harris
 
 ## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
@@ -5932,14 +5923,14 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Kamala Harris
 
-## [We're Only Wearing Retro Sunglasses This Summer](https://www.highsnobiety.com/p/retro-sunglasses-buy-online/)
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
 
-Whether it feels like it or not, sun is on its way. And when it does, there’s a mad rush to cop all your summer essentials as if it’s a surprise that summer ac…
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
 
-*Published on: Tue, 16 Jul 2024 13:12:11 GMT*
+*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
 
 
-## John C Reilly
+## Kamala Harris
 
 ## [The Ultimate Buyer's Guide to Maison Margiela Sneakers](https://www.highsnobiety.com/p/margiela-sneakers-guide-buy-online/)
 
@@ -6022,11 +6013,101 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## John C Reilly
 
-## [We're Only Wearing Retro Sunglasses This Summer](https://www.highsnobiety.com/p/retro-sunglasses-buy-online/)
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
 
-Whether it feels like it or not, sun is on its way. And when it does, there’s a mad rush to cop all your summer essentials as if it’s a surprise that summer ac…
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
 
-*Published on: Tue, 16 Jul 2024 13:12:11 GMT*
+*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
+
+
+## John C Reilly
+
+## [The Ultimate Buyer's Guide to Maison Margiela Sneakers](https://www.highsnobiety.com/p/margiela-sneakers-guide-buy-online/)
+
+When it comes to high fashion's sneaker offering, regular readers of Highsnobiety will know all about our love for Maison Margiela 's output. If you're going t…
+
+*Published on: Wed, 17 Jul 2024 08:10:40 GMT*
+
+
+## Kardashian
+
+## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
+
+There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
+
+*Published on: Wed, 17 Jul 2024 08:49:16 GMT*
+
+
+## Kardashian
+
+## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
+
+Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
+
+*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
+
+
+## Kardashian
+
+## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
+
+On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
+
+*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
+
+
+## Kardashian
+
+## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
+
+In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
+
+*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
+
+
+## Kardashian
+
+## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
+
+COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
+
+*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
+
+
+## Kardashian
+
+## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
+
+VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
+
+*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
+
+
+## Kardashian
+
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
+
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
+
+*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
+
+
+## Kardashian
+
+## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
+
+Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
+
+*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
+
+
+## Kardashian
+
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
+
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
+
+*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
 
 
 ## Kardashian
@@ -6038,96 +6119,6 @@ When it comes to high fashion's sneaker offering, regular readers of Highsnobiet
 *Published on: Wed, 17 Jul 2024 08:10:40 GMT*
 
 
-## Kardashian
-
-## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
-
-There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
-
-*Published on: Wed, 17 Jul 2024 08:49:16 GMT*
-
-
-## Kardashian
-
-## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
-
-Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
-
-*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
-
-
-## Kardashian
-
-## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
-
-On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
-
-*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
-
-
-## Kardashian
-
-## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
-
-In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
-
-*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
-
-
-## Kardashian
-
-## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
-
-COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
-
-*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
-
-
-## Kardashian
-
-## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
-
-VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
-
-*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
-
-
-## Kardashian
-
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
-
-
-## Kardashian
-
-## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
-
-Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
-
-*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
-
-
-## Kardashian
-
-## [We're Only Wearing Retro Sunglasses This Summer](https://www.highsnobiety.com/p/retro-sunglasses-buy-online/)
-
-Whether it feels like it or not, sun is on its way. And when it does, there’s a mad rush to cop all your summer essentials as if it’s a surprise that summer ac…
-
-*Published on: Tue, 16 Jul 2024 13:12:11 GMT*
-
-
-## Kanye
-
-## [The Ultimate Buyer's Guide to Maison Margiela Sneakers](https://www.highsnobiety.com/p/margiela-sneakers-guide-buy-online/)
-
-When it comes to high fashion's sneaker offering, regular readers of Highsnobiety will know all about our love for Maison Margiela 's output. If you're going t…
-
-*Published on: Wed, 17 Jul 2024 08:10:40 GMT*
-
-
 ## Kanye
 
 ## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
@@ -6202,14 +6193,14 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Kanye
 
-## [We're Only Wearing Retro Sunglasses This Summer](https://www.highsnobiety.com/p/retro-sunglasses-buy-online/)
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
 
-Whether it feels like it or not, sun is on its way. And when it does, there’s a mad rush to cop all your summer essentials as if it’s a surprise that summer ac…
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
 
-*Published on: Tue, 16 Jul 2024 13:12:11 GMT*
+*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
 
 
-## Zendaya
+## Kanye
 
 ## [The Ultimate Buyer's Guide to Maison Margiela Sneakers](https://www.highsnobiety.com/p/margiela-sneakers-guide-buy-online/)
 
@@ -6292,11 +6283,101 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Zendaya
 
-## [We're Only Wearing Retro Sunglasses This Summer](https://www.highsnobiety.com/p/retro-sunglasses-buy-online/)
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
 
-Whether it feels like it or not, sun is on its way. And when it does, there’s a mad rush to cop all your summer essentials as if it’s a surprise that summer ac…
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
 
-*Published on: Tue, 16 Jul 2024 13:12:11 GMT*
+*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
+
+
+## Zendaya
+
+## [The Ultimate Buyer's Guide to Maison Margiela Sneakers](https://www.highsnobiety.com/p/margiela-sneakers-guide-buy-online/)
+
+When it comes to high fashion's sneaker offering, regular readers of Highsnobiety will know all about our love for Maison Margiela 's output. If you're going t…
+
+*Published on: Wed, 17 Jul 2024 08:10:40 GMT*
+
+
+## Will Ferrell
+
+## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
+
+There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
+
+*Published on: Wed, 17 Jul 2024 08:49:16 GMT*
+
+
+## Will Ferrell
+
+## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
+
+Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
+
+*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
+
+
+## Will Ferrell
+
+## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
+
+On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
+
+*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
+
+
+## Will Ferrell
+
+## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
+
+In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
+
+*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
+
+
+## Will Ferrell
+
+## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
+
+COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
+
+*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
+
+
+## Will Ferrell
+
+## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
+
+VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
+
+*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
+
+
+## Will Ferrell
+
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
+
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
+
+*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
+
+
+## Will Ferrell
+
+## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
+
+Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
+
+*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
+
+
+## Will Ferrell
+
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
+
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
+
+*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
 
 
 ## Will Ferrell
@@ -6308,96 +6389,6 @@ When it comes to high fashion's sneaker offering, regular readers of Highsnobiet
 *Published on: Wed, 17 Jul 2024 08:10:40 GMT*
 
 
-## Will Ferrell
-
-## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
-
-There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
-
-*Published on: Wed, 17 Jul 2024 08:49:16 GMT*
-
-
-## Will Ferrell
-
-## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
-
-Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
-
-*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
-
-
-## Will Ferrell
-
-## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
-
-On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
-
-*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
-
-
-## Will Ferrell
-
-## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
-
-In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
-
-*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
-
-
-## Will Ferrell
-
-## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
-
-COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
-
-*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
-
-
-## Will Ferrell
-
-## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
-
-VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
-
-*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
-
-
-## Will Ferrell
-
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
-
-
-## Will Ferrell
-
-## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
-
-Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
-
-*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
-
-
-## Will Ferrell
-
-## [We're Only Wearing Retro Sunglasses This Summer](https://www.highsnobiety.com/p/retro-sunglasses-buy-online/)
-
-Whether it feels like it or not, sun is on its way. And when it does, there’s a mad rush to cop all your summer essentials as if it’s a surprise that summer ac…
-
-*Published on: Tue, 16 Jul 2024 13:12:11 GMT*
-
-
-## Zazie Beetz
-
-## [The Ultimate Buyer's Guide to Maison Margiela Sneakers](https://www.highsnobiety.com/p/margiela-sneakers-guide-buy-online/)
-
-When it comes to high fashion's sneaker offering, regular readers of Highsnobiety will know all about our love for Maison Margiela 's output. If you're going t…
-
-*Published on: Wed, 17 Jul 2024 08:10:40 GMT*
-
-
 ## Zazie Beetz
 
 ## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
@@ -6472,14 +6463,14 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Zazie Beetz
 
-## [We're Only Wearing Retro Sunglasses This Summer](https://www.highsnobiety.com/p/retro-sunglasses-buy-online/)
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
 
-Whether it feels like it or not, sun is on its way. And when it does, there’s a mad rush to cop all your summer essentials as if it’s a surprise that summer ac…
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
 
-*Published on: Tue, 16 Jul 2024 13:12:11 GMT*
+*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
 
 
-## Bob Odenkirk
+## Zazie Beetz
 
 ## [The Ultimate Buyer's Guide to Maison Margiela Sneakers](https://www.highsnobiety.com/p/margiela-sneakers-guide-buy-online/)
 
@@ -6562,11 +6553,101 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Bob Odenkirk
 
-## [We're Only Wearing Retro Sunglasses This Summer](https://www.highsnobiety.com/p/retro-sunglasses-buy-online/)
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
 
-Whether it feels like it or not, sun is on its way. And when it does, there’s a mad rush to cop all your summer essentials as if it’s a surprise that summer ac…
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
 
-*Published on: Tue, 16 Jul 2024 13:12:11 GMT*
+*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
+
+
+## Bob Odenkirk
+
+## [The Ultimate Buyer's Guide to Maison Margiela Sneakers](https://www.highsnobiety.com/p/margiela-sneakers-guide-buy-online/)
+
+When it comes to high fashion's sneaker offering, regular readers of Highsnobiety will know all about our love for Maison Margiela 's output. If you're going t…
+
+*Published on: Wed, 17 Jul 2024 08:10:40 GMT*
+
+
+## Brad Pitt
+
+## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
+
+There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
+
+*Published on: Wed, 17 Jul 2024 08:49:16 GMT*
+
+
+## Brad Pitt
+
+## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
+
+Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
+
+*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
+
+
+## Brad Pitt
+
+## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
+
+On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
+
+*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
+
+
+## Brad Pitt
+
+## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
+
+In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
+
+*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
+
+
+## Brad Pitt
+
+## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
+
+COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
+
+*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
+
+
+## Brad Pitt
+
+## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
+
+VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
+
+*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
+
+
+## Brad Pitt
+
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
+
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
+
+*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
+
+
+## Brad Pitt
+
+## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
+
+Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
+
+*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
+
+
+## Brad Pitt
+
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
+
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
+
+*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
 
 
 ## Brad Pitt
@@ -6578,96 +6659,6 @@ When it comes to high fashion's sneaker offering, regular readers of Highsnobiet
 *Published on: Wed, 17 Jul 2024 08:10:40 GMT*
 
 
-## Brad Pitt
-
-## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
-
-There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
-
-*Published on: Wed, 17 Jul 2024 08:49:16 GMT*
-
-
-## Brad Pitt
-
-## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
-
-Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
-
-*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
-
-
-## Brad Pitt
-
-## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
-
-On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
-
-*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
-
-
-## Brad Pitt
-
-## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
-
-In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
-
-*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
-
-
-## Brad Pitt
-
-## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
-
-COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
-
-*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
-
-
-## Brad Pitt
-
-## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
-
-VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
-
-*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
-
-
-## Brad Pitt
-
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
-
-
-## Brad Pitt
-
-## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
-
-Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
-
-*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
-
-
-## Brad Pitt
-
-## [We're Only Wearing Retro Sunglasses This Summer](https://www.highsnobiety.com/p/retro-sunglasses-buy-online/)
-
-Whether it feels like it or not, sun is on its way. And when it does, there’s a mad rush to cop all your summer essentials as if it’s a surprise that summer ac…
-
-*Published on: Tue, 16 Jul 2024 13:12:11 GMT*
-
-
-## Beyoncé
-
-## [The Ultimate Buyer's Guide to Maison Margiela Sneakers](https://www.highsnobiety.com/p/margiela-sneakers-guide-buy-online/)
-
-When it comes to high fashion's sneaker offering, regular readers of Highsnobiety will know all about our love for Maison Margiela 's output. If you're going t…
-
-*Published on: Wed, 17 Jul 2024 08:10:40 GMT*
-
-
 ## Beyoncé
 
 ## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
@@ -6742,14 +6733,14 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Beyoncé
 
-## [We're Only Wearing Retro Sunglasses This Summer](https://www.highsnobiety.com/p/retro-sunglasses-buy-online/)
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
 
-Whether it feels like it or not, sun is on its way. And when it does, there’s a mad rush to cop all your summer essentials as if it’s a surprise that summer ac…
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
 
-*Published on: Tue, 16 Jul 2024 13:12:11 GMT*
+*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
 
 
-## Bia
+## Beyoncé
 
 ## [The Ultimate Buyer's Guide to Maison Margiela Sneakers](https://www.highsnobiety.com/p/margiela-sneakers-guide-buy-online/)
 
@@ -6832,11 +6823,101 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Bia
 
-## [We're Only Wearing Retro Sunglasses This Summer](https://www.highsnobiety.com/p/retro-sunglasses-buy-online/)
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
 
-Whether it feels like it or not, sun is on its way. And when it does, there’s a mad rush to cop all your summer essentials as if it’s a surprise that summer ac…
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
 
-*Published on: Tue, 16 Jul 2024 13:12:11 GMT*
+*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
+
+
+## Bia
+
+## [The Ultimate Buyer's Guide to Maison Margiela Sneakers](https://www.highsnobiety.com/p/margiela-sneakers-guide-buy-online/)
+
+When it comes to high fashion's sneaker offering, regular readers of Highsnobiety will know all about our love for Maison Margiela 's output. If you're going t…
+
+*Published on: Wed, 17 Jul 2024 08:10:40 GMT*
+
+
+## Avantika
+
+## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
+
+There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
+
+*Published on: Wed, 17 Jul 2024 08:49:16 GMT*
+
+
+## Avantika
+
+## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
+
+Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
+
+*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
+
+
+## Avantika
+
+## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
+
+On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
+
+*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
+
+
+## Avantika
+
+## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
+
+In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
+
+*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
+
+
+## Avantika
+
+## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
+
+COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
+
+*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
+
+
+## Avantika
+
+## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
+
+VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
+
+*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
+
+
+## Avantika
+
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
+
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
+
+*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
+
+
+## Avantika
+
+## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
+
+Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
+
+*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
+
+
+## Avantika
+
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
+
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
+
+*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
 
 
 ## Avantika
@@ -6848,96 +6929,6 @@ When it comes to high fashion's sneaker offering, regular readers of Highsnobiet
 *Published on: Wed, 17 Jul 2024 08:10:40 GMT*
 
 
-## Avantika
-
-## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
-
-There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
-
-*Published on: Wed, 17 Jul 2024 08:49:16 GMT*
-
-
-## Avantika
-
-## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
-
-Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
-
-*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
-
-
-## Avantika
-
-## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
-
-On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
-
-*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
-
-
-## Avantika
-
-## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
-
-In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
-
-*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
-
-
-## Avantika
-
-## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
-
-COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
-
-*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
-
-
-## Avantika
-
-## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
-
-VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
-
-*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
-
-
-## Avantika
-
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
-
-
-## Avantika
-
-## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
-
-Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
-
-*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
-
-
-## Avantika
-
-## [We're Only Wearing Retro Sunglasses This Summer](https://www.highsnobiety.com/p/retro-sunglasses-buy-online/)
-
-Whether it feels like it or not, sun is on its way. And when it does, there’s a mad rush to cop all your summer essentials as if it’s a surprise that summer ac…
-
-*Published on: Tue, 16 Jul 2024 13:12:11 GMT*
-
-
-## Bernie Sanders
-
-## [The Ultimate Buyer's Guide to Maison Margiela Sneakers](https://www.highsnobiety.com/p/margiela-sneakers-guide-buy-online/)
-
-When it comes to high fashion's sneaker offering, regular readers of Highsnobiety will know all about our love for Maison Margiela 's output. If you're going t…
-
-*Published on: Wed, 17 Jul 2024 08:10:40 GMT*
-
-
 ## Bernie Sanders
 
 ## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
@@ -7012,14 +7003,14 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Bernie Sanders
 
-## [We're Only Wearing Retro Sunglasses This Summer](https://www.highsnobiety.com/p/retro-sunglasses-buy-online/)
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
 
-Whether it feels like it or not, sun is on its way. And when it does, there’s a mad rush to cop all your summer essentials as if it’s a surprise that summer ac…
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
 
-*Published on: Tue, 16 Jul 2024 13:12:11 GMT*
+*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
 
 
-## Big Sean
+## Bernie Sanders
 
 ## [The Ultimate Buyer's Guide to Maison Margiela Sneakers](https://www.highsnobiety.com/p/margiela-sneakers-guide-buy-online/)
 
@@ -7102,11 +7093,101 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Big Sean
 
-## [We're Only Wearing Retro Sunglasses This Summer](https://www.highsnobiety.com/p/retro-sunglasses-buy-online/)
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
 
-Whether it feels like it or not, sun is on its way. And when it does, there’s a mad rush to cop all your summer essentials as if it’s a surprise that summer ac…
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
 
-*Published on: Tue, 16 Jul 2024 13:12:11 GMT*
+*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
+
+
+## Big Sean
+
+## [The Ultimate Buyer's Guide to Maison Margiela Sneakers](https://www.highsnobiety.com/p/margiela-sneakers-guide-buy-online/)
+
+When it comes to high fashion's sneaker offering, regular readers of Highsnobiety will know all about our love for Maison Margiela 's output. If you're going t…
+
+*Published on: Wed, 17 Jul 2024 08:10:40 GMT*
+
+
+## BlockBoy JB
+
+## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
+
+There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
+
+*Published on: Wed, 17 Jul 2024 08:49:16 GMT*
+
+
+## BlockBoy JB
+
+## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
+
+Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
+
+*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
+
+
+## BlockBoy JB
+
+## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
+
+On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
+
+*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
+
+
+## BlockBoy JB
+
+## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
+
+In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
+
+*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
+
+
+## BlockBoy JB
+
+## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
+
+COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
+
+*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
+
+
+## BlockBoy JB
+
+## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
+
+VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
+
+*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
+
+
+## BlockBoy JB
+
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
+
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
+
+*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
+
+
+## BlockBoy JB
+
+## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
+
+Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
+
+*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
+
+
+## BlockBoy JB
+
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
+
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
+
+*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
 
 
 ## BlockBoy JB
@@ -7118,96 +7199,6 @@ When it comes to high fashion's sneaker offering, regular readers of Highsnobiet
 *Published on: Wed, 17 Jul 2024 08:10:40 GMT*
 
 
-## BlockBoy JB
-
-## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
-
-There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
-
-*Published on: Wed, 17 Jul 2024 08:49:16 GMT*
-
-
-## BlockBoy JB
-
-## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
-
-Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
-
-*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
-
-
-## BlockBoy JB
-
-## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
-
-On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
-
-*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
-
-
-## BlockBoy JB
-
-## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
-
-In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
-
-*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
-
-
-## BlockBoy JB
-
-## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
-
-COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
-
-*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
-
-
-## BlockBoy JB
-
-## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
-
-VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
-
-*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
-
-
-## BlockBoy JB
-
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
-
-
-## BlockBoy JB
-
-## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
-
-Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
-
-*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
-
-
-## BlockBoy JB
-
-## [We're Only Wearing Retro Sunglasses This Summer](https://www.highsnobiety.com/p/retro-sunglasses-buy-online/)
-
-Whether it feels like it or not, sun is on its way. And when it does, there’s a mad rush to cop all your summer essentials as if it’s a surprise that summer ac…
-
-*Published on: Tue, 16 Jul 2024 13:12:11 GMT*
-
-
-## Biden
-
-## [The Ultimate Buyer's Guide to Maison Margiela Sneakers](https://www.highsnobiety.com/p/margiela-sneakers-guide-buy-online/)
-
-When it comes to high fashion's sneaker offering, regular readers of Highsnobiety will know all about our love for Maison Margiela 's output. If you're going t…
-
-*Published on: Wed, 17 Jul 2024 08:10:40 GMT*
-
-
 ## Biden
 
 ## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
@@ -7282,14 +7273,14 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Biden
 
-## [We're Only Wearing Retro Sunglasses This Summer](https://www.highsnobiety.com/p/retro-sunglasses-buy-online/)
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
 
-Whether it feels like it or not, sun is on its way. And when it does, there’s a mad rush to cop all your summer essentials as if it’s a surprise that summer ac…
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
 
-*Published on: Tue, 16 Jul 2024 13:12:11 GMT*
+*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
 
 
-## Bieber
+## Biden
 
 ## [The Ultimate Buyer's Guide to Maison Margiela Sneakers](https://www.highsnobiety.com/p/margiela-sneakers-guide-buy-online/)
 
@@ -7372,14 +7363,14 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Bieber
 
-## [We're Only Wearing Retro Sunglasses This Summer](https://www.highsnobiety.com/p/retro-sunglasses-buy-online/)
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
 
-Whether it feels like it or not, sun is on its way. And when it does, there’s a mad rush to cop all your summer essentials as if it’s a surprise that summer ac…
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
 
-*Published on: Tue, 16 Jul 2024 13:12:11 GMT*
+*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
 
 
-## Paulina Porizkov
+## Bieber
 
 ## [The Ultimate Buyer's Guide to Maison Margiela Sneakers](https://www.highsnobiety.com/p/margiela-sneakers-guide-buy-online/)
 
@@ -7462,14 +7453,14 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Paulina Porizkov
 
-## [We're Only Wearing Retro Sunglasses This Summer](https://www.highsnobiety.com/p/retro-sunglasses-buy-online/)
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
 
-Whether it feels like it or not, sun is on its way. And when it does, there’s a mad rush to cop all your summer essentials as if it’s a surprise that summer ac…
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
 
-*Published on: Tue, 16 Jul 2024 13:12:11 GMT*
+*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
 
 
-## Paris Hilton
+## Paulina Porizkov
 
 ## [The Ultimate Buyer's Guide to Maison Margiela Sneakers](https://www.highsnobiety.com/p/margiela-sneakers-guide-buy-online/)
 
@@ -7552,14 +7543,14 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Paris Hilton
 
-## [We're Only Wearing Retro Sunglasses This Summer](https://www.highsnobiety.com/p/retro-sunglasses-buy-online/)
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
 
-Whether it feels like it or not, sun is on its way. And when it does, there’s a mad rush to cop all your summer essentials as if it’s a surprise that summer ac…
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
 
-*Published on: Tue, 16 Jul 2024 13:12:11 GMT*
+*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
 
 
-## Metro Boomin
+## Paris Hilton
 
 ## [The Ultimate Buyer's Guide to Maison Margiela Sneakers](https://www.highsnobiety.com/p/margiela-sneakers-guide-buy-online/)
 
@@ -7642,14 +7633,14 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Metro Boomin
 
-## [We're Only Wearing Retro Sunglasses This Summer](https://www.highsnobiety.com/p/retro-sunglasses-buy-online/)
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
 
-Whether it feels like it or not, sun is on its way. And when it does, there’s a mad rush to cop all your summer essentials as if it’s a surprise that summer ac…
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
 
-*Published on: Tue, 16 Jul 2024 13:12:11 GMT*
+*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
 
 
-## Meghan Markle
+## Metro Boomin
 
 ## [The Ultimate Buyer's Guide to Maison Margiela Sneakers](https://www.highsnobiety.com/p/margiela-sneakers-guide-buy-online/)
 
@@ -7732,14 +7723,14 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Meghan Markle
 
-## [We're Only Wearing Retro Sunglasses This Summer](https://www.highsnobiety.com/p/retro-sunglasses-buy-online/)
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
 
-Whether it feels like it or not, sun is on its way. And when it does, there’s a mad rush to cop all your summer essentials as if it’s a surprise that summer ac…
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
 
-*Published on: Tue, 16 Jul 2024 13:12:11 GMT*
+*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
 
 
-## Megan Thee Stallion
+## Meghan Markle
 
 ## [The Ultimate Buyer's Guide to Maison Margiela Sneakers](https://www.highsnobiety.com/p/margiela-sneakers-guide-buy-online/)
 
@@ -7822,14 +7813,14 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Megan Thee Stallion
 
-## [We're Only Wearing Retro Sunglasses This Summer](https://www.highsnobiety.com/p/retro-sunglasses-buy-online/)
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
 
-Whether it feels like it or not, sun is on its way. And when it does, there’s a mad rush to cop all your summer essentials as if it’s a surprise that summer ac…
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
 
-*Published on: Tue, 16 Jul 2024 13:12:11 GMT*
+*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
 
 
-## Maya Rudolph
+## Megan Thee Stallion
 
 ## [The Ultimate Buyer's Guide to Maison Margiela Sneakers](https://www.highsnobiety.com/p/margiela-sneakers-guide-buy-online/)
 
@@ -7912,14 +7903,14 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Maya Rudolph
 
-## [We're Only Wearing Retro Sunglasses This Summer](https://www.highsnobiety.com/p/retro-sunglasses-buy-online/)
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
 
-Whether it feels like it or not, sun is on its way. And when it does, there’s a mad rush to cop all your summer essentials as if it’s a surprise that summer ac…
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
 
-*Published on: Tue, 16 Jul 2024 13:12:11 GMT*
+*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
 
 
-## Olivia Rodrigo
+## Maya Rudolph
 
 ## [The Ultimate Buyer's Guide to Maison Margiela Sneakers](https://www.highsnobiety.com/p/margiela-sneakers-guide-buy-online/)
 
@@ -8002,14 +7993,14 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Olivia Rodrigo
 
-## [We're Only Wearing Retro Sunglasses This Summer](https://www.highsnobiety.com/p/retro-sunglasses-buy-online/)
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
 
-Whether it feels like it or not, sun is on its way. And when it does, there’s a mad rush to cop all your summer essentials as if it’s a surprise that summer ac…
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
 
-*Published on: Tue, 16 Jul 2024 13:12:11 GMT*
+*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
 
 
-## Obama
+## Olivia Rodrigo
 
 ## [The Ultimate Buyer's Guide to Maison Margiela Sneakers](https://www.highsnobiety.com/p/margiela-sneakers-guide-buy-online/)
 
@@ -8092,14 +8083,14 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Obama
 
-## [We're Only Wearing Retro Sunglasses This Summer](https://www.highsnobiety.com/p/retro-sunglasses-buy-online/)
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
 
-Whether it feels like it or not, sun is on its way. And when it does, there’s a mad rush to cop all your summer essentials as if it’s a surprise that summer ac…
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
 
-*Published on: Tue, 16 Jul 2024 13:12:11 GMT*
+*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
 
 
-## Nicki Minaj
+## Obama
 
 ## [The Ultimate Buyer's Guide to Maison Margiela Sneakers](https://www.highsnobiety.com/p/margiela-sneakers-guide-buy-online/)
 
@@ -8182,14 +8173,14 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Nicki Minaj
 
-## [We're Only Wearing Retro Sunglasses This Summer](https://www.highsnobiety.com/p/retro-sunglasses-buy-online/)
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
 
-Whether it feels like it or not, sun is on its way. And when it does, there’s a mad rush to cop all your summer essentials as if it’s a surprise that summer ac…
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
 
-*Published on: Tue, 16 Jul 2024 13:12:11 GMT*
+*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
 
 
-## MrBeast
+## Nicki Minaj
 
 ## [The Ultimate Buyer's Guide to Maison Margiela Sneakers](https://www.highsnobiety.com/p/margiela-sneakers-guide-buy-online/)
 
@@ -8272,10 +8263,19 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## MrBeast
 
-## [We're Only Wearing Retro Sunglasses This Summer](https://www.highsnobiety.com/p/retro-sunglasses-buy-online/)
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
 
-Whether it feels like it or not, sun is on its way. And when it does, there’s a mad rush to cop all your summer essentials as if it’s a surprise that summer ac…
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
 
-*Published on: Tue, 16 Jul 2024 13:12:11 GMT*
+*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
+
+
+## MrBeast
+
+## [The Ultimate Buyer's Guide to Maison Margiela Sneakers](https://www.highsnobiety.com/p/margiela-sneakers-guide-buy-online/)
+
+When it comes to high fashion's sneaker offering, regular readers of Highsnobiety will know all about our love for Maison Margiela 's output. If you're going t…
+
+*Published on: Wed, 17 Jul 2024 08:10:40 GMT*
 
 
