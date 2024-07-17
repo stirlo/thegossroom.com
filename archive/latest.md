@@ -125,15 +125,6 @@ adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is b
 *Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
-## Tim Cook
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
-
-
 ## Taylor Swift
 
 ## [When In Doubt, Chuck It](https://www.highsnobiety.com/p/converse-chucks-comeback/)
@@ -258,15 +249,6 @@ It's time to talk about The Bear—the show that sneaked into our lives, made us
 adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
 
 *Published on: Tue, 16 Jul 2024 05:40:45 GMT*
-
-
-## Taylor Swift
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
 
 
 ## Tom Brady
@@ -395,15 +377,6 @@ adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is b
 *Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
-## Tom Brady
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
-
-
 ## Tina Fey
 
 ## [When In Doubt, Chuck It](https://www.highsnobiety.com/p/converse-chucks-comeback/)
@@ -528,15 +501,6 @@ It's time to talk about The Bear—the show that sneaked into our lives, made us
 adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
 
 *Published on: Tue, 16 Jul 2024 05:40:45 GMT*
-
-
-## Tina Fey
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
 
 
 ## Steven Yuen
@@ -665,15 +629,6 @@ adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is b
 *Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
-## Steven Yuen
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
-
-
 ## Sommer Ray
 
 ## [When In Doubt, Chuck It](https://www.highsnobiety.com/p/converse-chucks-comeback/)
@@ -798,15 +753,6 @@ It's time to talk about The Bear—the show that sneaked into our lives, made us
 adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
 
 *Published on: Tue, 16 Jul 2024 05:40:45 GMT*
-
-
-## Sommer Ray
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
 
 
 ## Sza
@@ -935,15 +881,6 @@ adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is b
 *Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
-## Sza
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
-
-
 ## Sydney Sweeney
 
 ## [When In Doubt, Chuck It](https://www.highsnobiety.com/p/converse-chucks-comeback/)
@@ -1068,15 +1005,6 @@ It's time to talk about The Bear—the show that sneaked into our lives, made us
 adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
 
 *Published on: Tue, 16 Jul 2024 05:40:45 GMT*
-
-
-## Sydney Sweeney
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
 
 
 ## Walton Goggins
@@ -1205,15 +1133,6 @@ adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is b
 *Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
-## Walton Goggins
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
-
-
 ## Tom Holland
 
 ## [When In Doubt, Chuck It](https://www.highsnobiety.com/p/converse-chucks-comeback/)
@@ -1338,15 +1257,6 @@ It's time to talk about The Bear—the show that sneaked into our lives, made us
 adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
 
 *Published on: Tue, 16 Jul 2024 05:40:45 GMT*
-
-
-## Tom Holland
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
 
 
 ## Gucci Mane
@@ -1475,15 +1385,6 @@ adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is b
 *Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
-## Gucci Mane
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
-
-
 ## Harry Styles
 
 ## [When In Doubt, Chuck It](https://www.highsnobiety.com/p/converse-chucks-comeback/)
@@ -1608,15 +1509,6 @@ It's time to talk about The Bear—the show that sneaked into our lives, made us
 adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
 
 *Published on: Tue, 16 Jul 2024 05:40:45 GMT*
-
-
-## Harry Styles
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
 
 
 ## Jake Paul
@@ -1745,15 +1637,6 @@ adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is b
 *Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
-## Jake Paul
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
-
-
 ## Jameela Jamil
 
 ## [When In Doubt, Chuck It](https://www.highsnobiety.com/p/converse-chucks-comeback/)
@@ -1878,15 +1761,6 @@ It's time to talk about The Bear—the show that sneaked into our lives, made us
 adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
 
 *Published on: Tue, 16 Jul 2024 05:40:45 GMT*
-
-
-## Jameela Jamil
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
 
 
 ## Elon Musk
@@ -2015,15 +1889,6 @@ adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is b
 *Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
-## Elon Musk
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
-
-
 ## Gabrielle Union
 
 ## [When In Doubt, Chuck It](https://www.highsnobiety.com/p/converse-chucks-comeback/)
@@ -2148,15 +2013,6 @@ It's time to talk about The Bear—the show that sneaked into our lives, made us
 adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
 
 *Published on: Tue, 16 Jul 2024 05:40:45 GMT*
-
-
-## Gabrielle Union
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
 
 
 ## Giancarlo Esposito
@@ -2285,15 +2141,6 @@ adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is b
 *Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
-## Giancarlo Esposito
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
-
-
 ## Gillian Jacobs
 
 ## [When In Doubt, Chuck It](https://www.highsnobiety.com/p/converse-chucks-comeback/)
@@ -2418,15 +2265,6 @@ It's time to talk about The Bear—the show that sneaked into our lives, made us
 adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
 
 *Published on: Tue, 16 Jul 2024 05:40:45 GMT*
-
-
-## Gillian Jacobs
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
 
 
 ## Jason Mantzoukas
@@ -2555,15 +2393,6 @@ adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is b
 *Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
-## Jason Mantzoukas
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
-
-
 ## JB Smoove
 
 ## [When In Doubt, Chuck It](https://www.highsnobiety.com/p/converse-chucks-comeback/)
@@ -2688,15 +2517,6 @@ It's time to talk about The Bear—the show that sneaked into our lives, made us
 adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
 
 *Published on: Tue, 16 Jul 2024 05:40:45 GMT*
-
-
-## JB Smoove
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
 
 
 ## Madison Pettis
@@ -2825,15 +2645,6 @@ adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is b
 *Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
-## Madison Pettis
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
-
-
 ## Austin Butler
 
 ## [When In Doubt, Chuck It](https://www.highsnobiety.com/p/converse-chucks-comeback/)
@@ -2958,15 +2769,6 @@ It's time to talk about The Bear—the show that sneaked into our lives, made us
 adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
 
 *Published on: Tue, 16 Jul 2024 05:40:45 GMT*
-
-
-## Austin Butler
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
 
 
 ## Mark Zuckerberg
@@ -3095,15 +2897,6 @@ adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is b
 *Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
-## Mark Zuckerberg
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
-
-
 ## Ariana Grande
 
 ## [When In Doubt, Chuck It](https://www.highsnobiety.com/p/converse-chucks-comeback/)
@@ -3228,15 +3021,6 @@ It's time to talk about The Bear—the show that sneaked into our lives, made us
 adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
 
 *Published on: Tue, 16 Jul 2024 05:40:45 GMT*
-
-
-## Ariana Grande
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
 
 
 ## Livvy Dunne
@@ -3365,15 +3149,6 @@ adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is b
 *Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
-## Livvy Dunne
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
-
-
 ## Ali Wong
 
 ## [When In Doubt, Chuck It](https://www.highsnobiety.com/p/converse-chucks-comeback/)
@@ -3498,15 +3273,6 @@ It's time to talk about The Bear—the show that sneaked into our lives, made us
 adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
 
 *Published on: Tue, 16 Jul 2024 05:40:45 GMT*
-
-
-## Ali Wong
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
 
 
 ## Lizzo
@@ -3635,15 +3401,6 @@ adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is b
 *Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
-## Lizzo
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
-
-
 ## Alison Brie
 
 ## [When In Doubt, Chuck It](https://www.highsnobiety.com/p/converse-chucks-comeback/)
@@ -3768,15 +3525,6 @@ It's time to talk about The Bear—the show that sneaked into our lives, made us
 adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
 
 *Published on: Tue, 16 Jul 2024 05:40:45 GMT*
-
-
-## Alison Brie
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
 
 
 ## Lil Wayne
@@ -3905,15 +3653,6 @@ adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is b
 *Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
-## Lil Wayne
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
-
-
 ## Adele
 
 ## [When In Doubt, Chuck It](https://www.highsnobiety.com/p/converse-chucks-comeback/)
@@ -4038,15 +3777,6 @@ It's time to talk about The Bear—the show that sneaked into our lives, made us
 adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
 
 *Published on: Tue, 16 Jul 2024 05:40:45 GMT*
-
-
-## Adele
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
 
 
 ## Lindsay Lohan
@@ -4175,15 +3905,6 @@ adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is b
 *Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
-## Lindsay Lohan
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
-
-
 ## Addison Rae
 
 ## [When In Doubt, Chuck It](https://www.highsnobiety.com/p/converse-chucks-comeback/)
@@ -4308,15 +4029,6 @@ It's time to talk about The Bear—the show that sneaked into our lives, made us
 adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
 
 *Published on: Tue, 16 Jul 2024 05:40:45 GMT*
-
-
-## Addison Rae
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
 
 
 ## Latto
@@ -4445,15 +4157,6 @@ adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is b
 *Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
-## Latto
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
-
-
 ## Aaron Paul
 
 ## [When In Doubt, Chuck It](https://www.highsnobiety.com/p/converse-chucks-comeback/)
@@ -4578,15 +4281,6 @@ It's time to talk about The Bear—the show that sneaked into our lives, made us
 adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
 
 *Published on: Tue, 16 Jul 2024 05:40:45 GMT*
-
-
-## Aaron Paul
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
 
 
 ## LeBron James
@@ -4715,15 +4409,6 @@ adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is b
 *Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
-## LeBron James
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
-
-
 ## 50 Cent
 
 ## [When In Doubt, Chuck It](https://www.highsnobiety.com/p/converse-chucks-comeback/)
@@ -4848,15 +4533,6 @@ It's time to talk about The Bear—the show that sneaked into our lives, made us
 adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
 
 *Published on: Tue, 16 Jul 2024 05:40:45 GMT*
-
-
-## 50 Cent
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
 
 
 ## Kesha
@@ -4985,15 +4661,6 @@ adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is b
 *Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
-## Kesha
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
-
-
 ## 21 Savage
 
 ## [When In Doubt, Chuck It](https://www.highsnobiety.com/p/converse-chucks-comeback/)
@@ -5118,15 +4785,6 @@ It's time to talk about The Bear—the show that sneaked into our lives, made us
 adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
 
 *Published on: Tue, 16 Jul 2024 05:40:45 GMT*
-
-
-## 21 Savage
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
 
 
 ## Larry David
@@ -5255,15 +4913,6 @@ adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is b
 *Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
-## Larry David
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
-
-
 ## Seth Rogan
 
 ## [When In Doubt, Chuck It](https://www.highsnobiety.com/p/converse-chucks-comeback/)
@@ -5388,15 +5037,6 @@ It's time to talk about The Bear—the show that sneaked into our lives, made us
 adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
 
 *Published on: Tue, 16 Jul 2024 05:40:45 GMT*
-
-
-## Seth Rogan
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
 
 
 ## Simone Biles
@@ -5525,15 +5165,6 @@ adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is b
 *Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
-## Simone Biles
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
-
-
 ## Pete Davidson
 
 ## [When In Doubt, Chuck It](https://www.highsnobiety.com/p/converse-chucks-comeback/)
@@ -5658,15 +5289,6 @@ It's time to talk about The Bear—the show that sneaked into our lives, made us
 adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
 
 *Published on: Tue, 16 Jul 2024 05:40:45 GMT*
-
-
-## Pete Davidson
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
 
 
 ## Prince Harry
@@ -5795,15 +5417,6 @@ adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is b
 *Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
-## Prince Harry
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
-
-
 ## Princess of Wales
 
 ## [When In Doubt, Chuck It](https://www.highsnobiety.com/p/converse-chucks-comeback/)
@@ -5928,15 +5541,6 @@ It's time to talk about The Bear—the show that sneaked into our lives, made us
 adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
 
 *Published on: Tue, 16 Jul 2024 05:40:45 GMT*
-
-
-## Princess of Wales
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
 
 
 ## Rachel McAdams
@@ -6065,15 +5669,6 @@ adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is b
 *Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
-## Rachel McAdams
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
-
-
 ## Reneé Rapp
 
 ## [When In Doubt, Chuck It](https://www.highsnobiety.com/p/converse-chucks-comeback/)
@@ -6198,15 +5793,6 @@ It's time to talk about The Bear—the show that sneaked into our lives, made us
 adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
 
 *Published on: Tue, 16 Jul 2024 05:40:45 GMT*
-
-
-## Reneé Rapp
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
 
 
 ## Rick Ross
@@ -6335,15 +5921,6 @@ adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is b
 *Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
-## Rick Ross
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
-
-
 ## Sam Ashgari
 
 ## [When In Doubt, Chuck It](https://www.highsnobiety.com/p/converse-chucks-comeback/)
@@ -6468,15 +6045,6 @@ It's time to talk about The Bear—the show that sneaked into our lives, made us
 adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
 
 *Published on: Tue, 16 Jul 2024 05:40:45 GMT*
-
-
-## Sam Ashgari
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
 
 
 ## Sandra Oh
@@ -6605,15 +6173,6 @@ adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is b
 *Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
-## Sandra Oh
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
-
-
 ## Donald Trump
 
 ## [When In Doubt, Chuck It](https://www.highsnobiety.com/p/converse-chucks-comeback/)
@@ -6738,15 +6297,6 @@ It's time to talk about The Bear—the show that sneaked into our lives, made us
 adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
 
 *Published on: Tue, 16 Jul 2024 05:40:45 GMT*
-
-
-## Donald Trump
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
 
 
 ## Diddy
@@ -6875,15 +6425,6 @@ adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is b
 *Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
-## Diddy
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
-
-
 ## City Girls
 
 ## [When In Doubt, Chuck It](https://www.highsnobiety.com/p/converse-chucks-comeback/)
@@ -7008,15 +6549,6 @@ It's time to talk about The Bear—the show that sneaked into our lives, made us
 adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
 
 *Published on: Tue, 16 Jul 2024 05:40:45 GMT*
-
-
-## City Girls
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
 
 
 ## Chloe Bailey
@@ -7145,15 +6677,6 @@ adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is b
 *Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
-## Chloe Bailey
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
-
-
 ## Charli D Amelio
 
 ## [When In Doubt, Chuck It](https://www.highsnobiety.com/p/converse-chucks-comeback/)
@@ -7278,15 +6801,6 @@ It's time to talk about The Bear—the show that sneaked into our lives, made us
 adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
 
 *Published on: Tue, 16 Jul 2024 05:40:45 GMT*
-
-
-## Charli D Amelio
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
 
 
 ## Cardi B
@@ -7415,15 +6929,6 @@ adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is b
 *Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
-## Cardi B
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
-
-
 ## Bryan Cranston
 
 ## [When In Doubt, Chuck It](https://www.highsnobiety.com/p/converse-chucks-comeback/)
@@ -7548,15 +7053,6 @@ It's time to talk about The Bear—the show that sneaked into our lives, made us
 adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
 
 *Published on: Tue, 16 Jul 2024 05:40:45 GMT*
-
-
-## Bryan Cranston
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
 
 
 ## Brielle Biermann
@@ -7685,15 +7181,6 @@ adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is b
 *Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
-## Brielle Biermann
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
-
-
 ## Dua Lipa
 
 ## [When In Doubt, Chuck It](https://www.highsnobiety.com/p/converse-chucks-comeback/)
@@ -7818,15 +7305,6 @@ It's time to talk about The Bear—the show that sneaked into our lives, made us
 adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
 
 *Published on: Tue, 16 Jul 2024 05:40:45 GMT*
-
-
-## Dua Lipa
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
 
 
 ## Drake
@@ -7955,15 +7433,6 @@ adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is b
 *Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
-## Drake
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
-
-
 ## Jenner
 
 ## [When In Doubt, Chuck It](https://www.highsnobiety.com/p/converse-chucks-comeback/)
@@ -8088,15 +7557,6 @@ It's time to talk about The Bear—the show that sneaked into our lives, made us
 adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
 
 *Published on: Tue, 16 Jul 2024 05:40:45 GMT*
-
-
-## Jenner
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
 
 
 ## J. Cole
@@ -8225,15 +7685,6 @@ adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is b
 *Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
-## J. Cole
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
-
-
 ## Jerrod Carmichael
 
 ## [When In Doubt, Chuck It](https://www.highsnobiety.com/p/converse-chucks-comeback/)
@@ -8358,15 +7809,6 @@ It's time to talk about The Bear—the show that sneaked into our lives, made us
 adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
 
 *Published on: Tue, 16 Jul 2024 05:40:45 GMT*
-
-
-## Jerrod Carmichael
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
 
 
 ## Jennifer Lawrence
@@ -8495,15 +7937,6 @@ adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is b
 *Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
-## Jennifer Lawrence
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
-
-
 ## Joe Biden
 
 ## [When In Doubt, Chuck It](https://www.highsnobiety.com/p/converse-chucks-comeback/)
@@ -8628,15 +8061,6 @@ It's time to talk about The Bear—the show that sneaked into our lives, made us
 adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
 
 *Published on: Tue, 16 Jul 2024 05:40:45 GMT*
-
-
-## Joe Biden
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
 
 
 ## J.K. Simmons
@@ -8765,15 +8189,6 @@ adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is b
 *Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
-## J.K. Simmons
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
-
-
 ## Kamala Harris
 
 ## [When In Doubt, Chuck It](https://www.highsnobiety.com/p/converse-chucks-comeback/)
@@ -8898,15 +8313,6 @@ It's time to talk about The Bear—the show that sneaked into our lives, made us
 adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
 
 *Published on: Tue, 16 Jul 2024 05:40:45 GMT*
-
-
-## Kamala Harris
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
 
 
 ## John C Reilly
@@ -9035,15 +8441,6 @@ adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is b
 *Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
-## John C Reilly
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
-
-
 ## Kardashian
 
 ## [When In Doubt, Chuck It](https://www.highsnobiety.com/p/converse-chucks-comeback/)
@@ -9168,15 +8565,6 @@ It's time to talk about The Bear—the show that sneaked into our lives, made us
 adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
 
 *Published on: Tue, 16 Jul 2024 05:40:45 GMT*
-
-
-## Kardashian
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
 
 
 ## Kanye
@@ -9305,15 +8693,6 @@ adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is b
 *Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
-## Kanye
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
-
-
 ## Zendaya
 
 ## [When In Doubt, Chuck It](https://www.highsnobiety.com/p/converse-chucks-comeback/)
@@ -9438,15 +8817,6 @@ It's time to talk about The Bear—the show that sneaked into our lives, made us
 adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
 
 *Published on: Tue, 16 Jul 2024 05:40:45 GMT*
-
-
-## Zendaya
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
 
 
 ## Will Ferrell
@@ -9575,15 +8945,6 @@ adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is b
 *Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
-## Will Ferrell
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
-
-
 ## Zazie Beetz
 
 ## [When In Doubt, Chuck It](https://www.highsnobiety.com/p/converse-chucks-comeback/)
@@ -9708,15 +9069,6 @@ It's time to talk about The Bear—the show that sneaked into our lives, made us
 adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
 
 *Published on: Tue, 16 Jul 2024 05:40:45 GMT*
-
-
-## Zazie Beetz
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
 
 
 ## Bob Odenkirk
@@ -9845,15 +9197,6 @@ adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is b
 *Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
-## Bob Odenkirk
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
-
-
 ## Brad Pitt
 
 ## [When In Doubt, Chuck It](https://www.highsnobiety.com/p/converse-chucks-comeback/)
@@ -9978,15 +9321,6 @@ It's time to talk about The Bear—the show that sneaked into our lives, made us
 adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
 
 *Published on: Tue, 16 Jul 2024 05:40:45 GMT*
-
-
-## Brad Pitt
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
 
 
 ## Beyoncé
@@ -10115,15 +9449,6 @@ adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is b
 *Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
-## Beyoncé
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
-
-
 ## Bia
 
 ## [When In Doubt, Chuck It](https://www.highsnobiety.com/p/converse-chucks-comeback/)
@@ -10248,15 +9573,6 @@ It's time to talk about The Bear—the show that sneaked into our lives, made us
 adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
 
 *Published on: Tue, 16 Jul 2024 05:40:45 GMT*
-
-
-## Bia
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
 
 
 ## Avantika
@@ -10385,15 +9701,6 @@ adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is b
 *Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
-## Avantika
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
-
-
 ## Bernie Sanders
 
 ## [When In Doubt, Chuck It](https://www.highsnobiety.com/p/converse-chucks-comeback/)
@@ -10518,15 +9825,6 @@ It's time to talk about The Bear—the show that sneaked into our lives, made us
 adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
 
 *Published on: Tue, 16 Jul 2024 05:40:45 GMT*
-
-
-## Bernie Sanders
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
 
 
 ## Big Sean
@@ -10655,15 +9953,6 @@ adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is b
 *Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
-## Big Sean
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
-
-
 ## BlockBoy JB
 
 ## [When In Doubt, Chuck It](https://www.highsnobiety.com/p/converse-chucks-comeback/)
@@ -10788,15 +10077,6 @@ It's time to talk about The Bear—the show that sneaked into our lives, made us
 adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
 
 *Published on: Tue, 16 Jul 2024 05:40:45 GMT*
-
-
-## BlockBoy JB
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
 
 
 ## Biden
@@ -10925,15 +10205,6 @@ adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is b
 *Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
-## Biden
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
-
-
 ## Bieber
 
 ## [When In Doubt, Chuck It](https://www.highsnobiety.com/p/converse-chucks-comeback/)
@@ -11058,15 +10329,6 @@ It's time to talk about The Bear—the show that sneaked into our lives, made us
 adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
 
 *Published on: Tue, 16 Jul 2024 05:40:45 GMT*
-
-
-## Bieber
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
 
 
 ## Paulina Porizkov
@@ -11195,15 +10457,6 @@ adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is b
 *Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
-## Paulina Porizkov
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
-
-
 ## Paris Hilton
 
 ## [When In Doubt, Chuck It](https://www.highsnobiety.com/p/converse-chucks-comeback/)
@@ -11328,15 +10581,6 @@ It's time to talk about The Bear—the show that sneaked into our lives, made us
 adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
 
 *Published on: Tue, 16 Jul 2024 05:40:45 GMT*
-
-
-## Paris Hilton
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
 
 
 ## Metro Boomin
@@ -11465,15 +10709,6 @@ adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is b
 *Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
-## Metro Boomin
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
-
-
 ## Meghan Markle
 
 ## [When In Doubt, Chuck It](https://www.highsnobiety.com/p/converse-chucks-comeback/)
@@ -11598,15 +10833,6 @@ It's time to talk about The Bear—the show that sneaked into our lives, made us
 adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
 
 *Published on: Tue, 16 Jul 2024 05:40:45 GMT*
-
-
-## Meghan Markle
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
 
 
 ## Megan Thee Stallion
@@ -11735,15 +10961,6 @@ adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is b
 *Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
-## Megan Thee Stallion
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
-
-
 ## Maya Rudolph
 
 ## [When In Doubt, Chuck It](https://www.highsnobiety.com/p/converse-chucks-comeback/)
@@ -11868,15 +11085,6 @@ It's time to talk about The Bear—the show that sneaked into our lives, made us
 adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
 
 *Published on: Tue, 16 Jul 2024 05:40:45 GMT*
-
-
-## Maya Rudolph
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
 
 
 ## Olivia Rodrigo
@@ -12005,15 +11213,6 @@ adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is b
 *Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
-## Olivia Rodrigo
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
-
-
 ## Obama
 
 ## [When In Doubt, Chuck It](https://www.highsnobiety.com/p/converse-chucks-comeback/)
@@ -12138,15 +11337,6 @@ It's time to talk about The Bear—the show that sneaked into our lives, made us
 adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
 
 *Published on: Tue, 16 Jul 2024 05:40:45 GMT*
-
-
-## Obama
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
 
 
 ## Nicki Minaj
@@ -12275,15 +11465,6 @@ adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is b
 *Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
-## Nicki Minaj
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
-
-
 ## MrBeast
 
 ## [When In Doubt, Chuck It](https://www.highsnobiety.com/p/converse-chucks-comeback/)
@@ -12408,14 +11589,5 @@ It's time to talk about The Bear—the show that sneaked into our lives, made us
 adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
 
 *Published on: Tue, 16 Jul 2024 05:40:45 GMT*
-
-
-## MrBeast
-
-## [adidas' Timeless Slide Sandal Is Now Bigger ( Softer) Than Ever](https://www.highsnobiety.com/p/adidas-adilette-24-slide-sandal-2024/)
-
-Pool-side chilling just got extra cozy for adidas fans, especially those with a particular taste for the brand's timeless Adilette slide sandals.After putting …
-
-*Published on: Mon, 15 Jul 2024 21:11:51 GMT*
 
 
