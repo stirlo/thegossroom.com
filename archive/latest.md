@@ -116,15 +116,6 @@ It's time to talk about The Bear—the show that sneaked into our lives, made us
 *Published on: Tue, 16 Jul 2024 10:18:00 GMT*
 
 
-## Tim Cook
-
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
-
-
 ## Taylor Swift
 
 ## [When In Doubt, Chuck It](https://www.highsnobiety.com/p/converse-chucks-comeback/)
@@ -240,15 +231,6 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
 
 *Published on: Tue, 16 Jul 2024 10:18:00 GMT*
-
-
-## Taylor Swift
-
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
 ## Tom Brady
@@ -368,15 +350,6 @@ It's time to talk about The Bear—the show that sneaked into our lives, made us
 *Published on: Tue, 16 Jul 2024 10:18:00 GMT*
 
 
-## Tom Brady
-
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
-
-
 ## Tina Fey
 
 ## [When In Doubt, Chuck It](https://www.highsnobiety.com/p/converse-chucks-comeback/)
@@ -492,15 +465,6 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
 
 *Published on: Tue, 16 Jul 2024 10:18:00 GMT*
-
-
-## Tina Fey
-
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
 ## Steven Yuen
@@ -620,15 +584,6 @@ It's time to talk about The Bear—the show that sneaked into our lives, made us
 *Published on: Tue, 16 Jul 2024 10:18:00 GMT*
 
 
-## Steven Yuen
-
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
-
-
 ## Sommer Ray
 
 ## [When In Doubt, Chuck It](https://www.highsnobiety.com/p/converse-chucks-comeback/)
@@ -744,15 +699,6 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
 
 *Published on: Tue, 16 Jul 2024 10:18:00 GMT*
-
-
-## Sommer Ray
-
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
 ## Sza
@@ -872,15 +818,6 @@ It's time to talk about The Bear—the show that sneaked into our lives, made us
 *Published on: Tue, 16 Jul 2024 10:18:00 GMT*
 
 
-## Sza
-
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
-
-
 ## Sydney Sweeney
 
 ## [When In Doubt, Chuck It](https://www.highsnobiety.com/p/converse-chucks-comeback/)
@@ -996,15 +933,6 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
 
 *Published on: Tue, 16 Jul 2024 10:18:00 GMT*
-
-
-## Sydney Sweeney
-
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
 ## Walton Goggins
@@ -1124,15 +1052,6 @@ It's time to talk about The Bear—the show that sneaked into our lives, made us
 *Published on: Tue, 16 Jul 2024 10:18:00 GMT*
 
 
-## Walton Goggins
-
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
-
-
 ## Tom Holland
 
 ## [When In Doubt, Chuck It](https://www.highsnobiety.com/p/converse-chucks-comeback/)
@@ -1248,15 +1167,6 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
 
 *Published on: Tue, 16 Jul 2024 10:18:00 GMT*
-
-
-## Tom Holland
-
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
 ## Gucci Mane
@@ -1376,15 +1286,6 @@ It's time to talk about The Bear—the show that sneaked into our lives, made us
 *Published on: Tue, 16 Jul 2024 10:18:00 GMT*
 
 
-## Gucci Mane
-
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
-
-
 ## Harry Styles
 
 ## [When In Doubt, Chuck It](https://www.highsnobiety.com/p/converse-chucks-comeback/)
@@ -1500,15 +1401,6 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
 
 *Published on: Tue, 16 Jul 2024 10:18:00 GMT*
-
-
-## Harry Styles
-
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
 ## Jake Paul
@@ -1628,15 +1520,6 @@ It's time to talk about The Bear—the show that sneaked into our lives, made us
 *Published on: Tue, 16 Jul 2024 10:18:00 GMT*
 
 
-## Jake Paul
-
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
-
-
 ## Jameela Jamil
 
 ## [When In Doubt, Chuck It](https://www.highsnobiety.com/p/converse-chucks-comeback/)
@@ -1752,15 +1635,6 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
 
 *Published on: Tue, 16 Jul 2024 10:18:00 GMT*
-
-
-## Jameela Jamil
-
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
 ## Elon Musk
@@ -1880,15 +1754,6 @@ It's time to talk about The Bear—the show that sneaked into our lives, made us
 *Published on: Tue, 16 Jul 2024 10:18:00 GMT*
 
 
-## Elon Musk
-
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
-
-
 ## Gabrielle Union
 
 ## [When In Doubt, Chuck It](https://www.highsnobiety.com/p/converse-chucks-comeback/)
@@ -2004,15 +1869,6 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
 
 *Published on: Tue, 16 Jul 2024 10:18:00 GMT*
-
-
-## Gabrielle Union
-
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
 ## Giancarlo Esposito
@@ -2132,15 +1988,6 @@ It's time to talk about The Bear—the show that sneaked into our lives, made us
 *Published on: Tue, 16 Jul 2024 10:18:00 GMT*
 
 
-## Giancarlo Esposito
-
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
-
-
 ## Gillian Jacobs
 
 ## [When In Doubt, Chuck It](https://www.highsnobiety.com/p/converse-chucks-comeback/)
@@ -2256,15 +2103,6 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
 
 *Published on: Tue, 16 Jul 2024 10:18:00 GMT*
-
-
-## Gillian Jacobs
-
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
 ## Jason Mantzoukas
@@ -2384,15 +2222,6 @@ It's time to talk about The Bear—the show that sneaked into our lives, made us
 *Published on: Tue, 16 Jul 2024 10:18:00 GMT*
 
 
-## Jason Mantzoukas
-
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
-
-
 ## JB Smoove
 
 ## [When In Doubt, Chuck It](https://www.highsnobiety.com/p/converse-chucks-comeback/)
@@ -2508,15 +2337,6 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
 
 *Published on: Tue, 16 Jul 2024 10:18:00 GMT*
-
-
-## JB Smoove
-
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
 ## Madison Pettis
@@ -2636,15 +2456,6 @@ It's time to talk about The Bear—the show that sneaked into our lives, made us
 *Published on: Tue, 16 Jul 2024 10:18:00 GMT*
 
 
-## Madison Pettis
-
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
-
-
 ## Austin Butler
 
 ## [When In Doubt, Chuck It](https://www.highsnobiety.com/p/converse-chucks-comeback/)
@@ -2760,15 +2571,6 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
 
 *Published on: Tue, 16 Jul 2024 10:18:00 GMT*
-
-
-## Austin Butler
-
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
 ## Mark Zuckerberg
@@ -2888,15 +2690,6 @@ It's time to talk about The Bear—the show that sneaked into our lives, made us
 *Published on: Tue, 16 Jul 2024 10:18:00 GMT*
 
 
-## Mark Zuckerberg
-
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
-
-
 ## Ariana Grande
 
 ## [When In Doubt, Chuck It](https://www.highsnobiety.com/p/converse-chucks-comeback/)
@@ -3012,15 +2805,6 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
 
 *Published on: Tue, 16 Jul 2024 10:18:00 GMT*
-
-
-## Ariana Grande
-
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
 ## Livvy Dunne
@@ -3140,15 +2924,6 @@ It's time to talk about The Bear—the show that sneaked into our lives, made us
 *Published on: Tue, 16 Jul 2024 10:18:00 GMT*
 
 
-## Livvy Dunne
-
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
-
-
 ## Ali Wong
 
 ## [When In Doubt, Chuck It](https://www.highsnobiety.com/p/converse-chucks-comeback/)
@@ -3264,15 +3039,6 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
 
 *Published on: Tue, 16 Jul 2024 10:18:00 GMT*
-
-
-## Ali Wong
-
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
 ## Lizzo
@@ -3392,15 +3158,6 @@ It's time to talk about The Bear—the show that sneaked into our lives, made us
 *Published on: Tue, 16 Jul 2024 10:18:00 GMT*
 
 
-## Lizzo
-
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
-
-
 ## Alison Brie
 
 ## [When In Doubt, Chuck It](https://www.highsnobiety.com/p/converse-chucks-comeback/)
@@ -3516,15 +3273,6 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
 
 *Published on: Tue, 16 Jul 2024 10:18:00 GMT*
-
-
-## Alison Brie
-
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
 ## Lil Wayne
@@ -3644,15 +3392,6 @@ It's time to talk about The Bear—the show that sneaked into our lives, made us
 *Published on: Tue, 16 Jul 2024 10:18:00 GMT*
 
 
-## Lil Wayne
-
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
-
-
 ## Adele
 
 ## [When In Doubt, Chuck It](https://www.highsnobiety.com/p/converse-chucks-comeback/)
@@ -3768,15 +3507,6 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
 
 *Published on: Tue, 16 Jul 2024 10:18:00 GMT*
-
-
-## Adele
-
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
 ## Lindsay Lohan
@@ -3896,15 +3626,6 @@ It's time to talk about The Bear—the show that sneaked into our lives, made us
 *Published on: Tue, 16 Jul 2024 10:18:00 GMT*
 
 
-## Lindsay Lohan
-
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
-
-
 ## Addison Rae
 
 ## [When In Doubt, Chuck It](https://www.highsnobiety.com/p/converse-chucks-comeback/)
@@ -4020,15 +3741,6 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
 
 *Published on: Tue, 16 Jul 2024 10:18:00 GMT*
-
-
-## Addison Rae
-
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
 ## Latto
@@ -4148,15 +3860,6 @@ It's time to talk about The Bear—the show that sneaked into our lives, made us
 *Published on: Tue, 16 Jul 2024 10:18:00 GMT*
 
 
-## Latto
-
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
-
-
 ## Aaron Paul
 
 ## [When In Doubt, Chuck It](https://www.highsnobiety.com/p/converse-chucks-comeback/)
@@ -4272,15 +3975,6 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
 
 *Published on: Tue, 16 Jul 2024 10:18:00 GMT*
-
-
-## Aaron Paul
-
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
 ## LeBron James
@@ -4400,15 +4094,6 @@ It's time to talk about The Bear—the show that sneaked into our lives, made us
 *Published on: Tue, 16 Jul 2024 10:18:00 GMT*
 
 
-## LeBron James
-
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
-
-
 ## 50 Cent
 
 ## [When In Doubt, Chuck It](https://www.highsnobiety.com/p/converse-chucks-comeback/)
@@ -4524,15 +4209,6 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
 
 *Published on: Tue, 16 Jul 2024 10:18:00 GMT*
-
-
-## 50 Cent
-
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
 ## Kesha
@@ -4652,15 +4328,6 @@ It's time to talk about The Bear—the show that sneaked into our lives, made us
 *Published on: Tue, 16 Jul 2024 10:18:00 GMT*
 
 
-## Kesha
-
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
-
-
 ## 21 Savage
 
 ## [When In Doubt, Chuck It](https://www.highsnobiety.com/p/converse-chucks-comeback/)
@@ -4776,15 +4443,6 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
 
 *Published on: Tue, 16 Jul 2024 10:18:00 GMT*
-
-
-## 21 Savage
-
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
 ## Larry David
@@ -4904,15 +4562,6 @@ It's time to talk about The Bear—the show that sneaked into our lives, made us
 *Published on: Tue, 16 Jul 2024 10:18:00 GMT*
 
 
-## Larry David
-
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
-
-
 ## Seth Rogan
 
 ## [When In Doubt, Chuck It](https://www.highsnobiety.com/p/converse-chucks-comeback/)
@@ -5028,15 +4677,6 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
 
 *Published on: Tue, 16 Jul 2024 10:18:00 GMT*
-
-
-## Seth Rogan
-
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
 ## Simone Biles
@@ -5156,15 +4796,6 @@ It's time to talk about The Bear—the show that sneaked into our lives, made us
 *Published on: Tue, 16 Jul 2024 10:18:00 GMT*
 
 
-## Simone Biles
-
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
-
-
 ## Pete Davidson
 
 ## [When In Doubt, Chuck It](https://www.highsnobiety.com/p/converse-chucks-comeback/)
@@ -5280,15 +4911,6 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
 
 *Published on: Tue, 16 Jul 2024 10:18:00 GMT*
-
-
-## Pete Davidson
-
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
 ## Prince Harry
@@ -5408,15 +5030,6 @@ It's time to talk about The Bear—the show that sneaked into our lives, made us
 *Published on: Tue, 16 Jul 2024 10:18:00 GMT*
 
 
-## Prince Harry
-
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
-
-
 ## Princess of Wales
 
 ## [When In Doubt, Chuck It](https://www.highsnobiety.com/p/converse-chucks-comeback/)
@@ -5532,15 +5145,6 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
 
 *Published on: Tue, 16 Jul 2024 10:18:00 GMT*
-
-
-## Princess of Wales
-
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
 ## Rachel McAdams
@@ -5660,15 +5264,6 @@ It's time to talk about The Bear—the show that sneaked into our lives, made us
 *Published on: Tue, 16 Jul 2024 10:18:00 GMT*
 
 
-## Rachel McAdams
-
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
-
-
 ## Reneé Rapp
 
 ## [When In Doubt, Chuck It](https://www.highsnobiety.com/p/converse-chucks-comeback/)
@@ -5784,15 +5379,6 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
 
 *Published on: Tue, 16 Jul 2024 10:18:00 GMT*
-
-
-## Reneé Rapp
-
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
 ## Rick Ross
@@ -5912,15 +5498,6 @@ It's time to talk about The Bear—the show that sneaked into our lives, made us
 *Published on: Tue, 16 Jul 2024 10:18:00 GMT*
 
 
-## Rick Ross
-
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
-
-
 ## Sam Ashgari
 
 ## [When In Doubt, Chuck It](https://www.highsnobiety.com/p/converse-chucks-comeback/)
@@ -6036,15 +5613,6 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
 
 *Published on: Tue, 16 Jul 2024 10:18:00 GMT*
-
-
-## Sam Ashgari
-
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
 ## Sandra Oh
@@ -6164,15 +5732,6 @@ It's time to talk about The Bear—the show that sneaked into our lives, made us
 *Published on: Tue, 16 Jul 2024 10:18:00 GMT*
 
 
-## Sandra Oh
-
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
-
-
 ## Donald Trump
 
 ## [When In Doubt, Chuck It](https://www.highsnobiety.com/p/converse-chucks-comeback/)
@@ -6288,15 +5847,6 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
 
 *Published on: Tue, 16 Jul 2024 10:18:00 GMT*
-
-
-## Donald Trump
-
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
 ## Diddy
@@ -6416,15 +5966,6 @@ It's time to talk about The Bear—the show that sneaked into our lives, made us
 *Published on: Tue, 16 Jul 2024 10:18:00 GMT*
 
 
-## Diddy
-
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
-
-
 ## City Girls
 
 ## [When In Doubt, Chuck It](https://www.highsnobiety.com/p/converse-chucks-comeback/)
@@ -6540,15 +6081,6 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
 
 *Published on: Tue, 16 Jul 2024 10:18:00 GMT*
-
-
-## City Girls
-
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
 ## Chloe Bailey
@@ -6668,15 +6200,6 @@ It's time to talk about The Bear—the show that sneaked into our lives, made us
 *Published on: Tue, 16 Jul 2024 10:18:00 GMT*
 
 
-## Chloe Bailey
-
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
-
-
 ## Charli D Amelio
 
 ## [When In Doubt, Chuck It](https://www.highsnobiety.com/p/converse-chucks-comeback/)
@@ -6792,15 +6315,6 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
 
 *Published on: Tue, 16 Jul 2024 10:18:00 GMT*
-
-
-## Charli D Amelio
-
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
 ## Cardi B
@@ -6920,15 +6434,6 @@ It's time to talk about The Bear—the show that sneaked into our lives, made us
 *Published on: Tue, 16 Jul 2024 10:18:00 GMT*
 
 
-## Cardi B
-
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
-
-
 ## Bryan Cranston
 
 ## [When In Doubt, Chuck It](https://www.highsnobiety.com/p/converse-chucks-comeback/)
@@ -7044,15 +6549,6 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
 
 *Published on: Tue, 16 Jul 2024 10:18:00 GMT*
-
-
-## Bryan Cranston
-
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
 ## Brielle Biermann
@@ -7172,15 +6668,6 @@ It's time to talk about The Bear—the show that sneaked into our lives, made us
 *Published on: Tue, 16 Jul 2024 10:18:00 GMT*
 
 
-## Brielle Biermann
-
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
-
-
 ## Dua Lipa
 
 ## [When In Doubt, Chuck It](https://www.highsnobiety.com/p/converse-chucks-comeback/)
@@ -7296,15 +6783,6 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
 
 *Published on: Tue, 16 Jul 2024 10:18:00 GMT*
-
-
-## Dua Lipa
-
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
 ## Drake
@@ -7424,15 +6902,6 @@ It's time to talk about The Bear—the show that sneaked into our lives, made us
 *Published on: Tue, 16 Jul 2024 10:18:00 GMT*
 
 
-## Drake
-
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
-
-
 ## Jenner
 
 ## [When In Doubt, Chuck It](https://www.highsnobiety.com/p/converse-chucks-comeback/)
@@ -7548,15 +7017,6 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
 
 *Published on: Tue, 16 Jul 2024 10:18:00 GMT*
-
-
-## Jenner
-
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
 ## J. Cole
@@ -7676,15 +7136,6 @@ It's time to talk about The Bear—the show that sneaked into our lives, made us
 *Published on: Tue, 16 Jul 2024 10:18:00 GMT*
 
 
-## J. Cole
-
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
-
-
 ## Jerrod Carmichael
 
 ## [When In Doubt, Chuck It](https://www.highsnobiety.com/p/converse-chucks-comeback/)
@@ -7800,15 +7251,6 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
 
 *Published on: Tue, 16 Jul 2024 10:18:00 GMT*
-
-
-## Jerrod Carmichael
-
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
 ## Jennifer Lawrence
@@ -7928,15 +7370,6 @@ It's time to talk about The Bear—the show that sneaked into our lives, made us
 *Published on: Tue, 16 Jul 2024 10:18:00 GMT*
 
 
-## Jennifer Lawrence
-
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
-
-
 ## Joe Biden
 
 ## [When In Doubt, Chuck It](https://www.highsnobiety.com/p/converse-chucks-comeback/)
@@ -8052,15 +7485,6 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
 
 *Published on: Tue, 16 Jul 2024 10:18:00 GMT*
-
-
-## Joe Biden
-
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
 ## J.K. Simmons
@@ -8180,15 +7604,6 @@ It's time to talk about The Bear—the show that sneaked into our lives, made us
 *Published on: Tue, 16 Jul 2024 10:18:00 GMT*
 
 
-## J.K. Simmons
-
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
-
-
 ## Kamala Harris
 
 ## [When In Doubt, Chuck It](https://www.highsnobiety.com/p/converse-chucks-comeback/)
@@ -8304,15 +7719,6 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
 
 *Published on: Tue, 16 Jul 2024 10:18:00 GMT*
-
-
-## Kamala Harris
-
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
 ## John C Reilly
@@ -8432,15 +7838,6 @@ It's time to talk about The Bear—the show that sneaked into our lives, made us
 *Published on: Tue, 16 Jul 2024 10:18:00 GMT*
 
 
-## John C Reilly
-
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
-
-
 ## Kardashian
 
 ## [When In Doubt, Chuck It](https://www.highsnobiety.com/p/converse-chucks-comeback/)
@@ -8556,15 +7953,6 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
 
 *Published on: Tue, 16 Jul 2024 10:18:00 GMT*
-
-
-## Kardashian
-
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
 ## Kanye
@@ -8684,15 +8072,6 @@ It's time to talk about The Bear—the show that sneaked into our lives, made us
 *Published on: Tue, 16 Jul 2024 10:18:00 GMT*
 
 
-## Kanye
-
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
-
-
 ## Zendaya
 
 ## [When In Doubt, Chuck It](https://www.highsnobiety.com/p/converse-chucks-comeback/)
@@ -8808,15 +8187,6 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
 
 *Published on: Tue, 16 Jul 2024 10:18:00 GMT*
-
-
-## Zendaya
-
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
 ## Will Ferrell
@@ -8936,15 +8306,6 @@ It's time to talk about The Bear—the show that sneaked into our lives, made us
 *Published on: Tue, 16 Jul 2024 10:18:00 GMT*
 
 
-## Will Ferrell
-
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
-
-
 ## Zazie Beetz
 
 ## [When In Doubt, Chuck It](https://www.highsnobiety.com/p/converse-chucks-comeback/)
@@ -9060,15 +8421,6 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
 
 *Published on: Tue, 16 Jul 2024 10:18:00 GMT*
-
-
-## Zazie Beetz
-
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
 ## Bob Odenkirk
@@ -9188,15 +8540,6 @@ It's time to talk about The Bear—the show that sneaked into our lives, made us
 *Published on: Tue, 16 Jul 2024 10:18:00 GMT*
 
 
-## Bob Odenkirk
-
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
-
-
 ## Brad Pitt
 
 ## [When In Doubt, Chuck It](https://www.highsnobiety.com/p/converse-chucks-comeback/)
@@ -9312,15 +8655,6 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
 
 *Published on: Tue, 16 Jul 2024 10:18:00 GMT*
-
-
-## Brad Pitt
-
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
 ## Beyoncé
@@ -9440,15 +8774,6 @@ It's time to talk about The Bear—the show that sneaked into our lives, made us
 *Published on: Tue, 16 Jul 2024 10:18:00 GMT*
 
 
-## Beyoncé
-
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
-
-
 ## Bia
 
 ## [When In Doubt, Chuck It](https://www.highsnobiety.com/p/converse-chucks-comeback/)
@@ -9564,15 +8889,6 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
 
 *Published on: Tue, 16 Jul 2024 10:18:00 GMT*
-
-
-## Bia
-
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
 ## Avantika
@@ -9692,15 +9008,6 @@ It's time to talk about The Bear—the show that sneaked into our lives, made us
 *Published on: Tue, 16 Jul 2024 10:18:00 GMT*
 
 
-## Avantika
-
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
-
-
 ## Bernie Sanders
 
 ## [When In Doubt, Chuck It](https://www.highsnobiety.com/p/converse-chucks-comeback/)
@@ -9816,15 +9123,6 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
 
 *Published on: Tue, 16 Jul 2024 10:18:00 GMT*
-
-
-## Bernie Sanders
-
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
 ## Big Sean
@@ -9944,15 +9242,6 @@ It's time to talk about The Bear—the show that sneaked into our lives, made us
 *Published on: Tue, 16 Jul 2024 10:18:00 GMT*
 
 
-## Big Sean
-
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
-
-
 ## BlockBoy JB
 
 ## [When In Doubt, Chuck It](https://www.highsnobiety.com/p/converse-chucks-comeback/)
@@ -10068,15 +9357,6 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
 
 *Published on: Tue, 16 Jul 2024 10:18:00 GMT*
-
-
-## BlockBoy JB
-
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
 ## Biden
@@ -10196,15 +9476,6 @@ It's time to talk about The Bear—the show that sneaked into our lives, made us
 *Published on: Tue, 16 Jul 2024 10:18:00 GMT*
 
 
-## Biden
-
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
-
-
 ## Bieber
 
 ## [When In Doubt, Chuck It](https://www.highsnobiety.com/p/converse-chucks-comeback/)
@@ -10320,15 +9591,6 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
 
 *Published on: Tue, 16 Jul 2024 10:18:00 GMT*
-
-
-## Bieber
-
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
 ## Paulina Porizkov
@@ -10448,15 +9710,6 @@ It's time to talk about The Bear—the show that sneaked into our lives, made us
 *Published on: Tue, 16 Jul 2024 10:18:00 GMT*
 
 
-## Paulina Porizkov
-
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
-
-
 ## Paris Hilton
 
 ## [When In Doubt, Chuck It](https://www.highsnobiety.com/p/converse-chucks-comeback/)
@@ -10572,15 +9825,6 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
 
 *Published on: Tue, 16 Jul 2024 10:18:00 GMT*
-
-
-## Paris Hilton
-
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
 ## Metro Boomin
@@ -10700,15 +9944,6 @@ It's time to talk about The Bear—the show that sneaked into our lives, made us
 *Published on: Tue, 16 Jul 2024 10:18:00 GMT*
 
 
-## Metro Boomin
-
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
-
-
 ## Meghan Markle
 
 ## [When In Doubt, Chuck It](https://www.highsnobiety.com/p/converse-chucks-comeback/)
@@ -10824,15 +10059,6 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
 
 *Published on: Tue, 16 Jul 2024 10:18:00 GMT*
-
-
-## Meghan Markle
-
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
 ## Megan Thee Stallion
@@ -10952,15 +10178,6 @@ It's time to talk about The Bear—the show that sneaked into our lives, made us
 *Published on: Tue, 16 Jul 2024 10:18:00 GMT*
 
 
-## Megan Thee Stallion
-
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
-
-
 ## Maya Rudolph
 
 ## [When In Doubt, Chuck It](https://www.highsnobiety.com/p/converse-chucks-comeback/)
@@ -11076,15 +10293,6 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
 
 *Published on: Tue, 16 Jul 2024 10:18:00 GMT*
-
-
-## Maya Rudolph
-
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
 ## Olivia Rodrigo
@@ -11204,15 +10412,6 @@ It's time to talk about The Bear—the show that sneaked into our lives, made us
 *Published on: Tue, 16 Jul 2024 10:18:00 GMT*
 
 
-## Olivia Rodrigo
-
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
-
-
 ## Obama
 
 ## [When In Doubt, Chuck It](https://www.highsnobiety.com/p/converse-chucks-comeback/)
@@ -11328,15 +10527,6 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
 
 *Published on: Tue, 16 Jul 2024 10:18:00 GMT*
-
-
-## Obama
-
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
 ## Nicki Minaj
@@ -11456,15 +10646,6 @@ It's time to talk about The Bear—the show that sneaked into our lives, made us
 *Published on: Tue, 16 Jul 2024 10:18:00 GMT*
 
 
-## Nicki Minaj
-
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
-
-
 ## MrBeast
 
 ## [When In Doubt, Chuck It](https://www.highsnobiety.com/p/converse-chucks-comeback/)
@@ -11580,14 +10761,5 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
 
 *Published on: Tue, 16 Jul 2024 10:18:00 GMT*
-
-
-## MrBeast
-
-## [adidas' Stan Smith Is so Stylish It Even Makes Square Toes Look Good](https://www.highsnobiety.com/p/adidas-clot-stan-smith/)
-
-adidas' Stan Smith is having a moment. Heck, more than a moment: Stan Smith is back, baby. So much so that CLOT is taking adidas' signature tennis shoe to an e…
-
-*Published on: Tue, 16 Jul 2024 05:40:45 GMT*
 
 
