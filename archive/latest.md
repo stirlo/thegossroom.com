@@ -1,60 +1,6 @@
 # Latest Stories
 ## Tim Cook
 
-## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
-
-On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
-
-*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
-
-
-## Tim Cook
-
-## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
-
-In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
-
-*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
-
-
-## Tim Cook
-
-## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
-
-COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
-
-*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
-
-
-## Tim Cook
-
-## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
-
-VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
-
-*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
-
-
-## Tim Cook
-
-## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
-
-Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
-
-*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
-
-
-## Tim Cook
-
-## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
-
-Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
-
-*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
-
-
-## Tim Cook
-
 ## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
 
 Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
@@ -80,58 +26,31 @@ Last week, the Nike Air Max Sunder made its glorious, large-scale return by rere
 *Published on: Thu, 18 Jul 2024 08:51:59 GMT*
 
 
-## Taylor Swift
+## Tim Cook
 
-## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
+## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
-On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
 
-*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
-
-
-## Taylor Swift
-
-## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
-
-In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
-
-*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
+*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
 
 
-## Taylor Swift
+## Tim Cook
 
-## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
 
-COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
 
-*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
-
-
-## Taylor Swift
-
-## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
-
-VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
-
-*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
+*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
 
 
-## Taylor Swift
+## Tim Cook
 
-## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
-
-
-## Taylor Swift
-
-## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
-
-Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
-
-*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
+*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
 
 
 ## Taylor Swift
@@ -161,58 +80,31 @@ Last week, the Nike Air Max Sunder made its glorious, large-scale return by rere
 *Published on: Thu, 18 Jul 2024 08:51:59 GMT*
 
 
-## Tom Brady
+## Taylor Swift
 
-## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
+## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
-On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
 
-*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
-
-
-## Tom Brady
-
-## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
-
-In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
-
-*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
+*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
 
 
-## Tom Brady
+## Taylor Swift
 
-## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
 
-COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
 
-*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
-
-
-## Tom Brady
-
-## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
-
-VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
-
-*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
+*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
 
 
-## Tom Brady
+## Taylor Swift
 
-## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
-
-
-## Tom Brady
-
-## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
-
-Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
-
-*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
+*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
 
 
 ## Tom Brady
@@ -242,58 +134,31 @@ Last week, the Nike Air Max Sunder made its glorious, large-scale return by rere
 *Published on: Thu, 18 Jul 2024 08:51:59 GMT*
 
 
-## Tina Fey
+## Tom Brady
 
-## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
+## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
-On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
 
-*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
-
-
-## Tina Fey
-
-## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
-
-In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
-
-*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
+*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
 
 
-## Tina Fey
+## Tom Brady
 
-## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
 
-COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
 
-*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
-
-
-## Tina Fey
-
-## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
-
-VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
-
-*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
+*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
 
 
-## Tina Fey
+## Tom Brady
 
-## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
-
-
-## Tina Fey
-
-## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
-
-Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
-
-*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
+*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
 
 
 ## Tina Fey
@@ -323,58 +188,31 @@ Last week, the Nike Air Max Sunder made its glorious, large-scale return by rere
 *Published on: Thu, 18 Jul 2024 08:51:59 GMT*
 
 
-## Steven Yuen
+## Tina Fey
 
-## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
+## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
-On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
 
-*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
-
-
-## Steven Yuen
-
-## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
-
-In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
-
-*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
+*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
 
 
-## Steven Yuen
+## Tina Fey
 
-## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
 
-COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
 
-*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
-
-
-## Steven Yuen
-
-## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
-
-VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
-
-*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
+*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
 
 
-## Steven Yuen
+## Tina Fey
 
-## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
-
-
-## Steven Yuen
-
-## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
-
-Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
-
-*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
+*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
 
 
 ## Steven Yuen
@@ -404,58 +242,31 @@ Last week, the Nike Air Max Sunder made its glorious, large-scale return by rere
 *Published on: Thu, 18 Jul 2024 08:51:59 GMT*
 
 
-## Sommer Ray
+## Steven Yuen
 
-## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
+## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
-On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
 
-*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
-
-
-## Sommer Ray
-
-## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
-
-In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
-
-*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
+*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
 
 
-## Sommer Ray
+## Steven Yuen
 
-## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
 
-COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
 
-*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
-
-
-## Sommer Ray
-
-## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
-
-VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
-
-*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
+*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
 
 
-## Sommer Ray
+## Steven Yuen
 
-## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
-
-
-## Sommer Ray
-
-## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
-
-Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
-
-*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
+*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
 
 
 ## Sommer Ray
@@ -485,58 +296,31 @@ Last week, the Nike Air Max Sunder made its glorious, large-scale return by rere
 *Published on: Thu, 18 Jul 2024 08:51:59 GMT*
 
 
-## Sza
+## Sommer Ray
 
-## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
+## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
-On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
 
-*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
-
-
-## Sza
-
-## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
-
-In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
-
-*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
+*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
 
 
-## Sza
+## Sommer Ray
 
-## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
 
-COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
 
-*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
-
-
-## Sza
-
-## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
-
-VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
-
-*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
+*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
 
 
-## Sza
+## Sommer Ray
 
-## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
-
-
-## Sza
-
-## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
-
-Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
-
-*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
+*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
 
 
 ## Sza
@@ -566,58 +350,31 @@ Last week, the Nike Air Max Sunder made its glorious, large-scale return by rere
 *Published on: Thu, 18 Jul 2024 08:51:59 GMT*
 
 
-## Sydney Sweeney
+## Sza
 
-## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
+## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
-On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
 
-*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
-
-
-## Sydney Sweeney
-
-## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
-
-In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
-
-*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
+*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
 
 
-## Sydney Sweeney
+## Sza
 
-## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
 
-COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
 
-*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
-
-
-## Sydney Sweeney
-
-## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
-
-VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
-
-*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
+*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
 
 
-## Sydney Sweeney
+## Sza
 
-## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
-
-
-## Sydney Sweeney
-
-## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
-
-Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
-
-*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
+*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
 
 
 ## Sydney Sweeney
@@ -647,58 +404,31 @@ Last week, the Nike Air Max Sunder made its glorious, large-scale return by rere
 *Published on: Thu, 18 Jul 2024 08:51:59 GMT*
 
 
-## Walton Goggins
+## Sydney Sweeney
 
-## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
+## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
-On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
 
-*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
-
-
-## Walton Goggins
-
-## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
-
-In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
-
-*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
+*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
 
 
-## Walton Goggins
+## Sydney Sweeney
 
-## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
 
-COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
 
-*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
-
-
-## Walton Goggins
-
-## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
-
-VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
-
-*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
+*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
 
 
-## Walton Goggins
+## Sydney Sweeney
 
-## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
-
-
-## Walton Goggins
-
-## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
-
-Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
-
-*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
+*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
 
 
 ## Walton Goggins
@@ -728,58 +458,31 @@ Last week, the Nike Air Max Sunder made its glorious, large-scale return by rere
 *Published on: Thu, 18 Jul 2024 08:51:59 GMT*
 
 
-## Tom Holland
+## Walton Goggins
 
-## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
+## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
-On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
 
-*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
-
-
-## Tom Holland
-
-## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
-
-In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
-
-*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
+*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
 
 
-## Tom Holland
+## Walton Goggins
 
-## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
 
-COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
 
-*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
-
-
-## Tom Holland
-
-## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
-
-VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
-
-*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
+*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
 
 
-## Tom Holland
+## Walton Goggins
 
-## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
-
-
-## Tom Holland
-
-## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
-
-Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
-
-*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
+*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
 
 
 ## Tom Holland
@@ -809,58 +512,31 @@ Last week, the Nike Air Max Sunder made its glorious, large-scale return by rere
 *Published on: Thu, 18 Jul 2024 08:51:59 GMT*
 
 
-## Gucci Mane
+## Tom Holland
 
-## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
+## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
-On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
 
-*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
-
-
-## Gucci Mane
-
-## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
-
-In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
-
-*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
+*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
 
 
-## Gucci Mane
+## Tom Holland
 
-## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
 
-COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
 
-*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
-
-
-## Gucci Mane
-
-## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
-
-VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
-
-*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
+*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
 
 
-## Gucci Mane
+## Tom Holland
 
-## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
-
-
-## Gucci Mane
-
-## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
-
-Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
-
-*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
+*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
 
 
 ## Gucci Mane
@@ -890,58 +566,31 @@ Last week, the Nike Air Max Sunder made its glorious, large-scale return by rere
 *Published on: Thu, 18 Jul 2024 08:51:59 GMT*
 
 
-## Harry Styles
+## Gucci Mane
 
-## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
+## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
-On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
 
-*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
-
-
-## Harry Styles
-
-## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
-
-In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
-
-*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
+*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
 
 
-## Harry Styles
+## Gucci Mane
 
-## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
 
-COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
 
-*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
-
-
-## Harry Styles
-
-## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
-
-VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
-
-*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
+*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
 
 
-## Harry Styles
+## Gucci Mane
 
-## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
-
-
-## Harry Styles
-
-## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
-
-Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
-
-*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
+*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
 
 
 ## Harry Styles
@@ -971,58 +620,31 @@ Last week, the Nike Air Max Sunder made its glorious, large-scale return by rere
 *Published on: Thu, 18 Jul 2024 08:51:59 GMT*
 
 
-## Jake Paul
+## Harry Styles
 
-## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
+## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
-On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
 
-*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
-
-
-## Jake Paul
-
-## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
-
-In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
-
-*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
+*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
 
 
-## Jake Paul
+## Harry Styles
 
-## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
 
-COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
 
-*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
-
-
-## Jake Paul
-
-## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
-
-VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
-
-*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
+*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
 
 
-## Jake Paul
+## Harry Styles
 
-## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
-
-
-## Jake Paul
-
-## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
-
-Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
-
-*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
+*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
 
 
 ## Jake Paul
@@ -1052,58 +674,31 @@ Last week, the Nike Air Max Sunder made its glorious, large-scale return by rere
 *Published on: Thu, 18 Jul 2024 08:51:59 GMT*
 
 
-## Jameela Jamil
+## Jake Paul
 
-## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
+## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
-On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
 
-*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
-
-
-## Jameela Jamil
-
-## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
-
-In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
-
-*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
+*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
 
 
-## Jameela Jamil
+## Jake Paul
 
-## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
 
-COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
 
-*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
-
-
-## Jameela Jamil
-
-## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
-
-VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
-
-*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
+*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
 
 
-## Jameela Jamil
+## Jake Paul
 
-## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
-
-
-## Jameela Jamil
-
-## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
-
-Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
-
-*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
+*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
 
 
 ## Jameela Jamil
@@ -1133,58 +728,31 @@ Last week, the Nike Air Max Sunder made its glorious, large-scale return by rere
 *Published on: Thu, 18 Jul 2024 08:51:59 GMT*
 
 
-## Elon Musk
+## Jameela Jamil
 
-## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
+## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
-On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
 
-*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
-
-
-## Elon Musk
-
-## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
-
-In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
-
-*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
+*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
 
 
-## Elon Musk
+## Jameela Jamil
 
-## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
 
-COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
 
-*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
-
-
-## Elon Musk
-
-## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
-
-VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
-
-*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
+*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
 
 
-## Elon Musk
+## Jameela Jamil
 
-## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
-
-
-## Elon Musk
-
-## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
-
-Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
-
-*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
+*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
 
 
 ## Elon Musk
@@ -1214,58 +782,31 @@ Last week, the Nike Air Max Sunder made its glorious, large-scale return by rere
 *Published on: Thu, 18 Jul 2024 08:51:59 GMT*
 
 
-## Gabrielle Union
+## Elon Musk
 
-## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
+## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
-On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
 
-*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
-
-
-## Gabrielle Union
-
-## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
-
-In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
-
-*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
+*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
 
 
-## Gabrielle Union
+## Elon Musk
 
-## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
 
-COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
 
-*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
-
-
-## Gabrielle Union
-
-## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
-
-VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
-
-*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
+*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
 
 
-## Gabrielle Union
+## Elon Musk
 
-## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
-
-
-## Gabrielle Union
-
-## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
-
-Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
-
-*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
+*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
 
 
 ## Gabrielle Union
@@ -1295,58 +836,31 @@ Last week, the Nike Air Max Sunder made its glorious, large-scale return by rere
 *Published on: Thu, 18 Jul 2024 08:51:59 GMT*
 
 
-## Giancarlo Esposito
+## Gabrielle Union
 
-## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
+## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
-On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
 
-*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
-
-
-## Giancarlo Esposito
-
-## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
-
-In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
-
-*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
+*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
 
 
-## Giancarlo Esposito
+## Gabrielle Union
 
-## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
 
-COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
 
-*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
-
-
-## Giancarlo Esposito
-
-## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
-
-VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
-
-*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
+*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
 
 
-## Giancarlo Esposito
+## Gabrielle Union
 
-## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
-
-
-## Giancarlo Esposito
-
-## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
-
-Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
-
-*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
+*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
 
 
 ## Giancarlo Esposito
@@ -1376,58 +890,31 @@ Last week, the Nike Air Max Sunder made its glorious, large-scale return by rere
 *Published on: Thu, 18 Jul 2024 08:51:59 GMT*
 
 
-## Gillian Jacobs
+## Giancarlo Esposito
 
-## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
+## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
-On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
 
-*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
-
-
-## Gillian Jacobs
-
-## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
-
-In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
-
-*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
+*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
 
 
-## Gillian Jacobs
+## Giancarlo Esposito
 
-## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
 
-COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
 
-*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
-
-
-## Gillian Jacobs
-
-## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
-
-VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
-
-*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
+*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
 
 
-## Gillian Jacobs
+## Giancarlo Esposito
 
-## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
-
-
-## Gillian Jacobs
-
-## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
-
-Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
-
-*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
+*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
 
 
 ## Gillian Jacobs
@@ -1457,58 +944,31 @@ Last week, the Nike Air Max Sunder made its glorious, large-scale return by rere
 *Published on: Thu, 18 Jul 2024 08:51:59 GMT*
 
 
-## Jason Mantzoukas
+## Gillian Jacobs
 
-## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
+## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
-On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
 
-*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
-
-
-## Jason Mantzoukas
-
-## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
-
-In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
-
-*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
+*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
 
 
-## Jason Mantzoukas
+## Gillian Jacobs
 
-## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
 
-COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
 
-*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
-
-
-## Jason Mantzoukas
-
-## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
-
-VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
-
-*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
+*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
 
 
-## Jason Mantzoukas
+## Gillian Jacobs
 
-## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
-
-
-## Jason Mantzoukas
-
-## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
-
-Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
-
-*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
+*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
 
 
 ## Jason Mantzoukas
@@ -1538,58 +998,31 @@ Last week, the Nike Air Max Sunder made its glorious, large-scale return by rere
 *Published on: Thu, 18 Jul 2024 08:51:59 GMT*
 
 
-## JB Smoove
+## Jason Mantzoukas
 
-## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
+## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
-On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
 
-*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
-
-
-## JB Smoove
-
-## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
-
-In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
-
-*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
+*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
 
 
-## JB Smoove
+## Jason Mantzoukas
 
-## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
 
-COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
 
-*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
-
-
-## JB Smoove
-
-## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
-
-VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
-
-*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
+*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
 
 
-## JB Smoove
+## Jason Mantzoukas
 
-## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
-
-
-## JB Smoove
-
-## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
-
-Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
-
-*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
+*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
 
 
 ## JB Smoove
@@ -1619,58 +1052,31 @@ Last week, the Nike Air Max Sunder made its glorious, large-scale return by rere
 *Published on: Thu, 18 Jul 2024 08:51:59 GMT*
 
 
-## Madison Pettis
+## JB Smoove
 
-## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
+## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
-On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
 
-*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
-
-
-## Madison Pettis
-
-## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
-
-In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
-
-*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
+*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
 
 
-## Madison Pettis
+## JB Smoove
 
-## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
 
-COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
 
-*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
-
-
-## Madison Pettis
-
-## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
-
-VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
-
-*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
+*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
 
 
-## Madison Pettis
+## JB Smoove
 
-## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
-
-
-## Madison Pettis
-
-## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
-
-Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
-
-*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
+*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
 
 
 ## Madison Pettis
@@ -1700,58 +1106,31 @@ Last week, the Nike Air Max Sunder made its glorious, large-scale return by rere
 *Published on: Thu, 18 Jul 2024 08:51:59 GMT*
 
 
-## Austin Butler
+## Madison Pettis
 
-## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
+## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
-On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
 
-*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
-
-
-## Austin Butler
-
-## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
-
-In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
-
-*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
+*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
 
 
-## Austin Butler
+## Madison Pettis
 
-## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
 
-COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
 
-*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
-
-
-## Austin Butler
-
-## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
-
-VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
-
-*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
+*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
 
 
-## Austin Butler
+## Madison Pettis
 
-## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
-
-
-## Austin Butler
-
-## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
-
-Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
-
-*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
+*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
 
 
 ## Austin Butler
@@ -1781,58 +1160,31 @@ Last week, the Nike Air Max Sunder made its glorious, large-scale return by rere
 *Published on: Thu, 18 Jul 2024 08:51:59 GMT*
 
 
-## Mark Zuckerberg
+## Austin Butler
 
-## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
+## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
-On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
 
-*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
-
-
-## Mark Zuckerberg
-
-## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
-
-In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
-
-*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
+*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
 
 
-## Mark Zuckerberg
+## Austin Butler
 
-## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
 
-COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
 
-*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
-
-
-## Mark Zuckerberg
-
-## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
-
-VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
-
-*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
+*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
 
 
-## Mark Zuckerberg
+## Austin Butler
 
-## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
-
-
-## Mark Zuckerberg
-
-## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
-
-Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
-
-*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
+*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
 
 
 ## Mark Zuckerberg
@@ -1862,58 +1214,31 @@ Last week, the Nike Air Max Sunder made its glorious, large-scale return by rere
 *Published on: Thu, 18 Jul 2024 08:51:59 GMT*
 
 
-## Ariana Grande
+## Mark Zuckerberg
 
-## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
+## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
-On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
 
-*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
-
-
-## Ariana Grande
-
-## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
-
-In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
-
-*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
+*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
 
 
-## Ariana Grande
+## Mark Zuckerberg
 
-## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
 
-COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
 
-*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
-
-
-## Ariana Grande
-
-## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
-
-VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
-
-*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
+*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
 
 
-## Ariana Grande
+## Mark Zuckerberg
 
-## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
-
-
-## Ariana Grande
-
-## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
-
-Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
-
-*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
+*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
 
 
 ## Ariana Grande
@@ -1943,58 +1268,31 @@ Last week, the Nike Air Max Sunder made its glorious, large-scale return by rere
 *Published on: Thu, 18 Jul 2024 08:51:59 GMT*
 
 
-## Livvy Dunne
+## Ariana Grande
 
-## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
+## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
-On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
 
-*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
-
-
-## Livvy Dunne
-
-## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
-
-In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
-
-*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
+*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
 
 
-## Livvy Dunne
+## Ariana Grande
 
-## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
 
-COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
 
-*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
-
-
-## Livvy Dunne
-
-## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
-
-VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
-
-*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
+*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
 
 
-## Livvy Dunne
+## Ariana Grande
 
-## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
-
-
-## Livvy Dunne
-
-## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
-
-Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
-
-*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
+*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
 
 
 ## Livvy Dunne
@@ -2024,58 +1322,31 @@ Last week, the Nike Air Max Sunder made its glorious, large-scale return by rere
 *Published on: Thu, 18 Jul 2024 08:51:59 GMT*
 
 
-## Ali Wong
+## Livvy Dunne
 
-## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
+## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
-On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
 
-*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
-
-
-## Ali Wong
-
-## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
-
-In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
-
-*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
+*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
 
 
-## Ali Wong
+## Livvy Dunne
 
-## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
 
-COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
 
-*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
-
-
-## Ali Wong
-
-## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
-
-VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
-
-*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
+*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
 
 
-## Ali Wong
+## Livvy Dunne
 
-## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
-
-
-## Ali Wong
-
-## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
-
-Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
-
-*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
+*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
 
 
 ## Ali Wong
@@ -2105,58 +1376,31 @@ Last week, the Nike Air Max Sunder made its glorious, large-scale return by rere
 *Published on: Thu, 18 Jul 2024 08:51:59 GMT*
 
 
-## Lizzo
+## Ali Wong
 
-## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
+## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
-On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
 
-*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
-
-
-## Lizzo
-
-## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
-
-In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
-
-*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
+*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
 
 
-## Lizzo
+## Ali Wong
 
-## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
 
-COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
 
-*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
-
-
-## Lizzo
-
-## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
-
-VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
-
-*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
+*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
 
 
-## Lizzo
+## Ali Wong
 
-## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
-
-
-## Lizzo
-
-## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
-
-Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
-
-*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
+*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
 
 
 ## Lizzo
@@ -2186,58 +1430,31 @@ Last week, the Nike Air Max Sunder made its glorious, large-scale return by rere
 *Published on: Thu, 18 Jul 2024 08:51:59 GMT*
 
 
-## Alison Brie
+## Lizzo
 
-## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
+## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
-On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
 
-*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
-
-
-## Alison Brie
-
-## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
-
-In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
-
-*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
+*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
 
 
-## Alison Brie
+## Lizzo
 
-## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
 
-COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
 
-*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
-
-
-## Alison Brie
-
-## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
-
-VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
-
-*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
+*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
 
 
-## Alison Brie
+## Lizzo
 
-## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
-
-
-## Alison Brie
-
-## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
-
-Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
-
-*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
+*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
 
 
 ## Alison Brie
@@ -2267,58 +1484,31 @@ Last week, the Nike Air Max Sunder made its glorious, large-scale return by rere
 *Published on: Thu, 18 Jul 2024 08:51:59 GMT*
 
 
-## Lil Wayne
+## Alison Brie
 
-## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
+## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
-On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
 
-*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
-
-
-## Lil Wayne
-
-## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
-
-In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
-
-*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
+*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
 
 
-## Lil Wayne
+## Alison Brie
 
-## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
 
-COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
 
-*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
-
-
-## Lil Wayne
-
-## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
-
-VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
-
-*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
+*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
 
 
-## Lil Wayne
+## Alison Brie
 
-## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
-
-
-## Lil Wayne
-
-## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
-
-Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
-
-*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
+*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
 
 
 ## Lil Wayne
@@ -2348,58 +1538,31 @@ Last week, the Nike Air Max Sunder made its glorious, large-scale return by rere
 *Published on: Thu, 18 Jul 2024 08:51:59 GMT*
 
 
-## Adele
+## Lil Wayne
 
-## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
+## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
-On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
 
-*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
-
-
-## Adele
-
-## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
-
-In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
-
-*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
+*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
 
 
-## Adele
+## Lil Wayne
 
-## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
 
-COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
 
-*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
-
-
-## Adele
-
-## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
-
-VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
-
-*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
+*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
 
 
-## Adele
+## Lil Wayne
 
-## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
-
-
-## Adele
-
-## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
-
-Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
-
-*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
+*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
 
 
 ## Adele
@@ -2429,58 +1592,31 @@ Last week, the Nike Air Max Sunder made its glorious, large-scale return by rere
 *Published on: Thu, 18 Jul 2024 08:51:59 GMT*
 
 
-## Lindsay Lohan
+## Adele
 
-## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
+## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
-On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
 
-*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
-
-
-## Lindsay Lohan
-
-## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
-
-In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
-
-*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
+*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
 
 
-## Lindsay Lohan
+## Adele
 
-## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
 
-COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
 
-*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
-
-
-## Lindsay Lohan
-
-## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
-
-VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
-
-*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
+*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
 
 
-## Lindsay Lohan
+## Adele
 
-## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
-
-
-## Lindsay Lohan
-
-## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
-
-Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
-
-*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
+*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
 
 
 ## Lindsay Lohan
@@ -2510,58 +1646,31 @@ Last week, the Nike Air Max Sunder made its glorious, large-scale return by rere
 *Published on: Thu, 18 Jul 2024 08:51:59 GMT*
 
 
-## Addison Rae
+## Lindsay Lohan
 
-## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
+## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
-On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
 
-*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
-
-
-## Addison Rae
-
-## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
-
-In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
-
-*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
+*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
 
 
-## Addison Rae
+## Lindsay Lohan
 
-## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
 
-COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
 
-*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
-
-
-## Addison Rae
-
-## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
-
-VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
-
-*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
+*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
 
 
-## Addison Rae
+## Lindsay Lohan
 
-## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
-
-
-## Addison Rae
-
-## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
-
-Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
-
-*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
+*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
 
 
 ## Addison Rae
@@ -2591,58 +1700,31 @@ Last week, the Nike Air Max Sunder made its glorious, large-scale return by rere
 *Published on: Thu, 18 Jul 2024 08:51:59 GMT*
 
 
-## Latto
+## Addison Rae
 
-## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
+## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
-On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
 
-*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
-
-
-## Latto
-
-## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
-
-In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
-
-*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
+*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
 
 
-## Latto
+## Addison Rae
 
-## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
 
-COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
 
-*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
-
-
-## Latto
-
-## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
-
-VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
-
-*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
+*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
 
 
-## Latto
+## Addison Rae
 
-## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
-
-
-## Latto
-
-## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
-
-Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
-
-*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
+*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
 
 
 ## Latto
@@ -2672,58 +1754,31 @@ Last week, the Nike Air Max Sunder made its glorious, large-scale return by rere
 *Published on: Thu, 18 Jul 2024 08:51:59 GMT*
 
 
-## Aaron Paul
+## Latto
 
-## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
+## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
-On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
 
-*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
-
-
-## Aaron Paul
-
-## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
-
-In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
-
-*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
+*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
 
 
-## Aaron Paul
+## Latto
 
-## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
 
-COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
 
-*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
-
-
-## Aaron Paul
-
-## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
-
-VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
-
-*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
+*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
 
 
-## Aaron Paul
+## Latto
 
-## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
-
-
-## Aaron Paul
-
-## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
-
-Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
-
-*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
+*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
 
 
 ## Aaron Paul
@@ -2753,58 +1808,31 @@ Last week, the Nike Air Max Sunder made its glorious, large-scale return by rere
 *Published on: Thu, 18 Jul 2024 08:51:59 GMT*
 
 
-## LeBron James
+## Aaron Paul
 
-## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
+## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
-On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
 
-*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
-
-
-## LeBron James
-
-## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
-
-In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
-
-*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
+*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
 
 
-## LeBron James
+## Aaron Paul
 
-## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
 
-COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
 
-*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
-
-
-## LeBron James
-
-## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
-
-VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
-
-*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
+*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
 
 
-## LeBron James
+## Aaron Paul
 
-## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
-
-
-## LeBron James
-
-## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
-
-Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
-
-*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
+*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
 
 
 ## LeBron James
@@ -2834,58 +1862,31 @@ Last week, the Nike Air Max Sunder made its glorious, large-scale return by rere
 *Published on: Thu, 18 Jul 2024 08:51:59 GMT*
 
 
-## 50 Cent
+## LeBron James
 
-## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
+## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
-On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
 
-*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
-
-
-## 50 Cent
-
-## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
-
-In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
-
-*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
+*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
 
 
-## 50 Cent
+## LeBron James
 
-## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
 
-COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
 
-*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
-
-
-## 50 Cent
-
-## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
-
-VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
-
-*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
+*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
 
 
-## 50 Cent
+## LeBron James
 
-## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
-
-
-## 50 Cent
-
-## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
-
-Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
-
-*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
+*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
 
 
 ## 50 Cent
@@ -2915,58 +1916,31 @@ Last week, the Nike Air Max Sunder made its glorious, large-scale return by rere
 *Published on: Thu, 18 Jul 2024 08:51:59 GMT*
 
 
-## Kesha
+## 50 Cent
 
-## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
+## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
-On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
 
-*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
-
-
-## Kesha
-
-## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
-
-In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
-
-*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
+*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
 
 
-## Kesha
+## 50 Cent
 
-## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
 
-COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
 
-*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
-
-
-## Kesha
-
-## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
-
-VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
-
-*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
+*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
 
 
-## Kesha
+## 50 Cent
 
-## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
-
-
-## Kesha
-
-## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
-
-Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
-
-*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
+*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
 
 
 ## Kesha
@@ -2996,58 +1970,31 @@ Last week, the Nike Air Max Sunder made its glorious, large-scale return by rere
 *Published on: Thu, 18 Jul 2024 08:51:59 GMT*
 
 
-## 21 Savage
+## Kesha
 
-## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
+## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
-On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
 
-*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
-
-
-## 21 Savage
-
-## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
-
-In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
-
-*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
+*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
 
 
-## 21 Savage
+## Kesha
 
-## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
 
-COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
 
-*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
-
-
-## 21 Savage
-
-## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
-
-VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
-
-*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
+*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
 
 
-## 21 Savage
+## Kesha
 
-## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
-
-
-## 21 Savage
-
-## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
-
-Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
-
-*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
+*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
 
 
 ## 21 Savage
@@ -3077,58 +2024,31 @@ Last week, the Nike Air Max Sunder made its glorious, large-scale return by rere
 *Published on: Thu, 18 Jul 2024 08:51:59 GMT*
 
 
-## Larry David
+## 21 Savage
 
-## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
+## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
-On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
 
-*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
-
-
-## Larry David
-
-## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
-
-In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
-
-*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
+*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
 
 
-## Larry David
+## 21 Savage
 
-## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
 
-COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
 
-*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
-
-
-## Larry David
-
-## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
-
-VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
-
-*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
+*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
 
 
-## Larry David
+## 21 Savage
 
-## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
-
-
-## Larry David
-
-## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
-
-Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
-
-*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
+*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
 
 
 ## Larry David
@@ -3158,58 +2078,31 @@ Last week, the Nike Air Max Sunder made its glorious, large-scale return by rere
 *Published on: Thu, 18 Jul 2024 08:51:59 GMT*
 
 
-## Seth Rogan
+## Larry David
 
-## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
+## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
-On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
 
-*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
-
-
-## Seth Rogan
-
-## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
-
-In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
-
-*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
+*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
 
 
-## Seth Rogan
+## Larry David
 
-## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
 
-COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
 
-*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
-
-
-## Seth Rogan
-
-## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
-
-VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
-
-*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
+*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
 
 
-## Seth Rogan
+## Larry David
 
-## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
-
-
-## Seth Rogan
-
-## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
-
-Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
-
-*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
+*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
 
 
 ## Seth Rogan
@@ -3239,58 +2132,31 @@ Last week, the Nike Air Max Sunder made its glorious, large-scale return by rere
 *Published on: Thu, 18 Jul 2024 08:51:59 GMT*
 
 
-## Simone Biles
+## Seth Rogan
 
-## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
+## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
-On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
 
-*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
-
-
-## Simone Biles
-
-## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
-
-In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
-
-*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
+*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
 
 
-## Simone Biles
+## Seth Rogan
 
-## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
 
-COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
 
-*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
-
-
-## Simone Biles
-
-## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
-
-VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
-
-*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
+*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
 
 
-## Simone Biles
+## Seth Rogan
 
-## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
-
-
-## Simone Biles
-
-## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
-
-Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
-
-*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
+*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
 
 
 ## Simone Biles
@@ -3320,58 +2186,31 @@ Last week, the Nike Air Max Sunder made its glorious, large-scale return by rere
 *Published on: Thu, 18 Jul 2024 08:51:59 GMT*
 
 
-## Pete Davidson
+## Simone Biles
 
-## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
+## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
-On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
 
-*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
-
-
-## Pete Davidson
-
-## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
-
-In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
-
-*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
+*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
 
 
-## Pete Davidson
+## Simone Biles
 
-## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
 
-COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
 
-*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
-
-
-## Pete Davidson
-
-## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
-
-VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
-
-*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
+*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
 
 
-## Pete Davidson
+## Simone Biles
 
-## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
-
-
-## Pete Davidson
-
-## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
-
-Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
-
-*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
+*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
 
 
 ## Pete Davidson
@@ -3401,58 +2240,31 @@ Last week, the Nike Air Max Sunder made its glorious, large-scale return by rere
 *Published on: Thu, 18 Jul 2024 08:51:59 GMT*
 
 
-## Prince Harry
+## Pete Davidson
 
-## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
+## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
-On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
 
-*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
-
-
-## Prince Harry
-
-## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
-
-In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
-
-*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
+*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
 
 
-## Prince Harry
+## Pete Davidson
 
-## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
 
-COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
 
-*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
-
-
-## Prince Harry
-
-## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
-
-VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
-
-*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
+*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
 
 
-## Prince Harry
+## Pete Davidson
 
-## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
-
-
-## Prince Harry
-
-## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
-
-Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
-
-*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
+*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
 
 
 ## Prince Harry
@@ -3482,58 +2294,31 @@ Last week, the Nike Air Max Sunder made its glorious, large-scale return by rere
 *Published on: Thu, 18 Jul 2024 08:51:59 GMT*
 
 
-## Princess of Wales
+## Prince Harry
 
-## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
+## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
-On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
 
-*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
-
-
-## Princess of Wales
-
-## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
-
-In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
-
-*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
+*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
 
 
-## Princess of Wales
+## Prince Harry
 
-## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
 
-COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
 
-*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
-
-
-## Princess of Wales
-
-## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
-
-VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
-
-*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
+*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
 
 
-## Princess of Wales
+## Prince Harry
 
-## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
-
-
-## Princess of Wales
-
-## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
-
-Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
-
-*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
+*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
 
 
 ## Princess of Wales
@@ -3563,58 +2348,31 @@ Last week, the Nike Air Max Sunder made its glorious, large-scale return by rere
 *Published on: Thu, 18 Jul 2024 08:51:59 GMT*
 
 
-## Rachel McAdams
+## Princess of Wales
 
-## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
+## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
-On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
 
-*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
-
-
-## Rachel McAdams
-
-## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
-
-In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
-
-*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
+*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
 
 
-## Rachel McAdams
+## Princess of Wales
 
-## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
 
-COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
 
-*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
-
-
-## Rachel McAdams
-
-## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
-
-VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
-
-*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
+*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
 
 
-## Rachel McAdams
+## Princess of Wales
 
-## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
-
-
-## Rachel McAdams
-
-## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
-
-Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
-
-*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
+*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
 
 
 ## Rachel McAdams
@@ -3644,58 +2402,31 @@ Last week, the Nike Air Max Sunder made its glorious, large-scale return by rere
 *Published on: Thu, 18 Jul 2024 08:51:59 GMT*
 
 
-## Reneé Rapp
+## Rachel McAdams
 
-## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
+## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
-On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
 
-*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
-
-
-## Reneé Rapp
-
-## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
-
-In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
-
-*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
+*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
 
 
-## Reneé Rapp
+## Rachel McAdams
 
-## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
 
-COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
 
-*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
-
-
-## Reneé Rapp
-
-## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
-
-VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
-
-*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
+*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
 
 
-## Reneé Rapp
+## Rachel McAdams
 
-## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
-
-
-## Reneé Rapp
-
-## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
-
-Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
-
-*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
+*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
 
 
 ## Reneé Rapp
@@ -3725,58 +2456,31 @@ Last week, the Nike Air Max Sunder made its glorious, large-scale return by rere
 *Published on: Thu, 18 Jul 2024 08:51:59 GMT*
 
 
-## Rick Ross
+## Reneé Rapp
 
-## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
+## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
-On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
 
-*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
-
-
-## Rick Ross
-
-## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
-
-In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
-
-*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
+*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
 
 
-## Rick Ross
+## Reneé Rapp
 
-## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
 
-COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
 
-*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
-
-
-## Rick Ross
-
-## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
-
-VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
-
-*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
+*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
 
 
-## Rick Ross
+## Reneé Rapp
 
-## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
-
-
-## Rick Ross
-
-## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
-
-Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
-
-*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
+*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
 
 
 ## Rick Ross
@@ -3806,58 +2510,31 @@ Last week, the Nike Air Max Sunder made its glorious, large-scale return by rere
 *Published on: Thu, 18 Jul 2024 08:51:59 GMT*
 
 
-## Sam Ashgari
+## Rick Ross
 
-## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
+## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
-On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
 
-*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
-
-
-## Sam Ashgari
-
-## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
-
-In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
-
-*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
+*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
 
 
-## Sam Ashgari
+## Rick Ross
 
-## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
 
-COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
 
-*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
-
-
-## Sam Ashgari
-
-## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
-
-VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
-
-*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
+*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
 
 
-## Sam Ashgari
+## Rick Ross
 
-## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
-
-
-## Sam Ashgari
-
-## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
-
-Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
-
-*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
+*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
 
 
 ## Sam Ashgari
@@ -3887,58 +2564,31 @@ Last week, the Nike Air Max Sunder made its glorious, large-scale return by rere
 *Published on: Thu, 18 Jul 2024 08:51:59 GMT*
 
 
-## Sandra Oh
+## Sam Ashgari
 
-## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
+## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
-On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
 
-*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
-
-
-## Sandra Oh
-
-## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
-
-In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
-
-*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
+*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
 
 
-## Sandra Oh
+## Sam Ashgari
 
-## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
 
-COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
 
-*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
-
-
-## Sandra Oh
-
-## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
-
-VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
-
-*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
+*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
 
 
-## Sandra Oh
+## Sam Ashgari
 
-## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
-
-
-## Sandra Oh
-
-## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
-
-Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
-
-*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
+*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
 
 
 ## Sandra Oh
@@ -3968,58 +2618,31 @@ Last week, the Nike Air Max Sunder made its glorious, large-scale return by rere
 *Published on: Thu, 18 Jul 2024 08:51:59 GMT*
 
 
-## Donald Trump
+## Sandra Oh
 
-## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
+## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
-On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
 
-*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
-
-
-## Donald Trump
-
-## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
-
-In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
-
-*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
+*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
 
 
-## Donald Trump
+## Sandra Oh
 
-## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
 
-COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
 
-*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
-
-
-## Donald Trump
-
-## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
-
-VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
-
-*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
+*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
 
 
-## Donald Trump
+## Sandra Oh
 
-## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
-
-
-## Donald Trump
-
-## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
-
-Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
-
-*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
+*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
 
 
 ## Donald Trump
@@ -4049,58 +2672,31 @@ Last week, the Nike Air Max Sunder made its glorious, large-scale return by rere
 *Published on: Thu, 18 Jul 2024 08:51:59 GMT*
 
 
-## Diddy
+## Donald Trump
 
-## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
+## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
-On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
 
-*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
-
-
-## Diddy
-
-## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
-
-In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
-
-*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
+*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
 
 
-## Diddy
+## Donald Trump
 
-## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
 
-COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
 
-*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
-
-
-## Diddy
-
-## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
-
-VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
-
-*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
+*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
 
 
-## Diddy
+## Donald Trump
 
-## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
-
-
-## Diddy
-
-## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
-
-Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
-
-*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
+*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
 
 
 ## Diddy
@@ -4130,58 +2726,31 @@ Last week, the Nike Air Max Sunder made its glorious, large-scale return by rere
 *Published on: Thu, 18 Jul 2024 08:51:59 GMT*
 
 
-## City Girls
+## Diddy
 
-## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
+## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
-On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
 
-*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
-
-
-## City Girls
-
-## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
-
-In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
-
-*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
+*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
 
 
-## City Girls
+## Diddy
 
-## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
 
-COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
 
-*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
-
-
-## City Girls
-
-## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
-
-VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
-
-*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
+*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
 
 
-## City Girls
+## Diddy
 
-## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
-
-
-## City Girls
-
-## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
-
-Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
-
-*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
+*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
 
 
 ## City Girls
@@ -4211,58 +2780,31 @@ Last week, the Nike Air Max Sunder made its glorious, large-scale return by rere
 *Published on: Thu, 18 Jul 2024 08:51:59 GMT*
 
 
-## Chloe Bailey
+## City Girls
 
-## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
+## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
-On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
 
-*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
-
-
-## Chloe Bailey
-
-## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
-
-In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
-
-*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
+*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
 
 
-## Chloe Bailey
+## City Girls
 
-## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
 
-COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
 
-*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
-
-
-## Chloe Bailey
-
-## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
-
-VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
-
-*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
+*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
 
 
-## Chloe Bailey
+## City Girls
 
-## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
-
-
-## Chloe Bailey
-
-## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
-
-Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
-
-*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
+*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
 
 
 ## Chloe Bailey
@@ -4292,58 +2834,31 @@ Last week, the Nike Air Max Sunder made its glorious, large-scale return by rere
 *Published on: Thu, 18 Jul 2024 08:51:59 GMT*
 
 
-## Charli D Amelio
+## Chloe Bailey
 
-## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
+## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
-On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
 
-*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
-
-
-## Charli D Amelio
-
-## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
-
-In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
-
-*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
+*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
 
 
-## Charli D Amelio
+## Chloe Bailey
 
-## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
 
-COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
 
-*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
-
-
-## Charli D Amelio
-
-## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
-
-VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
-
-*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
+*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
 
 
-## Charli D Amelio
+## Chloe Bailey
 
-## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
-
-
-## Charli D Amelio
-
-## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
-
-Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
-
-*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
+*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
 
 
 ## Charli D Amelio
@@ -4373,58 +2888,31 @@ Last week, the Nike Air Max Sunder made its glorious, large-scale return by rere
 *Published on: Thu, 18 Jul 2024 08:51:59 GMT*
 
 
-## Cardi B
+## Charli D Amelio
 
-## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
+## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
-On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
 
-*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
-
-
-## Cardi B
-
-## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
-
-In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
-
-*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
+*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
 
 
-## Cardi B
+## Charli D Amelio
 
-## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
 
-COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
 
-*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
-
-
-## Cardi B
-
-## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
-
-VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
-
-*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
+*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
 
 
-## Cardi B
+## Charli D Amelio
 
-## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
-
-
-## Cardi B
-
-## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
-
-Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
-
-*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
+*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
 
 
 ## Cardi B
@@ -4454,58 +2942,31 @@ Last week, the Nike Air Max Sunder made its glorious, large-scale return by rere
 *Published on: Thu, 18 Jul 2024 08:51:59 GMT*
 
 
-## Bryan Cranston
+## Cardi B
 
-## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
+## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
-On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
 
-*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
-
-
-## Bryan Cranston
-
-## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
-
-In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
-
-*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
+*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
 
 
-## Bryan Cranston
+## Cardi B
 
-## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
 
-COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
 
-*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
-
-
-## Bryan Cranston
-
-## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
-
-VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
-
-*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
+*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
 
 
-## Bryan Cranston
+## Cardi B
 
-## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
-
-
-## Bryan Cranston
-
-## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
-
-Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
-
-*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
+*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
 
 
 ## Bryan Cranston
@@ -4535,58 +2996,31 @@ Last week, the Nike Air Max Sunder made its glorious, large-scale return by rere
 *Published on: Thu, 18 Jul 2024 08:51:59 GMT*
 
 
-## Brielle Biermann
+## Bryan Cranston
 
-## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
+## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
-On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
 
-*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
-
-
-## Brielle Biermann
-
-## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
-
-In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
-
-*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
+*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
 
 
-## Brielle Biermann
+## Bryan Cranston
 
-## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
 
-COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
 
-*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
-
-
-## Brielle Biermann
-
-## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
-
-VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
-
-*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
+*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
 
 
-## Brielle Biermann
+## Bryan Cranston
 
-## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
-
-
-## Brielle Biermann
-
-## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
-
-Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
-
-*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
+*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
 
 
 ## Brielle Biermann
@@ -4616,58 +3050,31 @@ Last week, the Nike Air Max Sunder made its glorious, large-scale return by rere
 *Published on: Thu, 18 Jul 2024 08:51:59 GMT*
 
 
-## Dua Lipa
+## Brielle Biermann
 
-## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
+## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
-On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
 
-*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
-
-
-## Dua Lipa
-
-## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
-
-In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
-
-*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
+*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
 
 
-## Dua Lipa
+## Brielle Biermann
 
-## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
 
-COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
 
-*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
-
-
-## Dua Lipa
-
-## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
-
-VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
-
-*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
+*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
 
 
-## Dua Lipa
+## Brielle Biermann
 
-## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
-
-
-## Dua Lipa
-
-## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
-
-Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
-
-*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
+*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
 
 
 ## Dua Lipa
@@ -4697,58 +3104,31 @@ Last week, the Nike Air Max Sunder made its glorious, large-scale return by rere
 *Published on: Thu, 18 Jul 2024 08:51:59 GMT*
 
 
-## Drake
+## Dua Lipa
 
-## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
+## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
-On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
 
-*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
-
-
-## Drake
-
-## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
-
-In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
-
-*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
+*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
 
 
-## Drake
+## Dua Lipa
 
-## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
 
-COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
 
-*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
-
-
-## Drake
-
-## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
-
-VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
-
-*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
+*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
 
 
-## Drake
+## Dua Lipa
 
-## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
-
-
-## Drake
-
-## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
-
-Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
-
-*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
+*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
 
 
 ## Drake
@@ -4778,58 +3158,31 @@ Last week, the Nike Air Max Sunder made its glorious, large-scale return by rere
 *Published on: Thu, 18 Jul 2024 08:51:59 GMT*
 
 
-## Jenner
+## Drake
 
-## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
+## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
-On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
 
-*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
-
-
-## Jenner
-
-## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
-
-In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
-
-*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
+*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
 
 
-## Jenner
+## Drake
 
-## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
 
-COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
 
-*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
-
-
-## Jenner
-
-## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
-
-VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
-
-*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
+*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
 
 
-## Jenner
+## Drake
 
-## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
-
-
-## Jenner
-
-## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
-
-Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
-
-*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
+*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
 
 
 ## Jenner
@@ -4859,58 +3212,31 @@ Last week, the Nike Air Max Sunder made its glorious, large-scale return by rere
 *Published on: Thu, 18 Jul 2024 08:51:59 GMT*
 
 
-## J. Cole
+## Jenner
 
-## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
+## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
-On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
 
-*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
-
-
-## J. Cole
-
-## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
-
-In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
-
-*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
+*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
 
 
-## J. Cole
+## Jenner
 
-## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
 
-COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
 
-*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
-
-
-## J. Cole
-
-## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
-
-VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
-
-*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
+*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
 
 
-## J. Cole
+## Jenner
 
-## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
-
-
-## J. Cole
-
-## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
-
-Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
-
-*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
+*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
 
 
 ## J. Cole
@@ -4940,58 +3266,31 @@ Last week, the Nike Air Max Sunder made its glorious, large-scale return by rere
 *Published on: Thu, 18 Jul 2024 08:51:59 GMT*
 
 
-## Jerrod Carmichael
+## J. Cole
 
-## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
+## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
-On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
 
-*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
-
-
-## Jerrod Carmichael
-
-## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
-
-In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
-
-*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
+*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
 
 
-## Jerrod Carmichael
+## J. Cole
 
-## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
 
-COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
 
-*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
-
-
-## Jerrod Carmichael
-
-## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
-
-VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
-
-*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
+*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
 
 
-## Jerrod Carmichael
+## J. Cole
 
-## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
-
-
-## Jerrod Carmichael
-
-## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
-
-Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
-
-*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
+*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
 
 
 ## Jerrod Carmichael
@@ -5021,58 +3320,31 @@ Last week, the Nike Air Max Sunder made its glorious, large-scale return by rere
 *Published on: Thu, 18 Jul 2024 08:51:59 GMT*
 
 
-## Jennifer Lawrence
+## Jerrod Carmichael
 
-## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
+## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
-On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
 
-*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
-
-
-## Jennifer Lawrence
-
-## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
-
-In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
-
-*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
+*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
 
 
-## Jennifer Lawrence
+## Jerrod Carmichael
 
-## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
 
-COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
 
-*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
-
-
-## Jennifer Lawrence
-
-## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
-
-VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
-
-*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
+*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
 
 
-## Jennifer Lawrence
+## Jerrod Carmichael
 
-## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
-
-
-## Jennifer Lawrence
-
-## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
-
-Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
-
-*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
+*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
 
 
 ## Jennifer Lawrence
@@ -5102,58 +3374,31 @@ Last week, the Nike Air Max Sunder made its glorious, large-scale return by rere
 *Published on: Thu, 18 Jul 2024 08:51:59 GMT*
 
 
-## Joe Biden
+## Jennifer Lawrence
 
-## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
+## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
-On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
 
-*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
-
-
-## Joe Biden
-
-## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
-
-In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
-
-*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
+*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
 
 
-## Joe Biden
+## Jennifer Lawrence
 
-## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
 
-COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
 
-*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
-
-
-## Joe Biden
-
-## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
-
-VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
-
-*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
+*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
 
 
-## Joe Biden
+## Jennifer Lawrence
 
-## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
-
-
-## Joe Biden
-
-## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
-
-Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
-
-*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
+*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
 
 
 ## Joe Biden
@@ -5183,58 +3428,31 @@ Last week, the Nike Air Max Sunder made its glorious, large-scale return by rere
 *Published on: Thu, 18 Jul 2024 08:51:59 GMT*
 
 
-## J.K. Simmons
+## Joe Biden
 
-## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
+## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
-On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
 
-*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
-
-
-## J.K. Simmons
-
-## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
-
-In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
-
-*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
+*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
 
 
-## J.K. Simmons
+## Joe Biden
 
-## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
 
-COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
 
-*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
-
-
-## J.K. Simmons
-
-## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
-
-VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
-
-*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
+*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
 
 
-## J.K. Simmons
+## Joe Biden
 
-## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
-
-
-## J.K. Simmons
-
-## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
-
-Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
-
-*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
+*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
 
 
 ## J.K. Simmons
@@ -5264,58 +3482,31 @@ Last week, the Nike Air Max Sunder made its glorious, large-scale return by rere
 *Published on: Thu, 18 Jul 2024 08:51:59 GMT*
 
 
-## Kamala Harris
+## J.K. Simmons
 
-## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
+## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
-On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
 
-*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
-
-
-## Kamala Harris
-
-## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
-
-In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
-
-*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
+*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
 
 
-## Kamala Harris
+## J.K. Simmons
 
-## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
 
-COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
 
-*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
-
-
-## Kamala Harris
-
-## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
-
-VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
-
-*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
+*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
 
 
-## Kamala Harris
+## J.K. Simmons
 
-## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
-
-
-## Kamala Harris
-
-## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
-
-Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
-
-*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
+*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
 
 
 ## Kamala Harris
@@ -5345,58 +3536,31 @@ Last week, the Nike Air Max Sunder made its glorious, large-scale return by rere
 *Published on: Thu, 18 Jul 2024 08:51:59 GMT*
 
 
-## John C Reilly
+## Kamala Harris
 
-## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
+## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
-On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
 
-*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
-
-
-## John C Reilly
-
-## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
-
-In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
-
-*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
+*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
 
 
-## John C Reilly
+## Kamala Harris
 
-## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
 
-COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
 
-*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
-
-
-## John C Reilly
-
-## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
-
-VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
-
-*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
+*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
 
 
-## John C Reilly
+## Kamala Harris
 
-## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
-
-
-## John C Reilly
-
-## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
-
-Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
-
-*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
+*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
 
 
 ## John C Reilly
@@ -5426,58 +3590,31 @@ Last week, the Nike Air Max Sunder made its glorious, large-scale return by rere
 *Published on: Thu, 18 Jul 2024 08:51:59 GMT*
 
 
-## Kardashian
+## John C Reilly
 
-## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
+## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
-On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
 
-*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
-
-
-## Kardashian
-
-## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
-
-In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
-
-*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
+*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
 
 
-## Kardashian
+## John C Reilly
 
-## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
 
-COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
 
-*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
-
-
-## Kardashian
-
-## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
-
-VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
-
-*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
+*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
 
 
-## Kardashian
+## John C Reilly
 
-## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
-
-
-## Kardashian
-
-## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
-
-Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
-
-*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
+*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
 
 
 ## Kardashian
@@ -5507,58 +3644,31 @@ Last week, the Nike Air Max Sunder made its glorious, large-scale return by rere
 *Published on: Thu, 18 Jul 2024 08:51:59 GMT*
 
 
-## Kanye
+## Kardashian
 
-## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
+## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
-On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
 
-*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
-
-
-## Kanye
-
-## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
-
-In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
-
-*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
+*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
 
 
-## Kanye
+## Kardashian
 
-## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
 
-COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
 
-*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
-
-
-## Kanye
-
-## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
-
-VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
-
-*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
+*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
 
 
-## Kanye
+## Kardashian
 
-## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
-
-
-## Kanye
-
-## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
-
-Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
-
-*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
+*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
 
 
 ## Kanye
@@ -5588,58 +3698,31 @@ Last week, the Nike Air Max Sunder made its glorious, large-scale return by rere
 *Published on: Thu, 18 Jul 2024 08:51:59 GMT*
 
 
-## Zendaya
+## Kanye
 
-## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
+## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
-On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
 
-*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
-
-
-## Zendaya
-
-## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
-
-In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
-
-*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
+*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
 
 
-## Zendaya
+## Kanye
 
-## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
 
-COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
 
-*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
-
-
-## Zendaya
-
-## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
-
-VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
-
-*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
+*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
 
 
-## Zendaya
+## Kanye
 
-## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
-
-
-## Zendaya
-
-## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
-
-Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
-
-*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
+*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
 
 
 ## Zendaya
@@ -5669,58 +3752,31 @@ Last week, the Nike Air Max Sunder made its glorious, large-scale return by rere
 *Published on: Thu, 18 Jul 2024 08:51:59 GMT*
 
 
-## Will Ferrell
+## Zendaya
 
-## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
+## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
-On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
 
-*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
-
-
-## Will Ferrell
-
-## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
-
-In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
-
-*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
+*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
 
 
-## Will Ferrell
+## Zendaya
 
-## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
 
-COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
 
-*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
-
-
-## Will Ferrell
-
-## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
-
-VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
-
-*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
+*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
 
 
-## Will Ferrell
+## Zendaya
 
-## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
-
-
-## Will Ferrell
-
-## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
-
-Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
-
-*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
+*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
 
 
 ## Will Ferrell
@@ -5750,58 +3806,31 @@ Last week, the Nike Air Max Sunder made its glorious, large-scale return by rere
 *Published on: Thu, 18 Jul 2024 08:51:59 GMT*
 
 
-## Zazie Beetz
+## Will Ferrell
 
-## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
+## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
-On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
 
-*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
-
-
-## Zazie Beetz
-
-## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
-
-In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
-
-*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
+*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
 
 
-## Zazie Beetz
+## Will Ferrell
 
-## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
 
-COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
 
-*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
-
-
-## Zazie Beetz
-
-## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
-
-VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
-
-*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
+*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
 
 
-## Zazie Beetz
+## Will Ferrell
 
-## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
-
-
-## Zazie Beetz
-
-## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
-
-Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
-
-*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
+*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
 
 
 ## Zazie Beetz
@@ -5831,58 +3860,31 @@ Last week, the Nike Air Max Sunder made its glorious, large-scale return by rere
 *Published on: Thu, 18 Jul 2024 08:51:59 GMT*
 
 
-## Bob Odenkirk
+## Zazie Beetz
 
-## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
+## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
-On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
 
-*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
-
-
-## Bob Odenkirk
-
-## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
-
-In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
-
-*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
+*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
 
 
-## Bob Odenkirk
+## Zazie Beetz
 
-## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
 
-COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
 
-*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
-
-
-## Bob Odenkirk
-
-## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
-
-VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
-
-*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
+*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
 
 
-## Bob Odenkirk
+## Zazie Beetz
 
-## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
-
-
-## Bob Odenkirk
-
-## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
-
-Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
-
-*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
+*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
 
 
 ## Bob Odenkirk
@@ -5912,58 +3914,31 @@ Last week, the Nike Air Max Sunder made its glorious, large-scale return by rere
 *Published on: Thu, 18 Jul 2024 08:51:59 GMT*
 
 
-## Brad Pitt
+## Bob Odenkirk
 
-## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
+## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
-On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
 
-*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
-
-
-## Brad Pitt
-
-## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
-
-In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
-
-*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
+*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
 
 
-## Brad Pitt
+## Bob Odenkirk
 
-## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
 
-COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
 
-*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
-
-
-## Brad Pitt
-
-## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
-
-VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
-
-*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
+*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
 
 
-## Brad Pitt
+## Bob Odenkirk
 
-## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
-
-
-## Brad Pitt
-
-## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
-
-Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
-
-*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
+*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
 
 
 ## Brad Pitt
@@ -5993,58 +3968,31 @@ Last week, the Nike Air Max Sunder made its glorious, large-scale return by rere
 *Published on: Thu, 18 Jul 2024 08:51:59 GMT*
 
 
-## Beyoncé
+## Brad Pitt
 
-## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
+## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
-On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
 
-*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
-
-
-## Beyoncé
-
-## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
-
-In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
-
-*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
+*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
 
 
-## Beyoncé
+## Brad Pitt
 
-## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
 
-COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
 
-*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
-
-
-## Beyoncé
-
-## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
-
-VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
-
-*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
+*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
 
 
-## Beyoncé
+## Brad Pitt
 
-## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
-
-
-## Beyoncé
-
-## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
-
-Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
-
-*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
+*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
 
 
 ## Beyoncé
@@ -6074,58 +4022,31 @@ Last week, the Nike Air Max Sunder made its glorious, large-scale return by rere
 *Published on: Thu, 18 Jul 2024 08:51:59 GMT*
 
 
-## Bia
+## Beyoncé
 
-## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
+## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
-On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
 
-*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
-
-
-## Bia
-
-## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
-
-In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
-
-*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
+*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
 
 
-## Bia
+## Beyoncé
 
-## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
 
-COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
 
-*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
-
-
-## Bia
-
-## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
-
-VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
-
-*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
+*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
 
 
-## Bia
+## Beyoncé
 
-## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
-
-
-## Bia
-
-## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
-
-Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
-
-*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
+*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
 
 
 ## Bia
@@ -6155,58 +4076,31 @@ Last week, the Nike Air Max Sunder made its glorious, large-scale return by rere
 *Published on: Thu, 18 Jul 2024 08:51:59 GMT*
 
 
-## Avantika
+## Bia
 
-## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
+## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
-On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
 
-*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
-
-
-## Avantika
-
-## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
-
-In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
-
-*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
+*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
 
 
-## Avantika
+## Bia
 
-## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
 
-COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
 
-*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
-
-
-## Avantika
-
-## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
-
-VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
-
-*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
+*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
 
 
-## Avantika
+## Bia
 
-## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
-
-
-## Avantika
-
-## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
-
-Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
-
-*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
+*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
 
 
 ## Avantika
@@ -6236,58 +4130,31 @@ Last week, the Nike Air Max Sunder made its glorious, large-scale return by rere
 *Published on: Thu, 18 Jul 2024 08:51:59 GMT*
 
 
-## Bernie Sanders
+## Avantika
 
-## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
+## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
-On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
 
-*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
-
-
-## Bernie Sanders
-
-## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
-
-In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
-
-*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
+*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
 
 
-## Bernie Sanders
+## Avantika
 
-## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
 
-COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
 
-*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
-
-
-## Bernie Sanders
-
-## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
-
-VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
-
-*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
+*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
 
 
-## Bernie Sanders
+## Avantika
 
-## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
-
-
-## Bernie Sanders
-
-## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
-
-Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
-
-*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
+*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
 
 
 ## Bernie Sanders
@@ -6317,58 +4184,31 @@ Last week, the Nike Air Max Sunder made its glorious, large-scale return by rere
 *Published on: Thu, 18 Jul 2024 08:51:59 GMT*
 
 
-## Big Sean
+## Bernie Sanders
 
-## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
+## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
-On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
 
-*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
-
-
-## Big Sean
-
-## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
-
-In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
-
-*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
+*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
 
 
-## Big Sean
+## Bernie Sanders
 
-## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
 
-COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
 
-*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
-
-
-## Big Sean
-
-## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
-
-VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
-
-*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
+*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
 
 
-## Big Sean
+## Bernie Sanders
 
-## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
-
-
-## Big Sean
-
-## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
-
-Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
-
-*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
+*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
 
 
 ## Big Sean
@@ -6398,58 +4238,31 @@ Last week, the Nike Air Max Sunder made its glorious, large-scale return by rere
 *Published on: Thu, 18 Jul 2024 08:51:59 GMT*
 
 
-## BlockBoy JB
+## Big Sean
 
-## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
+## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
-On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
 
-*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
-
-
-## BlockBoy JB
-
-## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
-
-In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
-
-*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
+*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
 
 
-## BlockBoy JB
+## Big Sean
 
-## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
 
-COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
 
-*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
-
-
-## BlockBoy JB
-
-## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
-
-VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
-
-*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
+*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
 
 
-## BlockBoy JB
+## Big Sean
 
-## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
-
-
-## BlockBoy JB
-
-## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
-
-Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
-
-*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
+*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
 
 
 ## BlockBoy JB
@@ -6479,58 +4292,31 @@ Last week, the Nike Air Max Sunder made its glorious, large-scale return by rere
 *Published on: Thu, 18 Jul 2024 08:51:59 GMT*
 
 
-## Biden
+## BlockBoy JB
 
-## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
+## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
-On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
 
-*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
-
-
-## Biden
-
-## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
-
-In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
-
-*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
+*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
 
 
-## Biden
+## BlockBoy JB
 
-## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
 
-COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
 
-*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
-
-
-## Biden
-
-## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
-
-VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
-
-*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
+*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
 
 
-## Biden
+## BlockBoy JB
 
-## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
-
-
-## Biden
-
-## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
-
-Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
-
-*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
+*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
 
 
 ## Biden
@@ -6560,58 +4346,31 @@ Last week, the Nike Air Max Sunder made its glorious, large-scale return by rere
 *Published on: Thu, 18 Jul 2024 08:51:59 GMT*
 
 
-## Bieber
+## Biden
 
-## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
+## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
-On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
 
-*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
-
-
-## Bieber
-
-## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
-
-In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
-
-*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
+*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
 
 
-## Bieber
+## Biden
 
-## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
 
-COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
 
-*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
-
-
-## Bieber
-
-## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
-
-VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
-
-*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
+*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
 
 
-## Bieber
+## Biden
 
-## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
-
-
-## Bieber
-
-## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
-
-Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
-
-*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
+*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
 
 
 ## Bieber
@@ -6641,58 +4400,31 @@ Last week, the Nike Air Max Sunder made its glorious, large-scale return by rere
 *Published on: Thu, 18 Jul 2024 08:51:59 GMT*
 
 
-## Paulina Porizkov
+## Bieber
 
-## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
+## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
-On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
 
-*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
-
-
-## Paulina Porizkov
-
-## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
-
-In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
-
-*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
+*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
 
 
-## Paulina Porizkov
+## Bieber
 
-## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
 
-COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
 
-*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
-
-
-## Paulina Porizkov
-
-## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
-
-VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
-
-*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
+*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
 
 
-## Paulina Porizkov
+## Bieber
 
-## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
-
-
-## Paulina Porizkov
-
-## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
-
-Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
-
-*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
+*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
 
 
 ## Paulina Porizkov
@@ -6722,58 +4454,31 @@ Last week, the Nike Air Max Sunder made its glorious, large-scale return by rere
 *Published on: Thu, 18 Jul 2024 08:51:59 GMT*
 
 
-## Paris Hilton
+## Paulina Porizkov
 
-## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
+## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
-On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
 
-*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
-
-
-## Paris Hilton
-
-## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
-
-In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
-
-*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
+*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
 
 
-## Paris Hilton
+## Paulina Porizkov
 
-## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
 
-COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
 
-*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
-
-
-## Paris Hilton
-
-## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
-
-VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
-
-*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
+*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
 
 
-## Paris Hilton
+## Paulina Porizkov
 
-## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
-
-
-## Paris Hilton
-
-## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
-
-Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
-
-*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
+*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
 
 
 ## Paris Hilton
@@ -6803,58 +4508,31 @@ Last week, the Nike Air Max Sunder made its glorious, large-scale return by rere
 *Published on: Thu, 18 Jul 2024 08:51:59 GMT*
 
 
-## Metro Boomin
+## Paris Hilton
 
-## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
+## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
-On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
 
-*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
-
-
-## Metro Boomin
-
-## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
-
-In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
-
-*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
+*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
 
 
-## Metro Boomin
+## Paris Hilton
 
-## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
 
-COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
 
-*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
-
-
-## Metro Boomin
-
-## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
-
-VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
-
-*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
+*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
 
 
-## Metro Boomin
+## Paris Hilton
 
-## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
-
-
-## Metro Boomin
-
-## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
-
-Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
-
-*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
+*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
 
 
 ## Metro Boomin
@@ -6884,58 +4562,31 @@ Last week, the Nike Air Max Sunder made its glorious, large-scale return by rere
 *Published on: Thu, 18 Jul 2024 08:51:59 GMT*
 
 
-## Meghan Markle
+## Metro Boomin
 
-## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
+## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
-On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
 
-*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
-
-
-## Meghan Markle
-
-## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
-
-In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
-
-*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
+*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
 
 
-## Meghan Markle
+## Metro Boomin
 
-## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
 
-COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
 
-*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
-
-
-## Meghan Markle
-
-## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
-
-VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
-
-*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
+*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
 
 
-## Meghan Markle
+## Metro Boomin
 
-## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
-
-
-## Meghan Markle
-
-## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
-
-Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
-
-*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
+*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
 
 
 ## Meghan Markle
@@ -6965,58 +4616,31 @@ Last week, the Nike Air Max Sunder made its glorious, large-scale return by rere
 *Published on: Thu, 18 Jul 2024 08:51:59 GMT*
 
 
-## Megan Thee Stallion
+## Meghan Markle
 
-## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
+## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
-On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
 
-*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
-
-
-## Megan Thee Stallion
-
-## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
-
-In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
-
-*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
+*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
 
 
-## Megan Thee Stallion
+## Meghan Markle
 
-## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
 
-COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
 
-*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
-
-
-## Megan Thee Stallion
-
-## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
-
-VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
-
-*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
+*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
 
 
-## Megan Thee Stallion
+## Meghan Markle
 
-## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
-
-
-## Megan Thee Stallion
-
-## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
-
-Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
-
-*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
+*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
 
 
 ## Megan Thee Stallion
@@ -7046,58 +4670,31 @@ Last week, the Nike Air Max Sunder made its glorious, large-scale return by rere
 *Published on: Thu, 18 Jul 2024 08:51:59 GMT*
 
 
-## Maya Rudolph
+## Megan Thee Stallion
 
-## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
+## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
-On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
 
-*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
-
-
-## Maya Rudolph
-
-## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
-
-In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
-
-*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
+*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
 
 
-## Maya Rudolph
+## Megan Thee Stallion
 
-## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
 
-COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
 
-*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
-
-
-## Maya Rudolph
-
-## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
-
-VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
-
-*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
+*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
 
 
-## Maya Rudolph
+## Megan Thee Stallion
 
-## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
-
-
-## Maya Rudolph
-
-## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
-
-Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
-
-*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
+*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
 
 
 ## Maya Rudolph
@@ -7127,58 +4724,31 @@ Last week, the Nike Air Max Sunder made its glorious, large-scale return by rere
 *Published on: Thu, 18 Jul 2024 08:51:59 GMT*
 
 
-## Olivia Rodrigo
+## Maya Rudolph
 
-## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
+## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
-On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
 
-*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
-
-
-## Olivia Rodrigo
-
-## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
-
-In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
-
-*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
+*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
 
 
-## Olivia Rodrigo
+## Maya Rudolph
 
-## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
 
-COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
 
-*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
-
-
-## Olivia Rodrigo
-
-## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
-
-VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
-
-*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
+*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
 
 
-## Olivia Rodrigo
+## Maya Rudolph
 
-## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
-
-
-## Olivia Rodrigo
-
-## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
-
-Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
-
-*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
+*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
 
 
 ## Olivia Rodrigo
@@ -7208,58 +4778,31 @@ Last week, the Nike Air Max Sunder made its glorious, large-scale return by rere
 *Published on: Thu, 18 Jul 2024 08:51:59 GMT*
 
 
-## Obama
+## Olivia Rodrigo
 
-## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
+## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
-On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
 
-*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
-
-
-## Obama
-
-## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
-
-In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
-
-*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
+*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
 
 
-## Obama
+## Olivia Rodrigo
 
-## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
 
-COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
 
-*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
-
-
-## Obama
-
-## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
-
-VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
-
-*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
+*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
 
 
-## Obama
+## Olivia Rodrigo
 
-## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
-
-
-## Obama
-
-## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
-
-Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
-
-*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
+*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
 
 
 ## Obama
@@ -7289,58 +4832,31 @@ Last week, the Nike Air Max Sunder made its glorious, large-scale return by rere
 *Published on: Thu, 18 Jul 2024 08:51:59 GMT*
 
 
-## Nicki Minaj
+## Obama
 
-## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
+## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
-On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
 
-*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
-
-
-## Nicki Minaj
-
-## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
-
-In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
-
-*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
+*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
 
 
-## Nicki Minaj
+## Obama
 
-## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
 
-COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
 
-*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
-
-
-## Nicki Minaj
-
-## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
-
-VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
-
-*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
+*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
 
 
-## Nicki Minaj
+## Obama
 
-## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
-
-
-## Nicki Minaj
-
-## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
-
-Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
-
-*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
+*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
 
 
 ## Nicki Minaj
@@ -7370,58 +4886,31 @@ Last week, the Nike Air Max Sunder made its glorious, large-scale return by rere
 *Published on: Thu, 18 Jul 2024 08:51:59 GMT*
 
 
-## MrBeast
+## Nicki Minaj
 
-## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
+## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
-On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
 
-*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
-
-
-## MrBeast
-
-## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
-
-In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
-
-*Published on: Wed, 17 Jul 2024 10:06:04 GMT*
+*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
 
 
-## MrBeast
+## Nicki Minaj
 
-## [CdG's Nike Foamposites Return in Marble-ous Glory](https://www.highsnobiety.com/p/comme-des-garcons-cdg-nike-sneakers-2024/)
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
 
-COMME des GARÇONS and Nike are back together, and as you may have suspected, they didn't return to the spotlight empty-handed. The pair brought along more Nike…
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
 
-*Published on: Wed, 17 Jul 2024 10:13:07 GMT*
-
-
-## MrBeast
-
-## [Supreme Has Been Sold off (Again)](https://www.highsnobiety.com/p/supreme-sale-essilorluxottica/)
-
-VF Corporation is ready to rid itself of Supreme, four years after buying arguably the world’s most recognizable streetwear label. That's where EssilorLuxottic…
-
-*Published on: Wed, 17 Jul 2024 10:18:27 GMT*
+*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
 
 
-## MrBeast
+## Nicki Minaj
 
-## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Wed, 17 Jul 2024 11:00:00 GMT*
-
-
-## MrBeast
-
-## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
-
-Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
-
-*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
+*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
 
 
 ## MrBeast
@@ -7449,5 +4938,32 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
 
 *Published on: Thu, 18 Jul 2024 08:51:59 GMT*
+
+
+## MrBeast
+
+## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
+
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
+
+*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
+
+
+## MrBeast
+
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
+
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
+
+*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
+
+
+## MrBeast
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
 
 
