@@ -1,33 +1,6 @@
 # Latest Stories
 ## Tim Cook
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
-
-
-## Tim Cook
-
-## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
-
-
-## Tim Cook
-
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
-
-
-## Tim Cook
-
 ## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
 The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
@@ -55,33 +28,6 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 
 ## Taylor Swift
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
-
-
-## Taylor Swift
-
-## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
-
-
-## Taylor Swift
-
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
-
-
-## Taylor Swift
-
 ## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
 The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
@@ -109,33 +55,6 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 
 ## Tom Brady
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
-
-
-## Tom Brady
-
-## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
-
-
-## Tom Brady
-
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
-
-
-## Tom Brady
-
 ## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
 The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
@@ -163,33 +82,6 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 
 ## Tina Fey
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
-
-
-## Tina Fey
-
-## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
-
-
-## Tina Fey
-
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
-
-
-## Tina Fey
-
 ## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
 The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
@@ -217,33 +109,6 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 
 ## Steven Yuen
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
-
-
-## Steven Yuen
-
-## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
-
-
-## Steven Yuen
-
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
-
-
-## Steven Yuen
-
 ## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
 The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
@@ -271,33 +136,6 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 
 ## Sommer Ray
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
-
-
-## Sommer Ray
-
-## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
-
-
-## Sommer Ray
-
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
-
-
-## Sommer Ray
-
 ## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
 The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
@@ -325,33 +163,6 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 
 ## Sza
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
-
-
-## Sza
-
-## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
-
-
-## Sza
-
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
-
-
-## Sza
-
 ## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
 The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
@@ -379,33 +190,6 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 
 ## Sydney Sweeney
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
-
-
-## Sydney Sweeney
-
-## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
-
-
-## Sydney Sweeney
-
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
-
-
-## Sydney Sweeney
-
 ## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
 The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
@@ -433,33 +217,6 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 
 ## Walton Goggins
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
-
-
-## Walton Goggins
-
-## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
-
-
-## Walton Goggins
-
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
-
-
-## Walton Goggins
-
 ## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
 The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
@@ -487,33 +244,6 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 
 ## Tom Holland
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
-
-
-## Tom Holland
-
-## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
-
-
-## Tom Holland
-
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
-
-
-## Tom Holland
-
 ## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
 The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
@@ -541,33 +271,6 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 
 ## Gucci Mane
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
-
-
-## Gucci Mane
-
-## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
-
-
-## Gucci Mane
-
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
-
-
-## Gucci Mane
-
 ## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
 The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
@@ -595,33 +298,6 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 
 ## Harry Styles
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
-
-
-## Harry Styles
-
-## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
-
-
-## Harry Styles
-
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
-
-
-## Harry Styles
-
 ## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
 The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
@@ -649,33 +325,6 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 
 ## Jake Paul
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
-
-
-## Jake Paul
-
-## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
-
-
-## Jake Paul
-
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
-
-
-## Jake Paul
-
 ## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
 The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
@@ -703,33 +352,6 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 
 ## Jameela Jamil
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
-
-
-## Jameela Jamil
-
-## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
-
-
-## Jameela Jamil
-
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
-
-
-## Jameela Jamil
-
 ## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
 The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
@@ -757,33 +379,6 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 
 ## Elon Musk
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
-
-
-## Elon Musk
-
-## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
-
-
-## Elon Musk
-
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
-
-
-## Elon Musk
-
 ## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
 The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
@@ -811,33 +406,6 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 
 ## Gabrielle Union
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
-
-
-## Gabrielle Union
-
-## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
-
-
-## Gabrielle Union
-
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
-
-
-## Gabrielle Union
-
 ## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
 The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
@@ -865,33 +433,6 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 
 ## Giancarlo Esposito
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
-
-
-## Giancarlo Esposito
-
-## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
-
-
-## Giancarlo Esposito
-
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
-
-
-## Giancarlo Esposito
-
 ## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
 The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
@@ -919,33 +460,6 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 
 ## Gillian Jacobs
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
-
-
-## Gillian Jacobs
-
-## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
-
-
-## Gillian Jacobs
-
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
-
-
-## Gillian Jacobs
-
 ## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
 The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
@@ -973,33 +487,6 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 
 ## Jason Mantzoukas
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
-
-
-## Jason Mantzoukas
-
-## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
-
-
-## Jason Mantzoukas
-
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
-
-
-## Jason Mantzoukas
-
 ## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
 The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
@@ -1027,33 +514,6 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 
 ## JB Smoove
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
-
-
-## JB Smoove
-
-## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
-
-
-## JB Smoove
-
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
-
-
-## JB Smoove
-
 ## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
 The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
@@ -1081,33 +541,6 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 
 ## Madison Pettis
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
-
-
-## Madison Pettis
-
-## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
-
-
-## Madison Pettis
-
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
-
-
-## Madison Pettis
-
 ## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
 The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
@@ -1135,33 +568,6 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 
 ## Austin Butler
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
-
-
-## Austin Butler
-
-## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
-
-
-## Austin Butler
-
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
-
-
-## Austin Butler
-
 ## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
 The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
@@ -1189,33 +595,6 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 
 ## Mark Zuckerberg
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
-
-
-## Mark Zuckerberg
-
-## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
-
-
-## Mark Zuckerberg
-
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
-
-
-## Mark Zuckerberg
-
 ## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
 The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
@@ -1243,33 +622,6 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 
 ## Ariana Grande
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
-
-
-## Ariana Grande
-
-## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
-
-
-## Ariana Grande
-
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
-
-
-## Ariana Grande
-
 ## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
 The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
@@ -1297,33 +649,6 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 
 ## Livvy Dunne
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
-
-
-## Livvy Dunne
-
-## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
-
-
-## Livvy Dunne
-
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
-
-
-## Livvy Dunne
-
 ## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
 The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
@@ -1351,33 +676,6 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 
 ## Ali Wong
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
-
-
-## Ali Wong
-
-## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
-
-
-## Ali Wong
-
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
-
-
-## Ali Wong
-
 ## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
 The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
@@ -1405,33 +703,6 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 
 ## Lizzo
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
-
-
-## Lizzo
-
-## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
-
-
-## Lizzo
-
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
-
-
-## Lizzo
-
 ## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
 The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
@@ -1459,33 +730,6 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 
 ## Alison Brie
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
-
-
-## Alison Brie
-
-## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
-
-
-## Alison Brie
-
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
-
-
-## Alison Brie
-
 ## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
 The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
@@ -1513,33 +757,6 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 
 ## Lil Wayne
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
-
-
-## Lil Wayne
-
-## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
-
-
-## Lil Wayne
-
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
-
-
-## Lil Wayne
-
 ## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
 The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
@@ -1567,33 +784,6 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 
 ## Adele
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
-
-
-## Adele
-
-## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
-
-
-## Adele
-
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
-
-
-## Adele
-
 ## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
 The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
@@ -1621,33 +811,6 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 
 ## Lindsay Lohan
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
-
-
-## Lindsay Lohan
-
-## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
-
-
-## Lindsay Lohan
-
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
-
-
-## Lindsay Lohan
-
 ## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
 The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
@@ -1675,33 +838,6 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 
 ## Addison Rae
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
-
-
-## Addison Rae
-
-## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
-
-
-## Addison Rae
-
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
-
-
-## Addison Rae
-
 ## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
 The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
@@ -1729,33 +865,6 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 
 ## Latto
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
-
-
-## Latto
-
-## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
-
-
-## Latto
-
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
-
-
-## Latto
-
 ## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
 The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
@@ -1783,33 +892,6 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 
 ## Aaron Paul
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
-
-
-## Aaron Paul
-
-## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
-
-
-## Aaron Paul
-
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
-
-
-## Aaron Paul
-
 ## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
 The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
@@ -1837,33 +919,6 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 
 ## LeBron James
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
-
-
-## LeBron James
-
-## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
-
-
-## LeBron James
-
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
-
-
-## LeBron James
-
 ## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
 The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
@@ -1891,33 +946,6 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 
 ## 50 Cent
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
-
-
-## 50 Cent
-
-## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
-
-
-## 50 Cent
-
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
-
-
-## 50 Cent
-
 ## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
 The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
@@ -1945,33 +973,6 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 
 ## Kesha
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
-
-
-## Kesha
-
-## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
-
-
-## Kesha
-
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
-
-
-## Kesha
-
 ## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
 The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
@@ -1999,33 +1000,6 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 
 ## 21 Savage
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
-
-
-## 21 Savage
-
-## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
-
-
-## 21 Savage
-
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
-
-
-## 21 Savage
-
 ## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
 The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
@@ -2053,33 +1027,6 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 
 ## Larry David
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
-
-
-## Larry David
-
-## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
-
-
-## Larry David
-
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
-
-
-## Larry David
-
 ## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
 The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
@@ -2107,33 +1054,6 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 
 ## Seth Rogan
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
-
-
-## Seth Rogan
-
-## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
-
-
-## Seth Rogan
-
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
-
-
-## Seth Rogan
-
 ## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
 The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
@@ -2161,33 +1081,6 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 
 ## Simone Biles
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
-
-
-## Simone Biles
-
-## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
-
-
-## Simone Biles
-
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
-
-
-## Simone Biles
-
 ## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
 The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
@@ -2215,33 +1108,6 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 
 ## Pete Davidson
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
-
-
-## Pete Davidson
-
-## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
-
-
-## Pete Davidson
-
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
-
-
-## Pete Davidson
-
 ## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
 The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
@@ -2269,33 +1135,6 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 
 ## Prince Harry
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
-
-
-## Prince Harry
-
-## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
-
-
-## Prince Harry
-
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
-
-
-## Prince Harry
-
 ## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
 The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
@@ -2323,33 +1162,6 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 
 ## Princess of Wales
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
-
-
-## Princess of Wales
-
-## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
-
-
-## Princess of Wales
-
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
-
-
-## Princess of Wales
-
 ## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
 The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
@@ -2377,33 +1189,6 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 
 ## Rachel McAdams
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
-
-
-## Rachel McAdams
-
-## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
-
-
-## Rachel McAdams
-
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
-
-
-## Rachel McAdams
-
 ## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
 The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
@@ -2431,33 +1216,6 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 
 ## Reneé Rapp
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
-
-
-## Reneé Rapp
-
-## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
-
-
-## Reneé Rapp
-
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
-
-
-## Reneé Rapp
-
 ## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
 The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
@@ -2485,33 +1243,6 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 
 ## Rick Ross
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
-
-
-## Rick Ross
-
-## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
-
-
-## Rick Ross
-
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
-
-
-## Rick Ross
-
 ## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
 The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
@@ -2539,33 +1270,6 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 
 ## Sam Ashgari
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
-
-
-## Sam Ashgari
-
-## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
-
-
-## Sam Ashgari
-
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
-
-
-## Sam Ashgari
-
 ## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
 The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
@@ -2593,33 +1297,6 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 
 ## Sandra Oh
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
-
-
-## Sandra Oh
-
-## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
-
-
-## Sandra Oh
-
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
-
-
-## Sandra Oh
-
 ## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
 The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
@@ -2647,33 +1324,6 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 
 ## Donald Trump
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
-
-
-## Donald Trump
-
-## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
-
-
-## Donald Trump
-
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
-
-
-## Donald Trump
-
 ## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
 The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
@@ -2701,33 +1351,6 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 
 ## Diddy
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
-
-
-## Diddy
-
-## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
-
-
-## Diddy
-
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
-
-
-## Diddy
-
 ## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
 The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
@@ -2755,33 +1378,6 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 
 ## City Girls
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
-
-
-## City Girls
-
-## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
-
-
-## City Girls
-
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
-
-
-## City Girls
-
 ## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
 The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
@@ -2809,33 +1405,6 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 
 ## Chloe Bailey
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
-
-
-## Chloe Bailey
-
-## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
-
-
-## Chloe Bailey
-
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
-
-
-## Chloe Bailey
-
 ## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
 The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
@@ -2863,33 +1432,6 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 
 ## Charli D Amelio
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
-
-
-## Charli D Amelio
-
-## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
-
-
-## Charli D Amelio
-
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
-
-
-## Charli D Amelio
-
 ## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
 The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
@@ -2917,33 +1459,6 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 
 ## Cardi B
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
-
-
-## Cardi B
-
-## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
-
-
-## Cardi B
-
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
-
-
-## Cardi B
-
 ## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
 The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
@@ -2971,33 +1486,6 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 
 ## Bryan Cranston
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
-
-
-## Bryan Cranston
-
-## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
-
-
-## Bryan Cranston
-
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
-
-
-## Bryan Cranston
-
 ## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
 The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
@@ -3025,33 +1513,6 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 
 ## Brielle Biermann
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
-
-
-## Brielle Biermann
-
-## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
-
-
-## Brielle Biermann
-
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
-
-
-## Brielle Biermann
-
 ## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
 The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
@@ -3079,33 +1540,6 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 
 ## Dua Lipa
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
-
-
-## Dua Lipa
-
-## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
-
-
-## Dua Lipa
-
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
-
-
-## Dua Lipa
-
 ## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
 The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
@@ -3133,33 +1567,6 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 
 ## Drake
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
-
-
-## Drake
-
-## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
-
-
-## Drake
-
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
-
-
-## Drake
-
 ## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
 The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
@@ -3187,33 +1594,6 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 
 ## Jenner
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
-
-
-## Jenner
-
-## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
-
-
-## Jenner
-
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
-
-
-## Jenner
-
 ## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
 The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
@@ -3241,33 +1621,6 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 
 ## J. Cole
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
-
-
-## J. Cole
-
-## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
-
-
-## J. Cole
-
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
-
-
-## J. Cole
-
 ## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
 The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
@@ -3295,33 +1648,6 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 
 ## Jerrod Carmichael
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
-
-
-## Jerrod Carmichael
-
-## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
-
-
-## Jerrod Carmichael
-
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
-
-
-## Jerrod Carmichael
-
 ## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
 The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
@@ -3349,33 +1675,6 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 
 ## Jennifer Lawrence
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
-
-
-## Jennifer Lawrence
-
-## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
-
-
-## Jennifer Lawrence
-
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
-
-
-## Jennifer Lawrence
-
 ## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
 The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
@@ -3403,33 +1702,6 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 
 ## Joe Biden
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
-
-
-## Joe Biden
-
-## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
-
-
-## Joe Biden
-
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
-
-
-## Joe Biden
-
 ## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
 The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
@@ -3457,33 +1729,6 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 
 ## J.K. Simmons
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
-
-
-## J.K. Simmons
-
-## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
-
-
-## J.K. Simmons
-
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
-
-
-## J.K. Simmons
-
 ## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
 The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
@@ -3511,33 +1756,6 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 
 ## Kamala Harris
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
-
-
-## Kamala Harris
-
-## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
-
-
-## Kamala Harris
-
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
-
-
-## Kamala Harris
-
 ## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
 The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
@@ -3565,33 +1783,6 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 
 ## John C Reilly
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
-
-
-## John C Reilly
-
-## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
-
-
-## John C Reilly
-
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
-
-
-## John C Reilly
-
 ## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
 The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
@@ -3619,33 +1810,6 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 
 ## Kardashian
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
-
-
-## Kardashian
-
-## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
-
-
-## Kardashian
-
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
-
-
-## Kardashian
-
 ## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
 The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
@@ -3673,33 +1837,6 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 
 ## Kanye
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
-
-
-## Kanye
-
-## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
-
-
-## Kanye
-
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
-
-
-## Kanye
-
 ## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
 The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
@@ -3727,33 +1864,6 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 
 ## Zendaya
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
-
-
-## Zendaya
-
-## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
-
-
-## Zendaya
-
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
-
-
-## Zendaya
-
 ## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
 The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
@@ -3781,33 +1891,6 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 
 ## Will Ferrell
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
-
-
-## Will Ferrell
-
-## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
-
-
-## Will Ferrell
-
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
-
-
-## Will Ferrell
-
 ## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
 The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
@@ -3835,33 +1918,6 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 
 ## Zazie Beetz
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
-
-
-## Zazie Beetz
-
-## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
-
-
-## Zazie Beetz
-
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
-
-
-## Zazie Beetz
-
 ## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
 The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
@@ -3889,33 +1945,6 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 
 ## Bob Odenkirk
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
-
-
-## Bob Odenkirk
-
-## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
-
-
-## Bob Odenkirk
-
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
-
-
-## Bob Odenkirk
-
 ## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
 The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
@@ -3943,33 +1972,6 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 
 ## Brad Pitt
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
-
-
-## Brad Pitt
-
-## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
-
-
-## Brad Pitt
-
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
-
-
-## Brad Pitt
-
 ## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
 The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
@@ -3997,33 +1999,6 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 
 ## Beyoncé
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
-
-
-## Beyoncé
-
-## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
-
-
-## Beyoncé
-
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
-
-
-## Beyoncé
-
 ## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
 The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
@@ -4051,33 +2026,6 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 
 ## Bia
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
-
-
-## Bia
-
-## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
-
-
-## Bia
-
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
-
-
-## Bia
-
 ## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
 The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
@@ -4105,33 +2053,6 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 
 ## Avantika
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
-
-
-## Avantika
-
-## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
-
-
-## Avantika
-
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
-
-
-## Avantika
-
 ## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
 The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
@@ -4159,33 +2080,6 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 
 ## Bernie Sanders
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
-
-
-## Bernie Sanders
-
-## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
-
-
-## Bernie Sanders
-
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
-
-
-## Bernie Sanders
-
 ## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
 The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
@@ -4213,33 +2107,6 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 
 ## Big Sean
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
-
-
-## Big Sean
-
-## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
-
-
-## Big Sean
-
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
-
-
-## Big Sean
-
 ## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
 The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
@@ -4267,33 +2134,6 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 
 ## BlockBoy JB
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
-
-
-## BlockBoy JB
-
-## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
-
-
-## BlockBoy JB
-
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
-
-
-## BlockBoy JB
-
 ## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
 The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
@@ -4321,33 +2161,6 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 
 ## Biden
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
-
-
-## Biden
-
-## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
-
-
-## Biden
-
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
-
-
-## Biden
-
 ## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
 The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
@@ -4375,33 +2188,6 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 
 ## Bieber
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
-
-
-## Bieber
-
-## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
-
-
-## Bieber
-
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
-
-
-## Bieber
-
 ## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
 The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
@@ -4429,33 +2215,6 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 
 ## Paulina Porizkov
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
-
-
-## Paulina Porizkov
-
-## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
-
-
-## Paulina Porizkov
-
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
-
-
-## Paulina Porizkov
-
 ## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
 The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
@@ -4483,33 +2242,6 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 
 ## Paris Hilton
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
-
-
-## Paris Hilton
-
-## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
-
-
-## Paris Hilton
-
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
-
-
-## Paris Hilton
-
 ## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
 The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
@@ -4537,33 +2269,6 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 
 ## Metro Boomin
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
-
-
-## Metro Boomin
-
-## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
-
-
-## Metro Boomin
-
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
-
-
-## Metro Boomin
-
 ## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
 The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
@@ -4591,33 +2296,6 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 
 ## Meghan Markle
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
-
-
-## Meghan Markle
-
-## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
-
-
-## Meghan Markle
-
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
-
-
-## Meghan Markle
-
 ## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
 The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
@@ -4645,33 +2323,6 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 
 ## Megan Thee Stallion
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
-
-
-## Megan Thee Stallion
-
-## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
-
-
-## Megan Thee Stallion
-
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
-
-
-## Megan Thee Stallion
-
 ## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
 The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
@@ -4695,33 +2346,6 @@ Starface, beloved for its hydrocolloid pimple patches in bright colors and novel
 On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
 *Published on: Thu, 18 Jul 2024 15:47:38 GMT*
-
-
-## Maya Rudolph
-
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
-
-
-## Maya Rudolph
-
-## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
-
-
-## Maya Rudolph
-
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
 
 
 ## Maya Rudolph
@@ -4753,33 +2377,6 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 
 ## Olivia Rodrigo
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
-
-
-## Olivia Rodrigo
-
-## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
-
-
-## Olivia Rodrigo
-
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
-
-
-## Olivia Rodrigo
-
 ## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
 The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
@@ -4803,33 +2400,6 @@ Starface, beloved for its hydrocolloid pimple patches in bright colors and novel
 On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
 *Published on: Thu, 18 Jul 2024 15:47:38 GMT*
-
-
-## Obama
-
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
-
-
-## Obama
-
-## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
-
-
-## Obama
-
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
 
 
 ## Obama
@@ -4861,33 +2431,6 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 
 ## Nicki Minaj
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
-
-
-## Nicki Minaj
-
-## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
-
-
-## Nicki Minaj
-
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
-
-
-## Nicki Minaj
-
 ## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
 The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
@@ -4911,33 +2454,6 @@ Starface, beloved for its hydrocolloid pimple patches in bright colors and novel
 On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
 *Published on: Thu, 18 Jul 2024 15:47:38 GMT*
-
-
-## MrBeast
-
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
-
-
-## MrBeast
-
-## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
-
-
-## MrBeast
-
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
 
 
 ## MrBeast
