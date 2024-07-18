@@ -1,6 +1,24 @@
 # Latest Stories
 ## Tim Cook
 
+## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
+
+There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
+
+*Published on: Wed, 17 Jul 2024 08:49:16 GMT*
+
+
+## Tim Cook
+
+## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
+
+Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
+
+*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
+
+
+## Tim Cook
+
 ## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
 
 On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
@@ -37,15 +55,6 @@ VF Corporation is ready to rid itself of Supreme, four years after buying arguab
 
 ## Tim Cook
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
-
-
-## Tim Cook
-
 ## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
 
 Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
@@ -55,29 +64,20 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Tim Cook
 
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
-
-
-## Tim Cook
-
 ## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
 
 Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
 
-*Published on: Wed, 17 Jul 2024 15:53:21 GMT*
+*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
 
 
 ## Tim Cook
 
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
 
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
-*Published on: Wed, 17 Jul 2024 17:19:38 GMT*
+*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
 ## Tim Cook
@@ -89,22 +89,22 @@ When it comes to high fashion's sneaker offering, regular readers of Highsnobiet
 *Published on: Wed, 17 Jul 2024 08:10:40 GMT*
 
 
-## Tim Cook
-
-## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
-
-Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
-
-*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
-
-
-## Tim Cook
+## Taylor Swift
 
 ## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
 
 There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
 
 *Published on: Wed, 17 Jul 2024 08:49:16 GMT*
+
+
+## Taylor Swift
+
+## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
+
+Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
+
+*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
 
 
 ## Taylor Swift
@@ -145,15 +145,6 @@ VF Corporation is ready to rid itself of Supreme, four years after buying arguab
 
 ## Taylor Swift
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
-
-
-## Taylor Swift
-
 ## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
 
 Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
@@ -163,29 +154,20 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Taylor Swift
 
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
-
-
-## Taylor Swift
-
 ## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
 
 Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
 
-*Published on: Wed, 17 Jul 2024 15:53:21 GMT*
+*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
 
 
 ## Taylor Swift
 
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
 
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
-*Published on: Wed, 17 Jul 2024 17:19:38 GMT*
+*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
 ## Taylor Swift
@@ -197,22 +179,22 @@ When it comes to high fashion's sneaker offering, regular readers of Highsnobiet
 *Published on: Wed, 17 Jul 2024 08:10:40 GMT*
 
 
-## Taylor Swift
-
-## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
-
-Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
-
-*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
-
-
-## Taylor Swift
+## Tom Brady
 
 ## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
 
 There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
 
 *Published on: Wed, 17 Jul 2024 08:49:16 GMT*
+
+
+## Tom Brady
+
+## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
+
+Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
+
+*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
 
 
 ## Tom Brady
@@ -253,15 +235,6 @@ VF Corporation is ready to rid itself of Supreme, four years after buying arguab
 
 ## Tom Brady
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
-
-
-## Tom Brady
-
 ## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
 
 Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
@@ -271,29 +244,20 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Tom Brady
 
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
-
-
-## Tom Brady
-
 ## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
 
 Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
 
-*Published on: Wed, 17 Jul 2024 15:53:21 GMT*
+*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
 
 
 ## Tom Brady
 
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
 
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
-*Published on: Wed, 17 Jul 2024 17:19:38 GMT*
+*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
 ## Tom Brady
@@ -305,22 +269,22 @@ When it comes to high fashion's sneaker offering, regular readers of Highsnobiet
 *Published on: Wed, 17 Jul 2024 08:10:40 GMT*
 
 
-## Tom Brady
-
-## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
-
-Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
-
-*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
-
-
-## Tom Brady
+## Tina Fey
 
 ## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
 
 There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
 
 *Published on: Wed, 17 Jul 2024 08:49:16 GMT*
+
+
+## Tina Fey
+
+## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
+
+Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
+
+*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
 
 
 ## Tina Fey
@@ -361,15 +325,6 @@ VF Corporation is ready to rid itself of Supreme, four years after buying arguab
 
 ## Tina Fey
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
-
-
-## Tina Fey
-
 ## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
 
 Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
@@ -379,29 +334,20 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Tina Fey
 
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
-
-
-## Tina Fey
-
 ## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
 
 Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
 
-*Published on: Wed, 17 Jul 2024 15:53:21 GMT*
+*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
 
 
 ## Tina Fey
 
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
 
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
-*Published on: Wed, 17 Jul 2024 17:19:38 GMT*
+*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
 ## Tina Fey
@@ -413,22 +359,22 @@ When it comes to high fashion's sneaker offering, regular readers of Highsnobiet
 *Published on: Wed, 17 Jul 2024 08:10:40 GMT*
 
 
-## Tina Fey
-
-## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
-
-Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
-
-*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
-
-
-## Tina Fey
+## Steven Yuen
 
 ## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
 
 There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
 
 *Published on: Wed, 17 Jul 2024 08:49:16 GMT*
+
+
+## Steven Yuen
+
+## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
+
+Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
+
+*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
 
 
 ## Steven Yuen
@@ -469,15 +415,6 @@ VF Corporation is ready to rid itself of Supreme, four years after buying arguab
 
 ## Steven Yuen
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
-
-
-## Steven Yuen
-
 ## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
 
 Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
@@ -487,29 +424,20 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Steven Yuen
 
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
-
-
-## Steven Yuen
-
 ## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
 
 Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
 
-*Published on: Wed, 17 Jul 2024 15:53:21 GMT*
+*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
 
 
 ## Steven Yuen
 
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
 
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
-*Published on: Wed, 17 Jul 2024 17:19:38 GMT*
+*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
 ## Steven Yuen
@@ -521,22 +449,22 @@ When it comes to high fashion's sneaker offering, regular readers of Highsnobiet
 *Published on: Wed, 17 Jul 2024 08:10:40 GMT*
 
 
-## Steven Yuen
-
-## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
-
-Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
-
-*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
-
-
-## Steven Yuen
+## Sommer Ray
 
 ## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
 
 There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
 
 *Published on: Wed, 17 Jul 2024 08:49:16 GMT*
+
+
+## Sommer Ray
+
+## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
+
+Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
+
+*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
 
 
 ## Sommer Ray
@@ -577,15 +505,6 @@ VF Corporation is ready to rid itself of Supreme, four years after buying arguab
 
 ## Sommer Ray
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
-
-
-## Sommer Ray
-
 ## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
 
 Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
@@ -595,29 +514,20 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Sommer Ray
 
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
-
-
-## Sommer Ray
-
 ## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
 
 Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
 
-*Published on: Wed, 17 Jul 2024 15:53:21 GMT*
+*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
 
 
 ## Sommer Ray
 
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
 
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
-*Published on: Wed, 17 Jul 2024 17:19:38 GMT*
+*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
 ## Sommer Ray
@@ -629,22 +539,22 @@ When it comes to high fashion's sneaker offering, regular readers of Highsnobiet
 *Published on: Wed, 17 Jul 2024 08:10:40 GMT*
 
 
-## Sommer Ray
-
-## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
-
-Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
-
-*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
-
-
-## Sommer Ray
+## Sza
 
 ## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
 
 There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
 
 *Published on: Wed, 17 Jul 2024 08:49:16 GMT*
+
+
+## Sza
+
+## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
+
+Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
+
+*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
 
 
 ## Sza
@@ -685,15 +595,6 @@ VF Corporation is ready to rid itself of Supreme, four years after buying arguab
 
 ## Sza
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
-
-
-## Sza
-
 ## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
 
 Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
@@ -703,29 +604,20 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Sza
 
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
-
-
-## Sza
-
 ## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
 
 Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
 
-*Published on: Wed, 17 Jul 2024 15:53:21 GMT*
+*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
 
 
 ## Sza
 
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
 
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
-*Published on: Wed, 17 Jul 2024 17:19:38 GMT*
+*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
 ## Sza
@@ -737,22 +629,22 @@ When it comes to high fashion's sneaker offering, regular readers of Highsnobiet
 *Published on: Wed, 17 Jul 2024 08:10:40 GMT*
 
 
-## Sza
-
-## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
-
-Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
-
-*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
-
-
-## Sza
+## Sydney Sweeney
 
 ## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
 
 There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
 
 *Published on: Wed, 17 Jul 2024 08:49:16 GMT*
+
+
+## Sydney Sweeney
+
+## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
+
+Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
+
+*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
 
 
 ## Sydney Sweeney
@@ -793,15 +685,6 @@ VF Corporation is ready to rid itself of Supreme, four years after buying arguab
 
 ## Sydney Sweeney
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
-
-
-## Sydney Sweeney
-
 ## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
 
 Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
@@ -811,29 +694,20 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Sydney Sweeney
 
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
-
-
-## Sydney Sweeney
-
 ## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
 
 Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
 
-*Published on: Wed, 17 Jul 2024 15:53:21 GMT*
+*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
 
 
 ## Sydney Sweeney
 
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
 
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
-*Published on: Wed, 17 Jul 2024 17:19:38 GMT*
+*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
 ## Sydney Sweeney
@@ -845,22 +719,22 @@ When it comes to high fashion's sneaker offering, regular readers of Highsnobiet
 *Published on: Wed, 17 Jul 2024 08:10:40 GMT*
 
 
-## Sydney Sweeney
-
-## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
-
-Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
-
-*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
-
-
-## Sydney Sweeney
+## Walton Goggins
 
 ## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
 
 There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
 
 *Published on: Wed, 17 Jul 2024 08:49:16 GMT*
+
+
+## Walton Goggins
+
+## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
+
+Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
+
+*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
 
 
 ## Walton Goggins
@@ -901,15 +775,6 @@ VF Corporation is ready to rid itself of Supreme, four years after buying arguab
 
 ## Walton Goggins
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
-
-
-## Walton Goggins
-
 ## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
 
 Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
@@ -919,29 +784,20 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Walton Goggins
 
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
-
-
-## Walton Goggins
-
 ## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
 
 Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
 
-*Published on: Wed, 17 Jul 2024 15:53:21 GMT*
+*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
 
 
 ## Walton Goggins
 
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
 
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
-*Published on: Wed, 17 Jul 2024 17:19:38 GMT*
+*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
 ## Walton Goggins
@@ -953,22 +809,22 @@ When it comes to high fashion's sneaker offering, regular readers of Highsnobiet
 *Published on: Wed, 17 Jul 2024 08:10:40 GMT*
 
 
-## Walton Goggins
-
-## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
-
-Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
-
-*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
-
-
-## Walton Goggins
+## Tom Holland
 
 ## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
 
 There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
 
 *Published on: Wed, 17 Jul 2024 08:49:16 GMT*
+
+
+## Tom Holland
+
+## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
+
+Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
+
+*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
 
 
 ## Tom Holland
@@ -1009,15 +865,6 @@ VF Corporation is ready to rid itself of Supreme, four years after buying arguab
 
 ## Tom Holland
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
-
-
-## Tom Holland
-
 ## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
 
 Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
@@ -1027,29 +874,20 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Tom Holland
 
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
-
-
-## Tom Holland
-
 ## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
 
 Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
 
-*Published on: Wed, 17 Jul 2024 15:53:21 GMT*
+*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
 
 
 ## Tom Holland
 
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
 
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
-*Published on: Wed, 17 Jul 2024 17:19:38 GMT*
+*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
 ## Tom Holland
@@ -1061,22 +899,22 @@ When it comes to high fashion's sneaker offering, regular readers of Highsnobiet
 *Published on: Wed, 17 Jul 2024 08:10:40 GMT*
 
 
-## Tom Holland
-
-## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
-
-Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
-
-*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
-
-
-## Tom Holland
+## Gucci Mane
 
 ## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
 
 There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
 
 *Published on: Wed, 17 Jul 2024 08:49:16 GMT*
+
+
+## Gucci Mane
+
+## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
+
+Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
+
+*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
 
 
 ## Gucci Mane
@@ -1117,15 +955,6 @@ VF Corporation is ready to rid itself of Supreme, four years after buying arguab
 
 ## Gucci Mane
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
-
-
-## Gucci Mane
-
 ## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
 
 Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
@@ -1135,29 +964,20 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Gucci Mane
 
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
-
-
-## Gucci Mane
-
 ## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
 
 Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
 
-*Published on: Wed, 17 Jul 2024 15:53:21 GMT*
+*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
 
 
 ## Gucci Mane
 
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
 
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
-*Published on: Wed, 17 Jul 2024 17:19:38 GMT*
+*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
 ## Gucci Mane
@@ -1169,22 +989,22 @@ When it comes to high fashion's sneaker offering, regular readers of Highsnobiet
 *Published on: Wed, 17 Jul 2024 08:10:40 GMT*
 
 
-## Gucci Mane
-
-## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
-
-Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
-
-*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
-
-
-## Gucci Mane
+## Harry Styles
 
 ## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
 
 There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
 
 *Published on: Wed, 17 Jul 2024 08:49:16 GMT*
+
+
+## Harry Styles
+
+## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
+
+Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
+
+*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
 
 
 ## Harry Styles
@@ -1225,15 +1045,6 @@ VF Corporation is ready to rid itself of Supreme, four years after buying arguab
 
 ## Harry Styles
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
-
-
-## Harry Styles
-
 ## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
 
 Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
@@ -1243,29 +1054,20 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Harry Styles
 
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
-
-
-## Harry Styles
-
 ## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
 
 Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
 
-*Published on: Wed, 17 Jul 2024 15:53:21 GMT*
+*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
 
 
 ## Harry Styles
 
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
 
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
-*Published on: Wed, 17 Jul 2024 17:19:38 GMT*
+*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
 ## Harry Styles
@@ -1277,22 +1079,22 @@ When it comes to high fashion's sneaker offering, regular readers of Highsnobiet
 *Published on: Wed, 17 Jul 2024 08:10:40 GMT*
 
 
-## Harry Styles
-
-## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
-
-Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
-
-*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
-
-
-## Harry Styles
+## Jake Paul
 
 ## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
 
 There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
 
 *Published on: Wed, 17 Jul 2024 08:49:16 GMT*
+
+
+## Jake Paul
+
+## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
+
+Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
+
+*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
 
 
 ## Jake Paul
@@ -1333,15 +1135,6 @@ VF Corporation is ready to rid itself of Supreme, four years after buying arguab
 
 ## Jake Paul
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
-
-
-## Jake Paul
-
 ## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
 
 Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
@@ -1351,29 +1144,20 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Jake Paul
 
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
-
-
-## Jake Paul
-
 ## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
 
 Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
 
-*Published on: Wed, 17 Jul 2024 15:53:21 GMT*
+*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
 
 
 ## Jake Paul
 
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
 
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
-*Published on: Wed, 17 Jul 2024 17:19:38 GMT*
+*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
 ## Jake Paul
@@ -1385,22 +1169,22 @@ When it comes to high fashion's sneaker offering, regular readers of Highsnobiet
 *Published on: Wed, 17 Jul 2024 08:10:40 GMT*
 
 
-## Jake Paul
-
-## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
-
-Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
-
-*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
-
-
-## Jake Paul
+## Jameela Jamil
 
 ## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
 
 There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
 
 *Published on: Wed, 17 Jul 2024 08:49:16 GMT*
+
+
+## Jameela Jamil
+
+## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
+
+Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
+
+*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
 
 
 ## Jameela Jamil
@@ -1441,15 +1225,6 @@ VF Corporation is ready to rid itself of Supreme, four years after buying arguab
 
 ## Jameela Jamil
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
-
-
-## Jameela Jamil
-
 ## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
 
 Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
@@ -1459,29 +1234,20 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Jameela Jamil
 
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
-
-
-## Jameela Jamil
-
 ## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
 
 Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
 
-*Published on: Wed, 17 Jul 2024 15:53:21 GMT*
+*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
 
 
 ## Jameela Jamil
 
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
 
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
-*Published on: Wed, 17 Jul 2024 17:19:38 GMT*
+*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
 ## Jameela Jamil
@@ -1493,22 +1259,22 @@ When it comes to high fashion's sneaker offering, regular readers of Highsnobiet
 *Published on: Wed, 17 Jul 2024 08:10:40 GMT*
 
 
-## Jameela Jamil
-
-## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
-
-Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
-
-*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
-
-
-## Jameela Jamil
+## Elon Musk
 
 ## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
 
 There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
 
 *Published on: Wed, 17 Jul 2024 08:49:16 GMT*
+
+
+## Elon Musk
+
+## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
+
+Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
+
+*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
 
 
 ## Elon Musk
@@ -1549,15 +1315,6 @@ VF Corporation is ready to rid itself of Supreme, four years after buying arguab
 
 ## Elon Musk
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
-
-
-## Elon Musk
-
 ## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
 
 Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
@@ -1567,29 +1324,20 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Elon Musk
 
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
-
-
-## Elon Musk
-
 ## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
 
 Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
 
-*Published on: Wed, 17 Jul 2024 15:53:21 GMT*
+*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
 
 
 ## Elon Musk
 
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
 
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
-*Published on: Wed, 17 Jul 2024 17:19:38 GMT*
+*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
 ## Elon Musk
@@ -1601,22 +1349,22 @@ When it comes to high fashion's sneaker offering, regular readers of Highsnobiet
 *Published on: Wed, 17 Jul 2024 08:10:40 GMT*
 
 
-## Elon Musk
-
-## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
-
-Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
-
-*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
-
-
-## Elon Musk
+## Gabrielle Union
 
 ## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
 
 There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
 
 *Published on: Wed, 17 Jul 2024 08:49:16 GMT*
+
+
+## Gabrielle Union
+
+## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
+
+Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
+
+*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
 
 
 ## Gabrielle Union
@@ -1657,15 +1405,6 @@ VF Corporation is ready to rid itself of Supreme, four years after buying arguab
 
 ## Gabrielle Union
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
-
-
-## Gabrielle Union
-
 ## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
 
 Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
@@ -1675,29 +1414,20 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Gabrielle Union
 
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
-
-
-## Gabrielle Union
-
 ## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
 
 Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
 
-*Published on: Wed, 17 Jul 2024 15:53:21 GMT*
+*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
 
 
 ## Gabrielle Union
 
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
 
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
-*Published on: Wed, 17 Jul 2024 17:19:38 GMT*
+*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
 ## Gabrielle Union
@@ -1709,22 +1439,22 @@ When it comes to high fashion's sneaker offering, regular readers of Highsnobiet
 *Published on: Wed, 17 Jul 2024 08:10:40 GMT*
 
 
-## Gabrielle Union
-
-## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
-
-Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
-
-*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
-
-
-## Gabrielle Union
+## Giancarlo Esposito
 
 ## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
 
 There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
 
 *Published on: Wed, 17 Jul 2024 08:49:16 GMT*
+
+
+## Giancarlo Esposito
+
+## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
+
+Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
+
+*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
 
 
 ## Giancarlo Esposito
@@ -1765,15 +1495,6 @@ VF Corporation is ready to rid itself of Supreme, four years after buying arguab
 
 ## Giancarlo Esposito
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
-
-
-## Giancarlo Esposito
-
 ## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
 
 Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
@@ -1783,29 +1504,20 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Giancarlo Esposito
 
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
-
-
-## Giancarlo Esposito
-
 ## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
 
 Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
 
-*Published on: Wed, 17 Jul 2024 15:53:21 GMT*
+*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
 
 
 ## Giancarlo Esposito
 
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
 
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
-*Published on: Wed, 17 Jul 2024 17:19:38 GMT*
+*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
 ## Giancarlo Esposito
@@ -1817,22 +1529,22 @@ When it comes to high fashion's sneaker offering, regular readers of Highsnobiet
 *Published on: Wed, 17 Jul 2024 08:10:40 GMT*
 
 
-## Giancarlo Esposito
-
-## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
-
-Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
-
-*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
-
-
-## Giancarlo Esposito
+## Gillian Jacobs
 
 ## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
 
 There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
 
 *Published on: Wed, 17 Jul 2024 08:49:16 GMT*
+
+
+## Gillian Jacobs
+
+## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
+
+Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
+
+*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
 
 
 ## Gillian Jacobs
@@ -1873,15 +1585,6 @@ VF Corporation is ready to rid itself of Supreme, four years after buying arguab
 
 ## Gillian Jacobs
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
-
-
-## Gillian Jacobs
-
 ## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
 
 Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
@@ -1891,29 +1594,20 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Gillian Jacobs
 
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
-
-
-## Gillian Jacobs
-
 ## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
 
 Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
 
-*Published on: Wed, 17 Jul 2024 15:53:21 GMT*
+*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
 
 
 ## Gillian Jacobs
 
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
 
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
-*Published on: Wed, 17 Jul 2024 17:19:38 GMT*
+*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
 ## Gillian Jacobs
@@ -1925,22 +1619,22 @@ When it comes to high fashion's sneaker offering, regular readers of Highsnobiet
 *Published on: Wed, 17 Jul 2024 08:10:40 GMT*
 
 
-## Gillian Jacobs
-
-## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
-
-Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
-
-*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
-
-
-## Gillian Jacobs
+## Jason Mantzoukas
 
 ## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
 
 There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
 
 *Published on: Wed, 17 Jul 2024 08:49:16 GMT*
+
+
+## Jason Mantzoukas
+
+## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
+
+Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
+
+*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
 
 
 ## Jason Mantzoukas
@@ -1981,15 +1675,6 @@ VF Corporation is ready to rid itself of Supreme, four years after buying arguab
 
 ## Jason Mantzoukas
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
-
-
-## Jason Mantzoukas
-
 ## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
 
 Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
@@ -1999,29 +1684,20 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Jason Mantzoukas
 
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
-
-
-## Jason Mantzoukas
-
 ## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
 
 Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
 
-*Published on: Wed, 17 Jul 2024 15:53:21 GMT*
+*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
 
 
 ## Jason Mantzoukas
 
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
 
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
-*Published on: Wed, 17 Jul 2024 17:19:38 GMT*
+*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
 ## Jason Mantzoukas
@@ -2033,22 +1709,22 @@ When it comes to high fashion's sneaker offering, regular readers of Highsnobiet
 *Published on: Wed, 17 Jul 2024 08:10:40 GMT*
 
 
-## Jason Mantzoukas
-
-## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
-
-Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
-
-*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
-
-
-## Jason Mantzoukas
+## JB Smoove
 
 ## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
 
 There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
 
 *Published on: Wed, 17 Jul 2024 08:49:16 GMT*
+
+
+## JB Smoove
+
+## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
+
+Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
+
+*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
 
 
 ## JB Smoove
@@ -2089,15 +1765,6 @@ VF Corporation is ready to rid itself of Supreme, four years after buying arguab
 
 ## JB Smoove
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
-
-
-## JB Smoove
-
 ## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
 
 Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
@@ -2107,29 +1774,20 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## JB Smoove
 
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
-
-
-## JB Smoove
-
 ## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
 
 Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
 
-*Published on: Wed, 17 Jul 2024 15:53:21 GMT*
+*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
 
 
 ## JB Smoove
 
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
 
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
-*Published on: Wed, 17 Jul 2024 17:19:38 GMT*
+*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
 ## JB Smoove
@@ -2141,22 +1799,22 @@ When it comes to high fashion's sneaker offering, regular readers of Highsnobiet
 *Published on: Wed, 17 Jul 2024 08:10:40 GMT*
 
 
-## JB Smoove
-
-## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
-
-Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
-
-*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
-
-
-## JB Smoove
+## Madison Pettis
 
 ## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
 
 There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
 
 *Published on: Wed, 17 Jul 2024 08:49:16 GMT*
+
+
+## Madison Pettis
+
+## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
+
+Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
+
+*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
 
 
 ## Madison Pettis
@@ -2197,15 +1855,6 @@ VF Corporation is ready to rid itself of Supreme, four years after buying arguab
 
 ## Madison Pettis
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
-
-
-## Madison Pettis
-
 ## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
 
 Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
@@ -2215,29 +1864,20 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Madison Pettis
 
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
-
-
-## Madison Pettis
-
 ## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
 
 Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
 
-*Published on: Wed, 17 Jul 2024 15:53:21 GMT*
+*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
 
 
 ## Madison Pettis
 
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
 
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
-*Published on: Wed, 17 Jul 2024 17:19:38 GMT*
+*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
 ## Madison Pettis
@@ -2249,22 +1889,22 @@ When it comes to high fashion's sneaker offering, regular readers of Highsnobiet
 *Published on: Wed, 17 Jul 2024 08:10:40 GMT*
 
 
-## Madison Pettis
-
-## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
-
-Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
-
-*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
-
-
-## Madison Pettis
+## Austin Butler
 
 ## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
 
 There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
 
 *Published on: Wed, 17 Jul 2024 08:49:16 GMT*
+
+
+## Austin Butler
+
+## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
+
+Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
+
+*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
 
 
 ## Austin Butler
@@ -2305,15 +1945,6 @@ VF Corporation is ready to rid itself of Supreme, four years after buying arguab
 
 ## Austin Butler
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
-
-
-## Austin Butler
-
 ## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
 
 Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
@@ -2323,29 +1954,20 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Austin Butler
 
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
-
-
-## Austin Butler
-
 ## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
 
 Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
 
-*Published on: Wed, 17 Jul 2024 15:53:21 GMT*
+*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
 
 
 ## Austin Butler
 
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
 
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
-*Published on: Wed, 17 Jul 2024 17:19:38 GMT*
+*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
 ## Austin Butler
@@ -2357,22 +1979,22 @@ When it comes to high fashion's sneaker offering, regular readers of Highsnobiet
 *Published on: Wed, 17 Jul 2024 08:10:40 GMT*
 
 
-## Austin Butler
-
-## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
-
-Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
-
-*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
-
-
-## Austin Butler
+## Mark Zuckerberg
 
 ## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
 
 There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
 
 *Published on: Wed, 17 Jul 2024 08:49:16 GMT*
+
+
+## Mark Zuckerberg
+
+## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
+
+Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
+
+*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
 
 
 ## Mark Zuckerberg
@@ -2413,15 +2035,6 @@ VF Corporation is ready to rid itself of Supreme, four years after buying arguab
 
 ## Mark Zuckerberg
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
-
-
-## Mark Zuckerberg
-
 ## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
 
 Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
@@ -2431,29 +2044,20 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Mark Zuckerberg
 
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
-
-
-## Mark Zuckerberg
-
 ## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
 
 Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
 
-*Published on: Wed, 17 Jul 2024 15:53:21 GMT*
+*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
 
 
 ## Mark Zuckerberg
 
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
 
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
-*Published on: Wed, 17 Jul 2024 17:19:38 GMT*
+*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
 ## Mark Zuckerberg
@@ -2465,22 +2069,22 @@ When it comes to high fashion's sneaker offering, regular readers of Highsnobiet
 *Published on: Wed, 17 Jul 2024 08:10:40 GMT*
 
 
-## Mark Zuckerberg
-
-## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
-
-Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
-
-*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
-
-
-## Mark Zuckerberg
+## Ariana Grande
 
 ## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
 
 There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
 
 *Published on: Wed, 17 Jul 2024 08:49:16 GMT*
+
+
+## Ariana Grande
+
+## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
+
+Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
+
+*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
 
 
 ## Ariana Grande
@@ -2521,15 +2125,6 @@ VF Corporation is ready to rid itself of Supreme, four years after buying arguab
 
 ## Ariana Grande
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
-
-
-## Ariana Grande
-
 ## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
 
 Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
@@ -2539,29 +2134,20 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Ariana Grande
 
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
-
-
-## Ariana Grande
-
 ## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
 
 Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
 
-*Published on: Wed, 17 Jul 2024 15:53:21 GMT*
+*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
 
 
 ## Ariana Grande
 
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
 
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
-*Published on: Wed, 17 Jul 2024 17:19:38 GMT*
+*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
 ## Ariana Grande
@@ -2573,22 +2159,22 @@ When it comes to high fashion's sneaker offering, regular readers of Highsnobiet
 *Published on: Wed, 17 Jul 2024 08:10:40 GMT*
 
 
-## Ariana Grande
-
-## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
-
-Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
-
-*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
-
-
-## Ariana Grande
+## Livvy Dunne
 
 ## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
 
 There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
 
 *Published on: Wed, 17 Jul 2024 08:49:16 GMT*
+
+
+## Livvy Dunne
+
+## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
+
+Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
+
+*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
 
 
 ## Livvy Dunne
@@ -2629,15 +2215,6 @@ VF Corporation is ready to rid itself of Supreme, four years after buying arguab
 
 ## Livvy Dunne
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
-
-
-## Livvy Dunne
-
 ## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
 
 Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
@@ -2647,29 +2224,20 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Livvy Dunne
 
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
-
-
-## Livvy Dunne
-
 ## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
 
 Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
 
-*Published on: Wed, 17 Jul 2024 15:53:21 GMT*
+*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
 
 
 ## Livvy Dunne
 
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
 
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
-*Published on: Wed, 17 Jul 2024 17:19:38 GMT*
+*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
 ## Livvy Dunne
@@ -2681,22 +2249,22 @@ When it comes to high fashion's sneaker offering, regular readers of Highsnobiet
 *Published on: Wed, 17 Jul 2024 08:10:40 GMT*
 
 
-## Livvy Dunne
-
-## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
-
-Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
-
-*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
-
-
-## Livvy Dunne
+## Ali Wong
 
 ## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
 
 There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
 
 *Published on: Wed, 17 Jul 2024 08:49:16 GMT*
+
+
+## Ali Wong
+
+## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
+
+Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
+
+*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
 
 
 ## Ali Wong
@@ -2737,15 +2305,6 @@ VF Corporation is ready to rid itself of Supreme, four years after buying arguab
 
 ## Ali Wong
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
-
-
-## Ali Wong
-
 ## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
 
 Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
@@ -2755,29 +2314,20 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Ali Wong
 
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
-
-
-## Ali Wong
-
 ## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
 
 Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
 
-*Published on: Wed, 17 Jul 2024 15:53:21 GMT*
+*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
 
 
 ## Ali Wong
 
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
 
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
-*Published on: Wed, 17 Jul 2024 17:19:38 GMT*
+*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
 ## Ali Wong
@@ -2789,22 +2339,22 @@ When it comes to high fashion's sneaker offering, regular readers of Highsnobiet
 *Published on: Wed, 17 Jul 2024 08:10:40 GMT*
 
 
-## Ali Wong
-
-## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
-
-Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
-
-*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
-
-
-## Ali Wong
+## Lizzo
 
 ## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
 
 There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
 
 *Published on: Wed, 17 Jul 2024 08:49:16 GMT*
+
+
+## Lizzo
+
+## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
+
+Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
+
+*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
 
 
 ## Lizzo
@@ -2845,15 +2395,6 @@ VF Corporation is ready to rid itself of Supreme, four years after buying arguab
 
 ## Lizzo
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
-
-
-## Lizzo
-
 ## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
 
 Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
@@ -2863,29 +2404,20 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Lizzo
 
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
-
-
-## Lizzo
-
 ## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
 
 Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
 
-*Published on: Wed, 17 Jul 2024 15:53:21 GMT*
+*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
 
 
 ## Lizzo
 
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
 
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
-*Published on: Wed, 17 Jul 2024 17:19:38 GMT*
+*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
 ## Lizzo
@@ -2897,22 +2429,22 @@ When it comes to high fashion's sneaker offering, regular readers of Highsnobiet
 *Published on: Wed, 17 Jul 2024 08:10:40 GMT*
 
 
-## Lizzo
-
-## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
-
-Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
-
-*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
-
-
-## Lizzo
+## Alison Brie
 
 ## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
 
 There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
 
 *Published on: Wed, 17 Jul 2024 08:49:16 GMT*
+
+
+## Alison Brie
+
+## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
+
+Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
+
+*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
 
 
 ## Alison Brie
@@ -2953,15 +2485,6 @@ VF Corporation is ready to rid itself of Supreme, four years after buying arguab
 
 ## Alison Brie
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
-
-
-## Alison Brie
-
 ## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
 
 Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
@@ -2971,29 +2494,20 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Alison Brie
 
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
-
-
-## Alison Brie
-
 ## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
 
 Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
 
-*Published on: Wed, 17 Jul 2024 15:53:21 GMT*
+*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
 
 
 ## Alison Brie
 
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
 
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
-*Published on: Wed, 17 Jul 2024 17:19:38 GMT*
+*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
 ## Alison Brie
@@ -3005,22 +2519,22 @@ When it comes to high fashion's sneaker offering, regular readers of Highsnobiet
 *Published on: Wed, 17 Jul 2024 08:10:40 GMT*
 
 
-## Alison Brie
-
-## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
-
-Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
-
-*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
-
-
-## Alison Brie
+## Lil Wayne
 
 ## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
 
 There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
 
 *Published on: Wed, 17 Jul 2024 08:49:16 GMT*
+
+
+## Lil Wayne
+
+## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
+
+Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
+
+*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
 
 
 ## Lil Wayne
@@ -3061,15 +2575,6 @@ VF Corporation is ready to rid itself of Supreme, four years after buying arguab
 
 ## Lil Wayne
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
-
-
-## Lil Wayne
-
 ## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
 
 Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
@@ -3079,29 +2584,20 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Lil Wayne
 
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
-
-
-## Lil Wayne
-
 ## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
 
 Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
 
-*Published on: Wed, 17 Jul 2024 15:53:21 GMT*
+*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
 
 
 ## Lil Wayne
 
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
 
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
-*Published on: Wed, 17 Jul 2024 17:19:38 GMT*
+*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
 ## Lil Wayne
@@ -3113,22 +2609,22 @@ When it comes to high fashion's sneaker offering, regular readers of Highsnobiet
 *Published on: Wed, 17 Jul 2024 08:10:40 GMT*
 
 
-## Lil Wayne
-
-## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
-
-Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
-
-*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
-
-
-## Lil Wayne
+## Adele
 
 ## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
 
 There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
 
 *Published on: Wed, 17 Jul 2024 08:49:16 GMT*
+
+
+## Adele
+
+## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
+
+Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
+
+*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
 
 
 ## Adele
@@ -3169,15 +2665,6 @@ VF Corporation is ready to rid itself of Supreme, four years after buying arguab
 
 ## Adele
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
-
-
-## Adele
-
 ## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
 
 Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
@@ -3187,29 +2674,20 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Adele
 
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
-
-
-## Adele
-
 ## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
 
 Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
 
-*Published on: Wed, 17 Jul 2024 15:53:21 GMT*
+*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
 
 
 ## Adele
 
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
 
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
-*Published on: Wed, 17 Jul 2024 17:19:38 GMT*
+*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
 ## Adele
@@ -3221,22 +2699,22 @@ When it comes to high fashion's sneaker offering, regular readers of Highsnobiet
 *Published on: Wed, 17 Jul 2024 08:10:40 GMT*
 
 
-## Adele
-
-## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
-
-Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
-
-*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
-
-
-## Adele
+## Lindsay Lohan
 
 ## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
 
 There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
 
 *Published on: Wed, 17 Jul 2024 08:49:16 GMT*
+
+
+## Lindsay Lohan
+
+## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
+
+Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
+
+*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
 
 
 ## Lindsay Lohan
@@ -3277,15 +2755,6 @@ VF Corporation is ready to rid itself of Supreme, four years after buying arguab
 
 ## Lindsay Lohan
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
-
-
-## Lindsay Lohan
-
 ## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
 
 Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
@@ -3295,29 +2764,20 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Lindsay Lohan
 
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
-
-
-## Lindsay Lohan
-
 ## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
 
 Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
 
-*Published on: Wed, 17 Jul 2024 15:53:21 GMT*
+*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
 
 
 ## Lindsay Lohan
 
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
 
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
-*Published on: Wed, 17 Jul 2024 17:19:38 GMT*
+*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
 ## Lindsay Lohan
@@ -3329,22 +2789,22 @@ When it comes to high fashion's sneaker offering, regular readers of Highsnobiet
 *Published on: Wed, 17 Jul 2024 08:10:40 GMT*
 
 
-## Lindsay Lohan
-
-## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
-
-Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
-
-*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
-
-
-## Lindsay Lohan
+## Addison Rae
 
 ## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
 
 There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
 
 *Published on: Wed, 17 Jul 2024 08:49:16 GMT*
+
+
+## Addison Rae
+
+## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
+
+Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
+
+*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
 
 
 ## Addison Rae
@@ -3385,15 +2845,6 @@ VF Corporation is ready to rid itself of Supreme, four years after buying arguab
 
 ## Addison Rae
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
-
-
-## Addison Rae
-
 ## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
 
 Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
@@ -3403,29 +2854,20 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Addison Rae
 
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
-
-
-## Addison Rae
-
 ## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
 
 Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
 
-*Published on: Wed, 17 Jul 2024 15:53:21 GMT*
+*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
 
 
 ## Addison Rae
 
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
 
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
-*Published on: Wed, 17 Jul 2024 17:19:38 GMT*
+*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
 ## Addison Rae
@@ -3437,22 +2879,22 @@ When it comes to high fashion's sneaker offering, regular readers of Highsnobiet
 *Published on: Wed, 17 Jul 2024 08:10:40 GMT*
 
 
-## Addison Rae
-
-## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
-
-Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
-
-*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
-
-
-## Addison Rae
+## Latto
 
 ## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
 
 There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
 
 *Published on: Wed, 17 Jul 2024 08:49:16 GMT*
+
+
+## Latto
+
+## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
+
+Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
+
+*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
 
 
 ## Latto
@@ -3493,15 +2935,6 @@ VF Corporation is ready to rid itself of Supreme, four years after buying arguab
 
 ## Latto
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
-
-
-## Latto
-
 ## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
 
 Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
@@ -3511,29 +2944,20 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Latto
 
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
-
-
-## Latto
-
 ## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
 
 Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
 
-*Published on: Wed, 17 Jul 2024 15:53:21 GMT*
+*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
 
 
 ## Latto
 
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
 
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
-*Published on: Wed, 17 Jul 2024 17:19:38 GMT*
+*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
 ## Latto
@@ -3545,22 +2969,22 @@ When it comes to high fashion's sneaker offering, regular readers of Highsnobiet
 *Published on: Wed, 17 Jul 2024 08:10:40 GMT*
 
 
-## Latto
-
-## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
-
-Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
-
-*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
-
-
-## Latto
+## Aaron Paul
 
 ## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
 
 There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
 
 *Published on: Wed, 17 Jul 2024 08:49:16 GMT*
+
+
+## Aaron Paul
+
+## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
+
+Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
+
+*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
 
 
 ## Aaron Paul
@@ -3601,15 +3025,6 @@ VF Corporation is ready to rid itself of Supreme, four years after buying arguab
 
 ## Aaron Paul
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
-
-
-## Aaron Paul
-
 ## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
 
 Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
@@ -3619,29 +3034,20 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Aaron Paul
 
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
-
-
-## Aaron Paul
-
 ## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
 
 Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
 
-*Published on: Wed, 17 Jul 2024 15:53:21 GMT*
+*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
 
 
 ## Aaron Paul
 
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
 
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
-*Published on: Wed, 17 Jul 2024 17:19:38 GMT*
+*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
 ## Aaron Paul
@@ -3653,22 +3059,22 @@ When it comes to high fashion's sneaker offering, regular readers of Highsnobiet
 *Published on: Wed, 17 Jul 2024 08:10:40 GMT*
 
 
-## Aaron Paul
-
-## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
-
-Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
-
-*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
-
-
-## Aaron Paul
+## LeBron James
 
 ## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
 
 There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
 
 *Published on: Wed, 17 Jul 2024 08:49:16 GMT*
+
+
+## LeBron James
+
+## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
+
+Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
+
+*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
 
 
 ## LeBron James
@@ -3709,15 +3115,6 @@ VF Corporation is ready to rid itself of Supreme, four years after buying arguab
 
 ## LeBron James
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
-
-
-## LeBron James
-
 ## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
 
 Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
@@ -3727,29 +3124,20 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## LeBron James
 
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
-
-
-## LeBron James
-
 ## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
 
 Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
 
-*Published on: Wed, 17 Jul 2024 15:53:21 GMT*
+*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
 
 
 ## LeBron James
 
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
 
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
-*Published on: Wed, 17 Jul 2024 17:19:38 GMT*
+*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
 ## LeBron James
@@ -3761,22 +3149,22 @@ When it comes to high fashion's sneaker offering, regular readers of Highsnobiet
 *Published on: Wed, 17 Jul 2024 08:10:40 GMT*
 
 
-## LeBron James
-
-## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
-
-Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
-
-*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
-
-
-## LeBron James
+## 50 Cent
 
 ## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
 
 There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
 
 *Published on: Wed, 17 Jul 2024 08:49:16 GMT*
+
+
+## 50 Cent
+
+## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
+
+Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
+
+*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
 
 
 ## 50 Cent
@@ -3817,15 +3205,6 @@ VF Corporation is ready to rid itself of Supreme, four years after buying arguab
 
 ## 50 Cent
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
-
-
-## 50 Cent
-
 ## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
 
 Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
@@ -3835,29 +3214,20 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## 50 Cent
 
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
-
-
-## 50 Cent
-
 ## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
 
 Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
 
-*Published on: Wed, 17 Jul 2024 15:53:21 GMT*
+*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
 
 
 ## 50 Cent
 
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
 
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
-*Published on: Wed, 17 Jul 2024 17:19:38 GMT*
+*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
 ## 50 Cent
@@ -3869,22 +3239,22 @@ When it comes to high fashion's sneaker offering, regular readers of Highsnobiet
 *Published on: Wed, 17 Jul 2024 08:10:40 GMT*
 
 
-## 50 Cent
-
-## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
-
-Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
-
-*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
-
-
-## 50 Cent
+## Kesha
 
 ## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
 
 There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
 
 *Published on: Wed, 17 Jul 2024 08:49:16 GMT*
+
+
+## Kesha
+
+## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
+
+Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
+
+*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
 
 
 ## Kesha
@@ -3925,15 +3295,6 @@ VF Corporation is ready to rid itself of Supreme, four years after buying arguab
 
 ## Kesha
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
-
-
-## Kesha
-
 ## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
 
 Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
@@ -3943,29 +3304,20 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Kesha
 
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
-
-
-## Kesha
-
 ## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
 
 Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
 
-*Published on: Wed, 17 Jul 2024 15:53:21 GMT*
+*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
 
 
 ## Kesha
 
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
 
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
-*Published on: Wed, 17 Jul 2024 17:19:38 GMT*
+*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
 ## Kesha
@@ -3977,22 +3329,22 @@ When it comes to high fashion's sneaker offering, regular readers of Highsnobiet
 *Published on: Wed, 17 Jul 2024 08:10:40 GMT*
 
 
-## Kesha
-
-## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
-
-Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
-
-*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
-
-
-## Kesha
+## 21 Savage
 
 ## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
 
 There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
 
 *Published on: Wed, 17 Jul 2024 08:49:16 GMT*
+
+
+## 21 Savage
+
+## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
+
+Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
+
+*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
 
 
 ## 21 Savage
@@ -4033,15 +3385,6 @@ VF Corporation is ready to rid itself of Supreme, four years after buying arguab
 
 ## 21 Savage
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
-
-
-## 21 Savage
-
 ## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
 
 Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
@@ -4051,29 +3394,20 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## 21 Savage
 
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
-
-
-## 21 Savage
-
 ## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
 
 Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
 
-*Published on: Wed, 17 Jul 2024 15:53:21 GMT*
+*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
 
 
 ## 21 Savage
 
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
 
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
-*Published on: Wed, 17 Jul 2024 17:19:38 GMT*
+*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
 ## 21 Savage
@@ -4085,22 +3419,22 @@ When it comes to high fashion's sneaker offering, regular readers of Highsnobiet
 *Published on: Wed, 17 Jul 2024 08:10:40 GMT*
 
 
-## 21 Savage
-
-## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
-
-Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
-
-*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
-
-
-## 21 Savage
+## Larry David
 
 ## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
 
 There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
 
 *Published on: Wed, 17 Jul 2024 08:49:16 GMT*
+
+
+## Larry David
+
+## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
+
+Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
+
+*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
 
 
 ## Larry David
@@ -4141,15 +3475,6 @@ VF Corporation is ready to rid itself of Supreme, four years after buying arguab
 
 ## Larry David
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
-
-
-## Larry David
-
 ## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
 
 Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
@@ -4159,29 +3484,20 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Larry David
 
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
-
-
-## Larry David
-
 ## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
 
 Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
 
-*Published on: Wed, 17 Jul 2024 15:53:21 GMT*
+*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
 
 
 ## Larry David
 
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
 
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
-*Published on: Wed, 17 Jul 2024 17:19:38 GMT*
+*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
 ## Larry David
@@ -4193,22 +3509,22 @@ When it comes to high fashion's sneaker offering, regular readers of Highsnobiet
 *Published on: Wed, 17 Jul 2024 08:10:40 GMT*
 
 
-## Larry David
-
-## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
-
-Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
-
-*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
-
-
-## Larry David
+## Seth Rogan
 
 ## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
 
 There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
 
 *Published on: Wed, 17 Jul 2024 08:49:16 GMT*
+
+
+## Seth Rogan
+
+## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
+
+Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
+
+*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
 
 
 ## Seth Rogan
@@ -4249,15 +3565,6 @@ VF Corporation is ready to rid itself of Supreme, four years after buying arguab
 
 ## Seth Rogan
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
-
-
-## Seth Rogan
-
 ## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
 
 Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
@@ -4267,29 +3574,20 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Seth Rogan
 
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
-
-
-## Seth Rogan
-
 ## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
 
 Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
 
-*Published on: Wed, 17 Jul 2024 15:53:21 GMT*
+*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
 
 
 ## Seth Rogan
 
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
 
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
-*Published on: Wed, 17 Jul 2024 17:19:38 GMT*
+*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
 ## Seth Rogan
@@ -4301,22 +3599,22 @@ When it comes to high fashion's sneaker offering, regular readers of Highsnobiet
 *Published on: Wed, 17 Jul 2024 08:10:40 GMT*
 
 
-## Seth Rogan
-
-## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
-
-Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
-
-*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
-
-
-## Seth Rogan
+## Simone Biles
 
 ## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
 
 There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
 
 *Published on: Wed, 17 Jul 2024 08:49:16 GMT*
+
+
+## Simone Biles
+
+## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
+
+Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
+
+*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
 
 
 ## Simone Biles
@@ -4357,15 +3655,6 @@ VF Corporation is ready to rid itself of Supreme, four years after buying arguab
 
 ## Simone Biles
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
-
-
-## Simone Biles
-
 ## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
 
 Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
@@ -4375,29 +3664,20 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Simone Biles
 
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
-
-
-## Simone Biles
-
 ## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
 
 Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
 
-*Published on: Wed, 17 Jul 2024 15:53:21 GMT*
+*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
 
 
 ## Simone Biles
 
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
 
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
-*Published on: Wed, 17 Jul 2024 17:19:38 GMT*
+*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
 ## Simone Biles
@@ -4409,22 +3689,22 @@ When it comes to high fashion's sneaker offering, regular readers of Highsnobiet
 *Published on: Wed, 17 Jul 2024 08:10:40 GMT*
 
 
-## Simone Biles
-
-## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
-
-Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
-
-*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
-
-
-## Simone Biles
+## Pete Davidson
 
 ## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
 
 There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
 
 *Published on: Wed, 17 Jul 2024 08:49:16 GMT*
+
+
+## Pete Davidson
+
+## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
+
+Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
+
+*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
 
 
 ## Pete Davidson
@@ -4465,15 +3745,6 @@ VF Corporation is ready to rid itself of Supreme, four years after buying arguab
 
 ## Pete Davidson
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
-
-
-## Pete Davidson
-
 ## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
 
 Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
@@ -4483,29 +3754,20 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Pete Davidson
 
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
-
-
-## Pete Davidson
-
 ## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
 
 Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
 
-*Published on: Wed, 17 Jul 2024 15:53:21 GMT*
+*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
 
 
 ## Pete Davidson
 
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
 
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
-*Published on: Wed, 17 Jul 2024 17:19:38 GMT*
+*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
 ## Pete Davidson
@@ -4517,22 +3779,22 @@ When it comes to high fashion's sneaker offering, regular readers of Highsnobiet
 *Published on: Wed, 17 Jul 2024 08:10:40 GMT*
 
 
-## Pete Davidson
-
-## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
-
-Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
-
-*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
-
-
-## Pete Davidson
+## Prince Harry
 
 ## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
 
 There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
 
 *Published on: Wed, 17 Jul 2024 08:49:16 GMT*
+
+
+## Prince Harry
+
+## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
+
+Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
+
+*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
 
 
 ## Prince Harry
@@ -4573,15 +3835,6 @@ VF Corporation is ready to rid itself of Supreme, four years after buying arguab
 
 ## Prince Harry
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
-
-
-## Prince Harry
-
 ## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
 
 Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
@@ -4591,29 +3844,20 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Prince Harry
 
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
-
-
-## Prince Harry
-
 ## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
 
 Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
 
-*Published on: Wed, 17 Jul 2024 15:53:21 GMT*
+*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
 
 
 ## Prince Harry
 
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
 
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
-*Published on: Wed, 17 Jul 2024 17:19:38 GMT*
+*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
 ## Prince Harry
@@ -4625,22 +3869,22 @@ When it comes to high fashion's sneaker offering, regular readers of Highsnobiet
 *Published on: Wed, 17 Jul 2024 08:10:40 GMT*
 
 
-## Prince Harry
-
-## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
-
-Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
-
-*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
-
-
-## Prince Harry
+## Princess of Wales
 
 ## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
 
 There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
 
 *Published on: Wed, 17 Jul 2024 08:49:16 GMT*
+
+
+## Princess of Wales
+
+## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
+
+Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
+
+*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
 
 
 ## Princess of Wales
@@ -4681,15 +3925,6 @@ VF Corporation is ready to rid itself of Supreme, four years after buying arguab
 
 ## Princess of Wales
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
-
-
-## Princess of Wales
-
 ## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
 
 Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
@@ -4699,29 +3934,20 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Princess of Wales
 
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
-
-
-## Princess of Wales
-
 ## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
 
 Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
 
-*Published on: Wed, 17 Jul 2024 15:53:21 GMT*
+*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
 
 
 ## Princess of Wales
 
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
 
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
-*Published on: Wed, 17 Jul 2024 17:19:38 GMT*
+*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
 ## Princess of Wales
@@ -4733,22 +3959,22 @@ When it comes to high fashion's sneaker offering, regular readers of Highsnobiet
 *Published on: Wed, 17 Jul 2024 08:10:40 GMT*
 
 
-## Princess of Wales
-
-## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
-
-Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
-
-*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
-
-
-## Princess of Wales
+## Rachel McAdams
 
 ## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
 
 There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
 
 *Published on: Wed, 17 Jul 2024 08:49:16 GMT*
+
+
+## Rachel McAdams
+
+## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
+
+Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
+
+*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
 
 
 ## Rachel McAdams
@@ -4789,15 +4015,6 @@ VF Corporation is ready to rid itself of Supreme, four years after buying arguab
 
 ## Rachel McAdams
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
-
-
-## Rachel McAdams
-
 ## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
 
 Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
@@ -4807,29 +4024,20 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Rachel McAdams
 
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
-
-
-## Rachel McAdams
-
 ## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
 
 Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
 
-*Published on: Wed, 17 Jul 2024 15:53:21 GMT*
+*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
 
 
 ## Rachel McAdams
 
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
 
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
-*Published on: Wed, 17 Jul 2024 17:19:38 GMT*
+*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
 ## Rachel McAdams
@@ -4841,22 +4049,22 @@ When it comes to high fashion's sneaker offering, regular readers of Highsnobiet
 *Published on: Wed, 17 Jul 2024 08:10:40 GMT*
 
 
-## Rachel McAdams
-
-## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
-
-Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
-
-*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
-
-
-## Rachel McAdams
+## Reneé Rapp
 
 ## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
 
 There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
 
 *Published on: Wed, 17 Jul 2024 08:49:16 GMT*
+
+
+## Reneé Rapp
+
+## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
+
+Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
+
+*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
 
 
 ## Reneé Rapp
@@ -4897,15 +4105,6 @@ VF Corporation is ready to rid itself of Supreme, four years after buying arguab
 
 ## Reneé Rapp
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
-
-
-## Reneé Rapp
-
 ## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
 
 Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
@@ -4915,29 +4114,20 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Reneé Rapp
 
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
-
-
-## Reneé Rapp
-
 ## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
 
 Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
 
-*Published on: Wed, 17 Jul 2024 15:53:21 GMT*
+*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
 
 
 ## Reneé Rapp
 
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
 
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
-*Published on: Wed, 17 Jul 2024 17:19:38 GMT*
+*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
 ## Reneé Rapp
@@ -4949,22 +4139,22 @@ When it comes to high fashion's sneaker offering, regular readers of Highsnobiet
 *Published on: Wed, 17 Jul 2024 08:10:40 GMT*
 
 
-## Reneé Rapp
-
-## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
-
-Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
-
-*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
-
-
-## Reneé Rapp
+## Rick Ross
 
 ## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
 
 There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
 
 *Published on: Wed, 17 Jul 2024 08:49:16 GMT*
+
+
+## Rick Ross
+
+## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
+
+Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
+
+*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
 
 
 ## Rick Ross
@@ -5005,15 +4195,6 @@ VF Corporation is ready to rid itself of Supreme, four years after buying arguab
 
 ## Rick Ross
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
-
-
-## Rick Ross
-
 ## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
 
 Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
@@ -5023,29 +4204,20 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Rick Ross
 
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
-
-
-## Rick Ross
-
 ## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
 
 Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
 
-*Published on: Wed, 17 Jul 2024 15:53:21 GMT*
+*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
 
 
 ## Rick Ross
 
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
 
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
-*Published on: Wed, 17 Jul 2024 17:19:38 GMT*
+*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
 ## Rick Ross
@@ -5057,22 +4229,22 @@ When it comes to high fashion's sneaker offering, regular readers of Highsnobiet
 *Published on: Wed, 17 Jul 2024 08:10:40 GMT*
 
 
-## Rick Ross
-
-## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
-
-Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
-
-*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
-
-
-## Rick Ross
+## Sam Ashgari
 
 ## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
 
 There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
 
 *Published on: Wed, 17 Jul 2024 08:49:16 GMT*
+
+
+## Sam Ashgari
+
+## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
+
+Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
+
+*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
 
 
 ## Sam Ashgari
@@ -5113,15 +4285,6 @@ VF Corporation is ready to rid itself of Supreme, four years after buying arguab
 
 ## Sam Ashgari
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
-
-
-## Sam Ashgari
-
 ## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
 
 Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
@@ -5131,29 +4294,20 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Sam Ashgari
 
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
-
-
-## Sam Ashgari
-
 ## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
 
 Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
 
-*Published on: Wed, 17 Jul 2024 15:53:21 GMT*
+*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
 
 
 ## Sam Ashgari
 
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
 
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
-*Published on: Wed, 17 Jul 2024 17:19:38 GMT*
+*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
 ## Sam Ashgari
@@ -5165,22 +4319,22 @@ When it comes to high fashion's sneaker offering, regular readers of Highsnobiet
 *Published on: Wed, 17 Jul 2024 08:10:40 GMT*
 
 
-## Sam Ashgari
-
-## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
-
-Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
-
-*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
-
-
-## Sam Ashgari
+## Sandra Oh
 
 ## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
 
 There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
 
 *Published on: Wed, 17 Jul 2024 08:49:16 GMT*
+
+
+## Sandra Oh
+
+## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
+
+Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
+
+*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
 
 
 ## Sandra Oh
@@ -5221,15 +4375,6 @@ VF Corporation is ready to rid itself of Supreme, four years after buying arguab
 
 ## Sandra Oh
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
-
-
-## Sandra Oh
-
 ## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
 
 Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
@@ -5239,29 +4384,20 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Sandra Oh
 
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
-
-
-## Sandra Oh
-
 ## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
 
 Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
 
-*Published on: Wed, 17 Jul 2024 15:53:21 GMT*
+*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
 
 
 ## Sandra Oh
 
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
 
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
-*Published on: Wed, 17 Jul 2024 17:19:38 GMT*
+*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
 ## Sandra Oh
@@ -5273,22 +4409,22 @@ When it comes to high fashion's sneaker offering, regular readers of Highsnobiet
 *Published on: Wed, 17 Jul 2024 08:10:40 GMT*
 
 
-## Sandra Oh
-
-## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
-
-Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
-
-*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
-
-
-## Sandra Oh
+## Donald Trump
 
 ## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
 
 There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
 
 *Published on: Wed, 17 Jul 2024 08:49:16 GMT*
+
+
+## Donald Trump
+
+## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
+
+Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
+
+*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
 
 
 ## Donald Trump
@@ -5329,15 +4465,6 @@ VF Corporation is ready to rid itself of Supreme, four years after buying arguab
 
 ## Donald Trump
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
-
-
-## Donald Trump
-
 ## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
 
 Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
@@ -5347,29 +4474,20 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Donald Trump
 
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
-
-
-## Donald Trump
-
 ## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
 
 Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
 
-*Published on: Wed, 17 Jul 2024 15:53:21 GMT*
+*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
 
 
 ## Donald Trump
 
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
 
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
-*Published on: Wed, 17 Jul 2024 17:19:38 GMT*
+*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
 ## Donald Trump
@@ -5381,22 +4499,22 @@ When it comes to high fashion's sneaker offering, regular readers of Highsnobiet
 *Published on: Wed, 17 Jul 2024 08:10:40 GMT*
 
 
-## Donald Trump
-
-## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
-
-Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
-
-*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
-
-
-## Donald Trump
+## Diddy
 
 ## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
 
 There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
 
 *Published on: Wed, 17 Jul 2024 08:49:16 GMT*
+
+
+## Diddy
+
+## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
+
+Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
+
+*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
 
 
 ## Diddy
@@ -5437,15 +4555,6 @@ VF Corporation is ready to rid itself of Supreme, four years after buying arguab
 
 ## Diddy
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
-
-
-## Diddy
-
 ## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
 
 Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
@@ -5455,29 +4564,20 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Diddy
 
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
-
-
-## Diddy
-
 ## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
 
 Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
 
-*Published on: Wed, 17 Jul 2024 15:53:21 GMT*
+*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
 
 
 ## Diddy
 
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
 
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
-*Published on: Wed, 17 Jul 2024 17:19:38 GMT*
+*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
 ## Diddy
@@ -5489,22 +4589,22 @@ When it comes to high fashion's sneaker offering, regular readers of Highsnobiet
 *Published on: Wed, 17 Jul 2024 08:10:40 GMT*
 
 
-## Diddy
-
-## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
-
-Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
-
-*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
-
-
-## Diddy
+## City Girls
 
 ## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
 
 There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
 
 *Published on: Wed, 17 Jul 2024 08:49:16 GMT*
+
+
+## City Girls
+
+## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
+
+Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
+
+*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
 
 
 ## City Girls
@@ -5545,15 +4645,6 @@ VF Corporation is ready to rid itself of Supreme, four years after buying arguab
 
 ## City Girls
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
-
-
-## City Girls
-
 ## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
 
 Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
@@ -5563,29 +4654,20 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## City Girls
 
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
-
-
-## City Girls
-
 ## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
 
 Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
 
-*Published on: Wed, 17 Jul 2024 15:53:21 GMT*
+*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
 
 
 ## City Girls
 
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
 
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
-*Published on: Wed, 17 Jul 2024 17:19:38 GMT*
+*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
 ## City Girls
@@ -5597,22 +4679,22 @@ When it comes to high fashion's sneaker offering, regular readers of Highsnobiet
 *Published on: Wed, 17 Jul 2024 08:10:40 GMT*
 
 
-## City Girls
-
-## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
-
-Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
-
-*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
-
-
-## City Girls
+## Chloe Bailey
 
 ## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
 
 There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
 
 *Published on: Wed, 17 Jul 2024 08:49:16 GMT*
+
+
+## Chloe Bailey
+
+## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
+
+Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
+
+*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
 
 
 ## Chloe Bailey
@@ -5653,15 +4735,6 @@ VF Corporation is ready to rid itself of Supreme, four years after buying arguab
 
 ## Chloe Bailey
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
-
-
-## Chloe Bailey
-
 ## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
 
 Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
@@ -5671,29 +4744,20 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Chloe Bailey
 
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
-
-
-## Chloe Bailey
-
 ## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
 
 Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
 
-*Published on: Wed, 17 Jul 2024 15:53:21 GMT*
+*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
 
 
 ## Chloe Bailey
 
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
 
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
-*Published on: Wed, 17 Jul 2024 17:19:38 GMT*
+*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
 ## Chloe Bailey
@@ -5705,22 +4769,22 @@ When it comes to high fashion's sneaker offering, regular readers of Highsnobiet
 *Published on: Wed, 17 Jul 2024 08:10:40 GMT*
 
 
-## Chloe Bailey
-
-## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
-
-Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
-
-*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
-
-
-## Chloe Bailey
+## Charli D Amelio
 
 ## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
 
 There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
 
 *Published on: Wed, 17 Jul 2024 08:49:16 GMT*
+
+
+## Charli D Amelio
+
+## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
+
+Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
+
+*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
 
 
 ## Charli D Amelio
@@ -5761,15 +4825,6 @@ VF Corporation is ready to rid itself of Supreme, four years after buying arguab
 
 ## Charli D Amelio
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
-
-
-## Charli D Amelio
-
 ## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
 
 Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
@@ -5779,29 +4834,20 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Charli D Amelio
 
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
-
-
-## Charli D Amelio
-
 ## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
 
 Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
 
-*Published on: Wed, 17 Jul 2024 15:53:21 GMT*
+*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
 
 
 ## Charli D Amelio
 
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
 
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
-*Published on: Wed, 17 Jul 2024 17:19:38 GMT*
+*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
 ## Charli D Amelio
@@ -5813,22 +4859,22 @@ When it comes to high fashion's sneaker offering, regular readers of Highsnobiet
 *Published on: Wed, 17 Jul 2024 08:10:40 GMT*
 
 
-## Charli D Amelio
-
-## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
-
-Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
-
-*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
-
-
-## Charli D Amelio
+## Cardi B
 
 ## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
 
 There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
 
 *Published on: Wed, 17 Jul 2024 08:49:16 GMT*
+
+
+## Cardi B
+
+## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
+
+Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
+
+*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
 
 
 ## Cardi B
@@ -5869,15 +4915,6 @@ VF Corporation is ready to rid itself of Supreme, four years after buying arguab
 
 ## Cardi B
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
-
-
-## Cardi B
-
 ## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
 
 Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
@@ -5887,29 +4924,20 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Cardi B
 
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
-
-
-## Cardi B
-
 ## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
 
 Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
 
-*Published on: Wed, 17 Jul 2024 15:53:21 GMT*
+*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
 
 
 ## Cardi B
 
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
 
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
-*Published on: Wed, 17 Jul 2024 17:19:38 GMT*
+*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
 ## Cardi B
@@ -5921,22 +4949,22 @@ When it comes to high fashion's sneaker offering, regular readers of Highsnobiet
 *Published on: Wed, 17 Jul 2024 08:10:40 GMT*
 
 
-## Cardi B
-
-## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
-
-Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
-
-*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
-
-
-## Cardi B
+## Bryan Cranston
 
 ## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
 
 There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
 
 *Published on: Wed, 17 Jul 2024 08:49:16 GMT*
+
+
+## Bryan Cranston
+
+## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
+
+Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
+
+*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
 
 
 ## Bryan Cranston
@@ -5977,15 +5005,6 @@ VF Corporation is ready to rid itself of Supreme, four years after buying arguab
 
 ## Bryan Cranston
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
-
-
-## Bryan Cranston
-
 ## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
 
 Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
@@ -5995,29 +5014,20 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Bryan Cranston
 
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
-
-
-## Bryan Cranston
-
 ## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
 
 Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
 
-*Published on: Wed, 17 Jul 2024 15:53:21 GMT*
+*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
 
 
 ## Bryan Cranston
 
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
 
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
-*Published on: Wed, 17 Jul 2024 17:19:38 GMT*
+*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
 ## Bryan Cranston
@@ -6029,22 +5039,22 @@ When it comes to high fashion's sneaker offering, regular readers of Highsnobiet
 *Published on: Wed, 17 Jul 2024 08:10:40 GMT*
 
 
-## Bryan Cranston
-
-## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
-
-Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
-
-*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
-
-
-## Bryan Cranston
+## Brielle Biermann
 
 ## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
 
 There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
 
 *Published on: Wed, 17 Jul 2024 08:49:16 GMT*
+
+
+## Brielle Biermann
+
+## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
+
+Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
+
+*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
 
 
 ## Brielle Biermann
@@ -6085,15 +5095,6 @@ VF Corporation is ready to rid itself of Supreme, four years after buying arguab
 
 ## Brielle Biermann
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
-
-
-## Brielle Biermann
-
 ## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
 
 Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
@@ -6103,29 +5104,20 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Brielle Biermann
 
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
-
-
-## Brielle Biermann
-
 ## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
 
 Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
 
-*Published on: Wed, 17 Jul 2024 15:53:21 GMT*
+*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
 
 
 ## Brielle Biermann
 
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
 
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
-*Published on: Wed, 17 Jul 2024 17:19:38 GMT*
+*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
 ## Brielle Biermann
@@ -6137,22 +5129,22 @@ When it comes to high fashion's sneaker offering, regular readers of Highsnobiet
 *Published on: Wed, 17 Jul 2024 08:10:40 GMT*
 
 
-## Brielle Biermann
-
-## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
-
-Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
-
-*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
-
-
-## Brielle Biermann
+## Dua Lipa
 
 ## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
 
 There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
 
 *Published on: Wed, 17 Jul 2024 08:49:16 GMT*
+
+
+## Dua Lipa
+
+## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
+
+Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
+
+*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
 
 
 ## Dua Lipa
@@ -6193,15 +5185,6 @@ VF Corporation is ready to rid itself of Supreme, four years after buying arguab
 
 ## Dua Lipa
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
-
-
-## Dua Lipa
-
 ## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
 
 Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
@@ -6211,29 +5194,20 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Dua Lipa
 
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
-
-
-## Dua Lipa
-
 ## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
 
 Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
 
-*Published on: Wed, 17 Jul 2024 15:53:21 GMT*
+*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
 
 
 ## Dua Lipa
 
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
 
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
-*Published on: Wed, 17 Jul 2024 17:19:38 GMT*
+*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
 ## Dua Lipa
@@ -6245,22 +5219,22 @@ When it comes to high fashion's sneaker offering, regular readers of Highsnobiet
 *Published on: Wed, 17 Jul 2024 08:10:40 GMT*
 
 
-## Dua Lipa
-
-## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
-
-Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
-
-*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
-
-
-## Dua Lipa
+## Drake
 
 ## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
 
 There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
 
 *Published on: Wed, 17 Jul 2024 08:49:16 GMT*
+
+
+## Drake
+
+## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
+
+Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
+
+*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
 
 
 ## Drake
@@ -6301,15 +5275,6 @@ VF Corporation is ready to rid itself of Supreme, four years after buying arguab
 
 ## Drake
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
-
-
-## Drake
-
 ## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
 
 Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
@@ -6319,29 +5284,20 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Drake
 
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
-
-
-## Drake
-
 ## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
 
 Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
 
-*Published on: Wed, 17 Jul 2024 15:53:21 GMT*
+*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
 
 
 ## Drake
 
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
 
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
-*Published on: Wed, 17 Jul 2024 17:19:38 GMT*
+*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
 ## Drake
@@ -6353,22 +5309,22 @@ When it comes to high fashion's sneaker offering, regular readers of Highsnobiet
 *Published on: Wed, 17 Jul 2024 08:10:40 GMT*
 
 
-## Drake
-
-## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
-
-Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
-
-*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
-
-
-## Drake
+## Jenner
 
 ## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
 
 There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
 
 *Published on: Wed, 17 Jul 2024 08:49:16 GMT*
+
+
+## Jenner
+
+## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
+
+Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
+
+*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
 
 
 ## Jenner
@@ -6409,15 +5365,6 @@ VF Corporation is ready to rid itself of Supreme, four years after buying arguab
 
 ## Jenner
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
-
-
-## Jenner
-
 ## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
 
 Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
@@ -6427,29 +5374,20 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Jenner
 
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
-
-
-## Jenner
-
 ## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
 
 Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
 
-*Published on: Wed, 17 Jul 2024 15:53:21 GMT*
+*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
 
 
 ## Jenner
 
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
 
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
-*Published on: Wed, 17 Jul 2024 17:19:38 GMT*
+*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
 ## Jenner
@@ -6461,22 +5399,22 @@ When it comes to high fashion's sneaker offering, regular readers of Highsnobiet
 *Published on: Wed, 17 Jul 2024 08:10:40 GMT*
 
 
-## Jenner
-
-## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
-
-Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
-
-*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
-
-
-## Jenner
+## J. Cole
 
 ## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
 
 There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
 
 *Published on: Wed, 17 Jul 2024 08:49:16 GMT*
+
+
+## J. Cole
+
+## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
+
+Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
+
+*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
 
 
 ## J. Cole
@@ -6517,15 +5455,6 @@ VF Corporation is ready to rid itself of Supreme, four years after buying arguab
 
 ## J. Cole
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
-
-
-## J. Cole
-
 ## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
 
 Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
@@ -6535,29 +5464,20 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## J. Cole
 
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
-
-
-## J. Cole
-
 ## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
 
 Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
 
-*Published on: Wed, 17 Jul 2024 15:53:21 GMT*
+*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
 
 
 ## J. Cole
 
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
 
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
-*Published on: Wed, 17 Jul 2024 17:19:38 GMT*
+*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
 ## J. Cole
@@ -6569,22 +5489,22 @@ When it comes to high fashion's sneaker offering, regular readers of Highsnobiet
 *Published on: Wed, 17 Jul 2024 08:10:40 GMT*
 
 
-## J. Cole
-
-## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
-
-Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
-
-*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
-
-
-## J. Cole
+## Jerrod Carmichael
 
 ## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
 
 There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
 
 *Published on: Wed, 17 Jul 2024 08:49:16 GMT*
+
+
+## Jerrod Carmichael
+
+## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
+
+Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
+
+*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
 
 
 ## Jerrod Carmichael
@@ -6625,15 +5545,6 @@ VF Corporation is ready to rid itself of Supreme, four years after buying arguab
 
 ## Jerrod Carmichael
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
-
-
-## Jerrod Carmichael
-
 ## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
 
 Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
@@ -6643,29 +5554,20 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Jerrod Carmichael
 
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
-
-
-## Jerrod Carmichael
-
 ## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
 
 Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
 
-*Published on: Wed, 17 Jul 2024 15:53:21 GMT*
+*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
 
 
 ## Jerrod Carmichael
 
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
 
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
-*Published on: Wed, 17 Jul 2024 17:19:38 GMT*
+*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
 ## Jerrod Carmichael
@@ -6677,22 +5579,22 @@ When it comes to high fashion's sneaker offering, regular readers of Highsnobiet
 *Published on: Wed, 17 Jul 2024 08:10:40 GMT*
 
 
-## Jerrod Carmichael
-
-## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
-
-Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
-
-*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
-
-
-## Jerrod Carmichael
+## Jennifer Lawrence
 
 ## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
 
 There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
 
 *Published on: Wed, 17 Jul 2024 08:49:16 GMT*
+
+
+## Jennifer Lawrence
+
+## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
+
+Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
+
+*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
 
 
 ## Jennifer Lawrence
@@ -6733,15 +5635,6 @@ VF Corporation is ready to rid itself of Supreme, four years after buying arguab
 
 ## Jennifer Lawrence
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
-
-
-## Jennifer Lawrence
-
 ## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
 
 Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
@@ -6751,29 +5644,20 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Jennifer Lawrence
 
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
-
-
-## Jennifer Lawrence
-
 ## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
 
 Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
 
-*Published on: Wed, 17 Jul 2024 15:53:21 GMT*
+*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
 
 
 ## Jennifer Lawrence
 
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
 
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
-*Published on: Wed, 17 Jul 2024 17:19:38 GMT*
+*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
 ## Jennifer Lawrence
@@ -6785,22 +5669,22 @@ When it comes to high fashion's sneaker offering, regular readers of Highsnobiet
 *Published on: Wed, 17 Jul 2024 08:10:40 GMT*
 
 
-## Jennifer Lawrence
-
-## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
-
-Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
-
-*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
-
-
-## Jennifer Lawrence
+## Joe Biden
 
 ## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
 
 There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
 
 *Published on: Wed, 17 Jul 2024 08:49:16 GMT*
+
+
+## Joe Biden
+
+## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
+
+Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
+
+*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
 
 
 ## Joe Biden
@@ -6841,15 +5725,6 @@ VF Corporation is ready to rid itself of Supreme, four years after buying arguab
 
 ## Joe Biden
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
-
-
-## Joe Biden
-
 ## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
 
 Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
@@ -6859,29 +5734,20 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Joe Biden
 
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
-
-
-## Joe Biden
-
 ## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
 
 Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
 
-*Published on: Wed, 17 Jul 2024 15:53:21 GMT*
+*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
 
 
 ## Joe Biden
 
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
 
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
-*Published on: Wed, 17 Jul 2024 17:19:38 GMT*
+*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
 ## Joe Biden
@@ -6893,22 +5759,22 @@ When it comes to high fashion's sneaker offering, regular readers of Highsnobiet
 *Published on: Wed, 17 Jul 2024 08:10:40 GMT*
 
 
-## Joe Biden
-
-## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
-
-Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
-
-*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
-
-
-## Joe Biden
+## J.K. Simmons
 
 ## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
 
 There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
 
 *Published on: Wed, 17 Jul 2024 08:49:16 GMT*
+
+
+## J.K. Simmons
+
+## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
+
+Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
+
+*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
 
 
 ## J.K. Simmons
@@ -6949,15 +5815,6 @@ VF Corporation is ready to rid itself of Supreme, four years after buying arguab
 
 ## J.K. Simmons
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
-
-
-## J.K. Simmons
-
 ## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
 
 Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
@@ -6967,29 +5824,20 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## J.K. Simmons
 
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
-
-
-## J.K. Simmons
-
 ## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
 
 Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
 
-*Published on: Wed, 17 Jul 2024 15:53:21 GMT*
+*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
 
 
 ## J.K. Simmons
 
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
 
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
-*Published on: Wed, 17 Jul 2024 17:19:38 GMT*
+*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
 ## J.K. Simmons
@@ -7001,22 +5849,22 @@ When it comes to high fashion's sneaker offering, regular readers of Highsnobiet
 *Published on: Wed, 17 Jul 2024 08:10:40 GMT*
 
 
-## J.K. Simmons
-
-## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
-
-Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
-
-*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
-
-
-## J.K. Simmons
+## Kamala Harris
 
 ## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
 
 There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
 
 *Published on: Wed, 17 Jul 2024 08:49:16 GMT*
+
+
+## Kamala Harris
+
+## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
+
+Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
+
+*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
 
 
 ## Kamala Harris
@@ -7057,15 +5905,6 @@ VF Corporation is ready to rid itself of Supreme, four years after buying arguab
 
 ## Kamala Harris
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
-
-
-## Kamala Harris
-
 ## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
 
 Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
@@ -7075,29 +5914,20 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Kamala Harris
 
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
-
-
-## Kamala Harris
-
 ## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
 
 Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
 
-*Published on: Wed, 17 Jul 2024 15:53:21 GMT*
+*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
 
 
 ## Kamala Harris
 
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
 
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
-*Published on: Wed, 17 Jul 2024 17:19:38 GMT*
+*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
 ## Kamala Harris
@@ -7109,22 +5939,22 @@ When it comes to high fashion's sneaker offering, regular readers of Highsnobiet
 *Published on: Wed, 17 Jul 2024 08:10:40 GMT*
 
 
-## Kamala Harris
-
-## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
-
-Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
-
-*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
-
-
-## Kamala Harris
+## John C Reilly
 
 ## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
 
 There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
 
 *Published on: Wed, 17 Jul 2024 08:49:16 GMT*
+
+
+## John C Reilly
+
+## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
+
+Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
+
+*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
 
 
 ## John C Reilly
@@ -7165,15 +5995,6 @@ VF Corporation is ready to rid itself of Supreme, four years after buying arguab
 
 ## John C Reilly
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
-
-
-## John C Reilly
-
 ## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
 
 Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
@@ -7183,29 +6004,20 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## John C Reilly
 
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
-
-
-## John C Reilly
-
 ## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
 
 Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
 
-*Published on: Wed, 17 Jul 2024 15:53:21 GMT*
+*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
 
 
 ## John C Reilly
 
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
 
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
-*Published on: Wed, 17 Jul 2024 17:19:38 GMT*
+*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
 ## John C Reilly
@@ -7217,22 +6029,22 @@ When it comes to high fashion's sneaker offering, regular readers of Highsnobiet
 *Published on: Wed, 17 Jul 2024 08:10:40 GMT*
 
 
-## John C Reilly
-
-## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
-
-Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
-
-*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
-
-
-## John C Reilly
+## Kardashian
 
 ## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
 
 There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
 
 *Published on: Wed, 17 Jul 2024 08:49:16 GMT*
+
+
+## Kardashian
+
+## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
+
+Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
+
+*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
 
 
 ## Kardashian
@@ -7273,15 +6085,6 @@ VF Corporation is ready to rid itself of Supreme, four years after buying arguab
 
 ## Kardashian
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
-
-
-## Kardashian
-
 ## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
 
 Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
@@ -7291,29 +6094,20 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Kardashian
 
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
-
-
-## Kardashian
-
 ## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
 
 Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
 
-*Published on: Wed, 17 Jul 2024 15:53:21 GMT*
+*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
 
 
 ## Kardashian
 
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
 
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
-*Published on: Wed, 17 Jul 2024 17:19:38 GMT*
+*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
 ## Kardashian
@@ -7325,22 +6119,22 @@ When it comes to high fashion's sneaker offering, regular readers of Highsnobiet
 *Published on: Wed, 17 Jul 2024 08:10:40 GMT*
 
 
-## Kardashian
-
-## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
-
-Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
-
-*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
-
-
-## Kardashian
+## Kanye
 
 ## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
 
 There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
 
 *Published on: Wed, 17 Jul 2024 08:49:16 GMT*
+
+
+## Kanye
+
+## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
+
+Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
+
+*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
 
 
 ## Kanye
@@ -7381,15 +6175,6 @@ VF Corporation is ready to rid itself of Supreme, four years after buying arguab
 
 ## Kanye
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
-
-
-## Kanye
-
 ## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
 
 Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
@@ -7399,29 +6184,20 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Kanye
 
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
-
-
-## Kanye
-
 ## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
 
 Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
 
-*Published on: Wed, 17 Jul 2024 15:53:21 GMT*
+*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
 
 
 ## Kanye
 
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
 
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
-*Published on: Wed, 17 Jul 2024 17:19:38 GMT*
+*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
 ## Kanye
@@ -7433,22 +6209,22 @@ When it comes to high fashion's sneaker offering, regular readers of Highsnobiet
 *Published on: Wed, 17 Jul 2024 08:10:40 GMT*
 
 
-## Kanye
-
-## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
-
-Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
-
-*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
-
-
-## Kanye
+## Zendaya
 
 ## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
 
 There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
 
 *Published on: Wed, 17 Jul 2024 08:49:16 GMT*
+
+
+## Zendaya
+
+## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
+
+Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
+
+*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
 
 
 ## Zendaya
@@ -7489,15 +6265,6 @@ VF Corporation is ready to rid itself of Supreme, four years after buying arguab
 
 ## Zendaya
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
-
-
-## Zendaya
-
 ## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
 
 Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
@@ -7507,29 +6274,20 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Zendaya
 
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
-
-
-## Zendaya
-
 ## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
 
 Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
 
-*Published on: Wed, 17 Jul 2024 15:53:21 GMT*
+*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
 
 
 ## Zendaya
 
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
 
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
-*Published on: Wed, 17 Jul 2024 17:19:38 GMT*
+*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
 ## Zendaya
@@ -7541,22 +6299,22 @@ When it comes to high fashion's sneaker offering, regular readers of Highsnobiet
 *Published on: Wed, 17 Jul 2024 08:10:40 GMT*
 
 
-## Zendaya
-
-## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
-
-Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
-
-*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
-
-
-## Zendaya
+## Will Ferrell
 
 ## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
 
 There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
 
 *Published on: Wed, 17 Jul 2024 08:49:16 GMT*
+
+
+## Will Ferrell
+
+## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
+
+Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
+
+*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
 
 
 ## Will Ferrell
@@ -7597,15 +6355,6 @@ VF Corporation is ready to rid itself of Supreme, four years after buying arguab
 
 ## Will Ferrell
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
-
-
-## Will Ferrell
-
 ## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
 
 Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
@@ -7615,29 +6364,20 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Will Ferrell
 
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
-
-
-## Will Ferrell
-
 ## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
 
 Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
 
-*Published on: Wed, 17 Jul 2024 15:53:21 GMT*
+*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
 
 
 ## Will Ferrell
 
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
 
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
-*Published on: Wed, 17 Jul 2024 17:19:38 GMT*
+*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
 ## Will Ferrell
@@ -7649,22 +6389,22 @@ When it comes to high fashion's sneaker offering, regular readers of Highsnobiet
 *Published on: Wed, 17 Jul 2024 08:10:40 GMT*
 
 
-## Will Ferrell
-
-## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
-
-Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
-
-*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
-
-
-## Will Ferrell
+## Zazie Beetz
 
 ## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
 
 There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
 
 *Published on: Wed, 17 Jul 2024 08:49:16 GMT*
+
+
+## Zazie Beetz
+
+## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
+
+Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
+
+*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
 
 
 ## Zazie Beetz
@@ -7705,15 +6445,6 @@ VF Corporation is ready to rid itself of Supreme, four years after buying arguab
 
 ## Zazie Beetz
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
-
-
-## Zazie Beetz
-
 ## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
 
 Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
@@ -7723,29 +6454,20 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Zazie Beetz
 
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
-
-
-## Zazie Beetz
-
 ## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
 
 Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
 
-*Published on: Wed, 17 Jul 2024 15:53:21 GMT*
+*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
 
 
 ## Zazie Beetz
 
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
 
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
-*Published on: Wed, 17 Jul 2024 17:19:38 GMT*
+*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
 ## Zazie Beetz
@@ -7757,22 +6479,22 @@ When it comes to high fashion's sneaker offering, regular readers of Highsnobiet
 *Published on: Wed, 17 Jul 2024 08:10:40 GMT*
 
 
-## Zazie Beetz
-
-## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
-
-Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
-
-*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
-
-
-## Zazie Beetz
+## Bob Odenkirk
 
 ## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
 
 There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
 
 *Published on: Wed, 17 Jul 2024 08:49:16 GMT*
+
+
+## Bob Odenkirk
+
+## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
+
+Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
+
+*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
 
 
 ## Bob Odenkirk
@@ -7813,15 +6535,6 @@ VF Corporation is ready to rid itself of Supreme, four years after buying arguab
 
 ## Bob Odenkirk
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
-
-
-## Bob Odenkirk
-
 ## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
 
 Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
@@ -7831,29 +6544,20 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Bob Odenkirk
 
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
-
-
-## Bob Odenkirk
-
 ## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
 
 Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
 
-*Published on: Wed, 17 Jul 2024 15:53:21 GMT*
+*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
 
 
 ## Bob Odenkirk
 
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
 
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
-*Published on: Wed, 17 Jul 2024 17:19:38 GMT*
+*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
 ## Bob Odenkirk
@@ -7865,22 +6569,22 @@ When it comes to high fashion's sneaker offering, regular readers of Highsnobiet
 *Published on: Wed, 17 Jul 2024 08:10:40 GMT*
 
 
-## Bob Odenkirk
-
-## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
-
-Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
-
-*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
-
-
-## Bob Odenkirk
+## Brad Pitt
 
 ## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
 
 There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
 
 *Published on: Wed, 17 Jul 2024 08:49:16 GMT*
+
+
+## Brad Pitt
+
+## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
+
+Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
+
+*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
 
 
 ## Brad Pitt
@@ -7921,15 +6625,6 @@ VF Corporation is ready to rid itself of Supreme, four years after buying arguab
 
 ## Brad Pitt
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
-
-
-## Brad Pitt
-
 ## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
 
 Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
@@ -7939,29 +6634,20 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Brad Pitt
 
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
-
-
-## Brad Pitt
-
 ## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
 
 Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
 
-*Published on: Wed, 17 Jul 2024 15:53:21 GMT*
+*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
 
 
 ## Brad Pitt
 
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
 
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
-*Published on: Wed, 17 Jul 2024 17:19:38 GMT*
+*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
 ## Brad Pitt
@@ -7973,22 +6659,22 @@ When it comes to high fashion's sneaker offering, regular readers of Highsnobiet
 *Published on: Wed, 17 Jul 2024 08:10:40 GMT*
 
 
-## Brad Pitt
-
-## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
-
-Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
-
-*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
-
-
-## Brad Pitt
+## Beyoncé
 
 ## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
 
 There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
 
 *Published on: Wed, 17 Jul 2024 08:49:16 GMT*
+
+
+## Beyoncé
+
+## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
+
+Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
+
+*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
 
 
 ## Beyoncé
@@ -8029,15 +6715,6 @@ VF Corporation is ready to rid itself of Supreme, four years after buying arguab
 
 ## Beyoncé
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
-
-
-## Beyoncé
-
 ## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
 
 Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
@@ -8047,29 +6724,20 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Beyoncé
 
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
-
-
-## Beyoncé
-
 ## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
 
 Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
 
-*Published on: Wed, 17 Jul 2024 15:53:21 GMT*
+*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
 
 
 ## Beyoncé
 
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
 
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
-*Published on: Wed, 17 Jul 2024 17:19:38 GMT*
+*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
 ## Beyoncé
@@ -8081,22 +6749,22 @@ When it comes to high fashion's sneaker offering, regular readers of Highsnobiet
 *Published on: Wed, 17 Jul 2024 08:10:40 GMT*
 
 
-## Beyoncé
-
-## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
-
-Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
-
-*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
-
-
-## Beyoncé
+## Bia
 
 ## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
 
 There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
 
 *Published on: Wed, 17 Jul 2024 08:49:16 GMT*
+
+
+## Bia
+
+## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
+
+Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
+
+*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
 
 
 ## Bia
@@ -8137,15 +6805,6 @@ VF Corporation is ready to rid itself of Supreme, four years after buying arguab
 
 ## Bia
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
-
-
-## Bia
-
 ## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
 
 Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
@@ -8155,29 +6814,20 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Bia
 
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
-
-
-## Bia
-
 ## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
 
 Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
 
-*Published on: Wed, 17 Jul 2024 15:53:21 GMT*
+*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
 
 
 ## Bia
 
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
 
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
-*Published on: Wed, 17 Jul 2024 17:19:38 GMT*
+*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
 ## Bia
@@ -8189,22 +6839,22 @@ When it comes to high fashion's sneaker offering, regular readers of Highsnobiet
 *Published on: Wed, 17 Jul 2024 08:10:40 GMT*
 
 
-## Bia
-
-## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
-
-Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
-
-*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
-
-
-## Bia
+## Avantika
 
 ## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
 
 There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
 
 *Published on: Wed, 17 Jul 2024 08:49:16 GMT*
+
+
+## Avantika
+
+## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
+
+Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
+
+*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
 
 
 ## Avantika
@@ -8245,15 +6895,6 @@ VF Corporation is ready to rid itself of Supreme, four years after buying arguab
 
 ## Avantika
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
-
-
-## Avantika
-
 ## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
 
 Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
@@ -8263,29 +6904,20 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Avantika
 
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
-
-
-## Avantika
-
 ## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
 
 Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
 
-*Published on: Wed, 17 Jul 2024 15:53:21 GMT*
+*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
 
 
 ## Avantika
 
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
 
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
-*Published on: Wed, 17 Jul 2024 17:19:38 GMT*
+*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
 ## Avantika
@@ -8297,22 +6929,22 @@ When it comes to high fashion's sneaker offering, regular readers of Highsnobiet
 *Published on: Wed, 17 Jul 2024 08:10:40 GMT*
 
 
-## Avantika
-
-## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
-
-Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
-
-*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
-
-
-## Avantika
+## Bernie Sanders
 
 ## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
 
 There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
 
 *Published on: Wed, 17 Jul 2024 08:49:16 GMT*
+
+
+## Bernie Sanders
+
+## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
+
+Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
+
+*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
 
 
 ## Bernie Sanders
@@ -8353,15 +6985,6 @@ VF Corporation is ready to rid itself of Supreme, four years after buying arguab
 
 ## Bernie Sanders
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
-
-
-## Bernie Sanders
-
 ## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
 
 Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
@@ -8371,29 +6994,20 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Bernie Sanders
 
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
-
-
-## Bernie Sanders
-
 ## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
 
 Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
 
-*Published on: Wed, 17 Jul 2024 15:53:21 GMT*
+*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
 
 
 ## Bernie Sanders
 
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
 
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
-*Published on: Wed, 17 Jul 2024 17:19:38 GMT*
+*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
 ## Bernie Sanders
@@ -8405,22 +7019,22 @@ When it comes to high fashion's sneaker offering, regular readers of Highsnobiet
 *Published on: Wed, 17 Jul 2024 08:10:40 GMT*
 
 
-## Bernie Sanders
-
-## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
-
-Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
-
-*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
-
-
-## Bernie Sanders
+## Big Sean
 
 ## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
 
 There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
 
 *Published on: Wed, 17 Jul 2024 08:49:16 GMT*
+
+
+## Big Sean
+
+## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
+
+Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
+
+*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
 
 
 ## Big Sean
@@ -8461,15 +7075,6 @@ VF Corporation is ready to rid itself of Supreme, four years after buying arguab
 
 ## Big Sean
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
-
-
-## Big Sean
-
 ## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
 
 Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
@@ -8479,29 +7084,20 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Big Sean
 
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
-
-
-## Big Sean
-
 ## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
 
 Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
 
-*Published on: Wed, 17 Jul 2024 15:53:21 GMT*
+*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
 
 
 ## Big Sean
 
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
 
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
-*Published on: Wed, 17 Jul 2024 17:19:38 GMT*
+*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
 ## Big Sean
@@ -8513,22 +7109,22 @@ When it comes to high fashion's sneaker offering, regular readers of Highsnobiet
 *Published on: Wed, 17 Jul 2024 08:10:40 GMT*
 
 
-## Big Sean
-
-## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
-
-Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
-
-*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
-
-
-## Big Sean
+## BlockBoy JB
 
 ## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
 
 There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
 
 *Published on: Wed, 17 Jul 2024 08:49:16 GMT*
+
+
+## BlockBoy JB
+
+## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
+
+Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
+
+*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
 
 
 ## BlockBoy JB
@@ -8569,15 +7165,6 @@ VF Corporation is ready to rid itself of Supreme, four years after buying arguab
 
 ## BlockBoy JB
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
-
-
-## BlockBoy JB
-
 ## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
 
 Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
@@ -8587,29 +7174,20 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## BlockBoy JB
 
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
-
-
-## BlockBoy JB
-
 ## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
 
 Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
 
-*Published on: Wed, 17 Jul 2024 15:53:21 GMT*
+*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
 
 
 ## BlockBoy JB
 
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
 
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
-*Published on: Wed, 17 Jul 2024 17:19:38 GMT*
+*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
 ## BlockBoy JB
@@ -8621,22 +7199,22 @@ When it comes to high fashion's sneaker offering, regular readers of Highsnobiet
 *Published on: Wed, 17 Jul 2024 08:10:40 GMT*
 
 
-## BlockBoy JB
-
-## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
-
-Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
-
-*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
-
-
-## BlockBoy JB
+## Biden
 
 ## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
 
 There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
 
 *Published on: Wed, 17 Jul 2024 08:49:16 GMT*
+
+
+## Biden
+
+## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
+
+Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
+
+*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
 
 
 ## Biden
@@ -8677,15 +7255,6 @@ VF Corporation is ready to rid itself of Supreme, four years after buying arguab
 
 ## Biden
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
-
-
-## Biden
-
 ## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
 
 Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
@@ -8695,29 +7264,20 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Biden
 
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
-
-
-## Biden
-
 ## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
 
 Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
 
-*Published on: Wed, 17 Jul 2024 15:53:21 GMT*
+*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
 
 
 ## Biden
 
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
 
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
-*Published on: Wed, 17 Jul 2024 17:19:38 GMT*
+*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
 ## Biden
@@ -8729,22 +7289,22 @@ When it comes to high fashion's sneaker offering, regular readers of Highsnobiet
 *Published on: Wed, 17 Jul 2024 08:10:40 GMT*
 
 
-## Biden
-
-## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
-
-Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
-
-*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
-
-
-## Biden
+## Bieber
 
 ## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
 
 There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
 
 *Published on: Wed, 17 Jul 2024 08:49:16 GMT*
+
+
+## Bieber
+
+## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
+
+Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
+
+*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
 
 
 ## Bieber
@@ -8785,15 +7345,6 @@ VF Corporation is ready to rid itself of Supreme, four years after buying arguab
 
 ## Bieber
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
-
-
-## Bieber
-
 ## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
 
 Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
@@ -8803,29 +7354,20 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Bieber
 
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
-
-
-## Bieber
-
 ## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
 
 Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
 
-*Published on: Wed, 17 Jul 2024 15:53:21 GMT*
+*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
 
 
 ## Bieber
 
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
 
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
-*Published on: Wed, 17 Jul 2024 17:19:38 GMT*
+*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
 ## Bieber
@@ -8837,22 +7379,22 @@ When it comes to high fashion's sneaker offering, regular readers of Highsnobiet
 *Published on: Wed, 17 Jul 2024 08:10:40 GMT*
 
 
-## Bieber
-
-## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
-
-Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
-
-*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
-
-
-## Bieber
+## Paulina Porizkov
 
 ## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
 
 There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
 
 *Published on: Wed, 17 Jul 2024 08:49:16 GMT*
+
+
+## Paulina Porizkov
+
+## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
+
+Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
+
+*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
 
 
 ## Paulina Porizkov
@@ -8893,15 +7435,6 @@ VF Corporation is ready to rid itself of Supreme, four years after buying arguab
 
 ## Paulina Porizkov
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
-
-
-## Paulina Porizkov
-
 ## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
 
 Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
@@ -8911,29 +7444,20 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Paulina Porizkov
 
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
-
-
-## Paulina Porizkov
-
 ## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
 
 Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
 
-*Published on: Wed, 17 Jul 2024 15:53:21 GMT*
+*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
 
 
 ## Paulina Porizkov
 
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
 
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
-*Published on: Wed, 17 Jul 2024 17:19:38 GMT*
+*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
 ## Paulina Porizkov
@@ -8945,22 +7469,22 @@ When it comes to high fashion's sneaker offering, regular readers of Highsnobiet
 *Published on: Wed, 17 Jul 2024 08:10:40 GMT*
 
 
-## Paulina Porizkov
-
-## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
-
-Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
-
-*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
-
-
-## Paulina Porizkov
+## Paris Hilton
 
 ## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
 
 There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
 
 *Published on: Wed, 17 Jul 2024 08:49:16 GMT*
+
+
+## Paris Hilton
+
+## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
+
+Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
+
+*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
 
 
 ## Paris Hilton
@@ -9001,15 +7525,6 @@ VF Corporation is ready to rid itself of Supreme, four years after buying arguab
 
 ## Paris Hilton
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
-
-
-## Paris Hilton
-
 ## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
 
 Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
@@ -9019,29 +7534,20 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Paris Hilton
 
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
-
-
-## Paris Hilton
-
 ## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
 
 Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
 
-*Published on: Wed, 17 Jul 2024 15:53:21 GMT*
+*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
 
 
 ## Paris Hilton
 
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
 
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
-*Published on: Wed, 17 Jul 2024 17:19:38 GMT*
+*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
 ## Paris Hilton
@@ -9053,22 +7559,22 @@ When it comes to high fashion's sneaker offering, regular readers of Highsnobiet
 *Published on: Wed, 17 Jul 2024 08:10:40 GMT*
 
 
-## Paris Hilton
-
-## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
-
-Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
-
-*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
-
-
-## Paris Hilton
+## Metro Boomin
 
 ## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
 
 There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
 
 *Published on: Wed, 17 Jul 2024 08:49:16 GMT*
+
+
+## Metro Boomin
+
+## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
+
+Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
+
+*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
 
 
 ## Metro Boomin
@@ -9109,15 +7615,6 @@ VF Corporation is ready to rid itself of Supreme, four years after buying arguab
 
 ## Metro Boomin
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
-
-
-## Metro Boomin
-
 ## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
 
 Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
@@ -9127,29 +7624,20 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Metro Boomin
 
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
-
-
-## Metro Boomin
-
 ## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
 
 Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
 
-*Published on: Wed, 17 Jul 2024 15:53:21 GMT*
+*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
 
 
 ## Metro Boomin
 
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
 
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
-*Published on: Wed, 17 Jul 2024 17:19:38 GMT*
+*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
 ## Metro Boomin
@@ -9161,22 +7649,22 @@ When it comes to high fashion's sneaker offering, regular readers of Highsnobiet
 *Published on: Wed, 17 Jul 2024 08:10:40 GMT*
 
 
-## Metro Boomin
-
-## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
-
-Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
-
-*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
-
-
-## Metro Boomin
+## Meghan Markle
 
 ## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
 
 There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
 
 *Published on: Wed, 17 Jul 2024 08:49:16 GMT*
+
+
+## Meghan Markle
+
+## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
+
+Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
+
+*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
 
 
 ## Meghan Markle
@@ -9217,15 +7705,6 @@ VF Corporation is ready to rid itself of Supreme, four years after buying arguab
 
 ## Meghan Markle
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
-
-
-## Meghan Markle
-
 ## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
 
 Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
@@ -9235,29 +7714,20 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Meghan Markle
 
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
-
-
-## Meghan Markle
-
 ## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
 
 Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
 
-*Published on: Wed, 17 Jul 2024 15:53:21 GMT*
+*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
 
 
 ## Meghan Markle
 
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
 
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
-*Published on: Wed, 17 Jul 2024 17:19:38 GMT*
+*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
 ## Meghan Markle
@@ -9269,22 +7739,22 @@ When it comes to high fashion's sneaker offering, regular readers of Highsnobiet
 *Published on: Wed, 17 Jul 2024 08:10:40 GMT*
 
 
-## Meghan Markle
-
-## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
-
-Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
-
-*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
-
-
-## Meghan Markle
+## Megan Thee Stallion
 
 ## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
 
 There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
 
 *Published on: Wed, 17 Jul 2024 08:49:16 GMT*
+
+
+## Megan Thee Stallion
+
+## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
+
+Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
+
+*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
 
 
 ## Megan Thee Stallion
@@ -9325,15 +7795,6 @@ VF Corporation is ready to rid itself of Supreme, four years after buying arguab
 
 ## Megan Thee Stallion
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
-
-
-## Megan Thee Stallion
-
 ## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
 
 Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
@@ -9343,29 +7804,20 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Megan Thee Stallion
 
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
-
-
-## Megan Thee Stallion
-
 ## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
 
 Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
 
-*Published on: Wed, 17 Jul 2024 15:53:21 GMT*
+*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
 
 
 ## Megan Thee Stallion
 
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
 
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
-*Published on: Wed, 17 Jul 2024 17:19:38 GMT*
+*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
 ## Megan Thee Stallion
@@ -9377,22 +7829,22 @@ When it comes to high fashion's sneaker offering, regular readers of Highsnobiet
 *Published on: Wed, 17 Jul 2024 08:10:40 GMT*
 
 
-## Megan Thee Stallion
-
-## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
-
-Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
-
-*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
-
-
-## Megan Thee Stallion
+## Maya Rudolph
 
 ## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
 
 There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
 
 *Published on: Wed, 17 Jul 2024 08:49:16 GMT*
+
+
+## Maya Rudolph
+
+## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
+
+Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
+
+*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
 
 
 ## Maya Rudolph
@@ -9433,15 +7885,6 @@ VF Corporation is ready to rid itself of Supreme, four years after buying arguab
 
 ## Maya Rudolph
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
-
-
-## Maya Rudolph
-
 ## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
 
 Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
@@ -9451,29 +7894,20 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Maya Rudolph
 
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
-
-
-## Maya Rudolph
-
 ## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
 
 Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
 
-*Published on: Wed, 17 Jul 2024 15:53:21 GMT*
+*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
 
 
 ## Maya Rudolph
 
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
 
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
-*Published on: Wed, 17 Jul 2024 17:19:38 GMT*
+*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
 ## Maya Rudolph
@@ -9485,22 +7919,22 @@ When it comes to high fashion's sneaker offering, regular readers of Highsnobiet
 *Published on: Wed, 17 Jul 2024 08:10:40 GMT*
 
 
-## Maya Rudolph
-
-## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
-
-Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
-
-*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
-
-
-## Maya Rudolph
+## Olivia Rodrigo
 
 ## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
 
 There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
 
 *Published on: Wed, 17 Jul 2024 08:49:16 GMT*
+
+
+## Olivia Rodrigo
+
+## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
+
+Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
+
+*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
 
 
 ## Olivia Rodrigo
@@ -9541,15 +7975,6 @@ VF Corporation is ready to rid itself of Supreme, four years after buying arguab
 
 ## Olivia Rodrigo
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
-
-
-## Olivia Rodrigo
-
 ## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
 
 Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
@@ -9559,29 +7984,20 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Olivia Rodrigo
 
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
-
-
-## Olivia Rodrigo
-
 ## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
 
 Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
 
-*Published on: Wed, 17 Jul 2024 15:53:21 GMT*
+*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
 
 
 ## Olivia Rodrigo
 
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
 
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
-*Published on: Wed, 17 Jul 2024 17:19:38 GMT*
+*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
 ## Olivia Rodrigo
@@ -9593,22 +8009,22 @@ When it comes to high fashion's sneaker offering, regular readers of Highsnobiet
 *Published on: Wed, 17 Jul 2024 08:10:40 GMT*
 
 
-## Olivia Rodrigo
-
-## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
-
-Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
-
-*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
-
-
-## Olivia Rodrigo
+## Obama
 
 ## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
 
 There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
 
 *Published on: Wed, 17 Jul 2024 08:49:16 GMT*
+
+
+## Obama
+
+## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
+
+Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
+
+*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
 
 
 ## Obama
@@ -9649,15 +8065,6 @@ VF Corporation is ready to rid itself of Supreme, four years after buying arguab
 
 ## Obama
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
-
-
-## Obama
-
 ## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
 
 Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
@@ -9667,29 +8074,20 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Obama
 
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
-
-
-## Obama
-
 ## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
 
 Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
 
-*Published on: Wed, 17 Jul 2024 15:53:21 GMT*
+*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
 
 
 ## Obama
 
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
 
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
-*Published on: Wed, 17 Jul 2024 17:19:38 GMT*
+*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
 ## Obama
@@ -9701,22 +8099,22 @@ When it comes to high fashion's sneaker offering, regular readers of Highsnobiet
 *Published on: Wed, 17 Jul 2024 08:10:40 GMT*
 
 
-## Obama
-
-## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
-
-Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
-
-*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
-
-
-## Obama
+## Nicki Minaj
 
 ## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
 
 There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
 
 *Published on: Wed, 17 Jul 2024 08:49:16 GMT*
+
+
+## Nicki Minaj
+
+## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
+
+Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
+
+*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
 
 
 ## Nicki Minaj
@@ -9757,15 +8155,6 @@ VF Corporation is ready to rid itself of Supreme, four years after buying arguab
 
 ## Nicki Minaj
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
-
-
-## Nicki Minaj
-
 ## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
 
 Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
@@ -9775,29 +8164,20 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## Nicki Minaj
 
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
-
-
-## Nicki Minaj
-
 ## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
 
 Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
 
-*Published on: Wed, 17 Jul 2024 15:53:21 GMT*
+*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
 
 
 ## Nicki Minaj
 
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
 
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
-*Published on: Wed, 17 Jul 2024 17:19:38 GMT*
+*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
 ## Nicki Minaj
@@ -9809,22 +8189,22 @@ When it comes to high fashion's sneaker offering, regular readers of Highsnobiet
 *Published on: Wed, 17 Jul 2024 08:10:40 GMT*
 
 
-## Nicki Minaj
-
-## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
-
-Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
-
-*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
-
-
-## Nicki Minaj
+## MrBeast
 
 ## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
 
 There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
 
 *Published on: Wed, 17 Jul 2024 08:49:16 GMT*
+
+
+## MrBeast
+
+## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
+
+Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
+
+*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
 
 
 ## MrBeast
@@ -9865,15 +8245,6 @@ VF Corporation is ready to rid itself of Supreme, four years after buying arguab
 
 ## MrBeast
 
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Wed, 17 Jul 2024 10:25:30 GMT*
-
-
-## MrBeast
-
 ## [Shoezempic? Footwear Is Gradually Un-Chunking](https://www.highsnobiety.com/p/slim-shoes/)
 
 Due to what's been dubbed the flat footwear movement, sneakers have been subject to a steady down-sizing. That's right, folks, we're in the midst of a gradual …
@@ -9883,29 +8254,20 @@ Due to what's been dubbed the flat footwear movement, sneakers have been subject
 
 ## MrBeast
 
-## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
-
-Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
-
-*Published on: Wed, 17 Jul 2024 14:51:59 GMT*
-
-
-## MrBeast
-
 ## [Why This Aimé Leon Dore New Balance Should Influence All Future Shoe Collabs](https://www.highsnobiety.com/p/ald-new-balance-860-2025/)
 
 Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's effortfully cultivated (and much imitated) visual language is likely a draw but t…
 
-*Published on: Wed, 17 Jul 2024 15:53:21 GMT*
+*Published on: Thu, 18 Jul 2024 07:30:21 GMT*
 
 
 ## MrBeast
 
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
 
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
-*Published on: Wed, 17 Jul 2024 17:19:38 GMT*
+*Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
 ## MrBeast
@@ -9915,23 +8277,5 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 When it comes to high fashion's sneaker offering, regular readers of Highsnobiety will know all about our love for Maison Margiela 's output. If you're going t…
 
 *Published on: Wed, 17 Jul 2024 08:10:40 GMT*
-
-
-## MrBeast
-
-## [Vans Is Still "Always Pushing"](https://www.highsnobiety.com/p/vans-always-pushing/)
-
-Vans is always pushing. Skaters are always pushing. And thus, Vans and a cohort of its skateboarding peers present "Always Pushing.""Always Pushing" is a compa…
-
-*Published on: Wed, 17 Jul 2024 09:02:43 GMT*
-
-
-## MrBeast
-
-## [These Secretly Good Jordan 4 Sneakers Were Made for the Olympics](https://www.highsnobiety.com/p/jordan-4-sneakers-wet-cement-2024/)
-
-There's no denying that the Air Jordan 4 has ruled 2024, from simmering skate-worthy variants to new paint jobs applied to the OG model. The latest drop advanc…
-
-*Published on: Wed, 17 Jul 2024 08:49:16 GMT*
 
 
