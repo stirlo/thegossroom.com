@@ -1,15 +1,6 @@
 # Latest Stories
 ## Tim Cook
 
-## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
-
-On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
-
-*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
-
-
-## Tim Cook
-
 ## [Mongolia's Olympic Uniforms Are Unbeatable](https://www.highsnobiety.com/p/mongolia-olympic-uniforms/)
 
 In the lead-up to the 2024 Paris Olympic Games, it's not the athletes that are generating headlines — it's Mongolia's ultra-stylish uniforms.Designed by Ulaanb…
@@ -62,7 +53,34 @@ Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has becom
 *Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
-## Taylor Swift
+## Tim Cook
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Thu, 18 Jul 2024 08:34:38 GMT*
+
+
+## Tim Cook
+
+## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
+
+
+## Tim Cook
+
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
+
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
+
+*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
+
+
+## Tim Cook
 
 ## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
 
@@ -125,7 +143,34 @@ Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has becom
 *Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
-## Tom Brady
+## Taylor Swift
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Thu, 18 Jul 2024 08:34:38 GMT*
+
+
+## Taylor Swift
+
+## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
+
+
+## Taylor Swift
+
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
+
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
+
+*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
+
+
+## Taylor Swift
 
 ## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
 
@@ -188,7 +233,34 @@ Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has becom
 *Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
-## Tina Fey
+## Tom Brady
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Thu, 18 Jul 2024 08:34:38 GMT*
+
+
+## Tom Brady
+
+## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
+
+
+## Tom Brady
+
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
+
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
+
+*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
+
+
+## Tom Brady
 
 ## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
 
@@ -251,7 +323,34 @@ Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has becom
 *Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
-## Steven Yuen
+## Tina Fey
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Thu, 18 Jul 2024 08:34:38 GMT*
+
+
+## Tina Fey
+
+## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
+
+
+## Tina Fey
+
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
+
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
+
+*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
+
+
+## Tina Fey
 
 ## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
 
@@ -314,7 +413,34 @@ Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has becom
 *Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
-## Sommer Ray
+## Steven Yuen
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Thu, 18 Jul 2024 08:34:38 GMT*
+
+
+## Steven Yuen
+
+## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
+
+
+## Steven Yuen
+
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
+
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
+
+*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
+
+
+## Steven Yuen
 
 ## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
 
@@ -377,7 +503,34 @@ Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has becom
 *Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
-## Sza
+## Sommer Ray
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Thu, 18 Jul 2024 08:34:38 GMT*
+
+
+## Sommer Ray
+
+## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
+
+
+## Sommer Ray
+
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
+
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
+
+*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
+
+
+## Sommer Ray
 
 ## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
 
@@ -440,7 +593,34 @@ Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has becom
 *Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
-## Sydney Sweeney
+## Sza
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Thu, 18 Jul 2024 08:34:38 GMT*
+
+
+## Sza
+
+## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
+
+
+## Sza
+
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
+
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
+
+*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
+
+
+## Sza
 
 ## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
 
@@ -503,7 +683,34 @@ Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has becom
 *Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
-## Walton Goggins
+## Sydney Sweeney
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Thu, 18 Jul 2024 08:34:38 GMT*
+
+
+## Sydney Sweeney
+
+## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
+
+
+## Sydney Sweeney
+
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
+
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
+
+*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
+
+
+## Sydney Sweeney
 
 ## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
 
@@ -566,7 +773,34 @@ Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has becom
 *Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
-## Tom Holland
+## Walton Goggins
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Thu, 18 Jul 2024 08:34:38 GMT*
+
+
+## Walton Goggins
+
+## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
+
+
+## Walton Goggins
+
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
+
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
+
+*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
+
+
+## Walton Goggins
 
 ## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
 
@@ -629,7 +863,34 @@ Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has becom
 *Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
-## Gucci Mane
+## Tom Holland
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Thu, 18 Jul 2024 08:34:38 GMT*
+
+
+## Tom Holland
+
+## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
+
+
+## Tom Holland
+
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
+
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
+
+*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
+
+
+## Tom Holland
 
 ## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
 
@@ -692,7 +953,34 @@ Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has becom
 *Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
-## Harry Styles
+## Gucci Mane
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Thu, 18 Jul 2024 08:34:38 GMT*
+
+
+## Gucci Mane
+
+## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
+
+
+## Gucci Mane
+
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
+
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
+
+*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
+
+
+## Gucci Mane
 
 ## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
 
@@ -755,7 +1043,34 @@ Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has becom
 *Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
-## Jake Paul
+## Harry Styles
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Thu, 18 Jul 2024 08:34:38 GMT*
+
+
+## Harry Styles
+
+## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
+
+
+## Harry Styles
+
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
+
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
+
+*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
+
+
+## Harry Styles
 
 ## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
 
@@ -818,7 +1133,34 @@ Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has becom
 *Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
-## Jameela Jamil
+## Jake Paul
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Thu, 18 Jul 2024 08:34:38 GMT*
+
+
+## Jake Paul
+
+## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
+
+
+## Jake Paul
+
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
+
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
+
+*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
+
+
+## Jake Paul
 
 ## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
 
@@ -881,7 +1223,34 @@ Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has becom
 *Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
-## Elon Musk
+## Jameela Jamil
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Thu, 18 Jul 2024 08:34:38 GMT*
+
+
+## Jameela Jamil
+
+## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
+
+
+## Jameela Jamil
+
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
+
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
+
+*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
+
+
+## Jameela Jamil
 
 ## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
 
@@ -944,7 +1313,34 @@ Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has becom
 *Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
-## Gabrielle Union
+## Elon Musk
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Thu, 18 Jul 2024 08:34:38 GMT*
+
+
+## Elon Musk
+
+## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
+
+
+## Elon Musk
+
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
+
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
+
+*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
+
+
+## Elon Musk
 
 ## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
 
@@ -1007,7 +1403,34 @@ Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has becom
 *Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
-## Giancarlo Esposito
+## Gabrielle Union
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Thu, 18 Jul 2024 08:34:38 GMT*
+
+
+## Gabrielle Union
+
+## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
+
+
+## Gabrielle Union
+
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
+
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
+
+*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
+
+
+## Gabrielle Union
 
 ## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
 
@@ -1070,7 +1493,34 @@ Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has becom
 *Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
-## Gillian Jacobs
+## Giancarlo Esposito
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Thu, 18 Jul 2024 08:34:38 GMT*
+
+
+## Giancarlo Esposito
+
+## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
+
+
+## Giancarlo Esposito
+
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
+
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
+
+*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
+
+
+## Giancarlo Esposito
 
 ## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
 
@@ -1133,7 +1583,34 @@ Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has becom
 *Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
-## Jason Mantzoukas
+## Gillian Jacobs
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Thu, 18 Jul 2024 08:34:38 GMT*
+
+
+## Gillian Jacobs
+
+## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
+
+
+## Gillian Jacobs
+
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
+
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
+
+*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
+
+
+## Gillian Jacobs
 
 ## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
 
@@ -1196,7 +1673,34 @@ Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has becom
 *Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
-## JB Smoove
+## Jason Mantzoukas
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Thu, 18 Jul 2024 08:34:38 GMT*
+
+
+## Jason Mantzoukas
+
+## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
+
+
+## Jason Mantzoukas
+
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
+
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
+
+*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
+
+
+## Jason Mantzoukas
 
 ## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
 
@@ -1259,7 +1763,34 @@ Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has becom
 *Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
-## Madison Pettis
+## JB Smoove
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Thu, 18 Jul 2024 08:34:38 GMT*
+
+
+## JB Smoove
+
+## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
+
+
+## JB Smoove
+
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
+
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
+
+*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
+
+
+## JB Smoove
 
 ## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
 
@@ -1322,7 +1853,34 @@ Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has becom
 *Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
-## Austin Butler
+## Madison Pettis
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Thu, 18 Jul 2024 08:34:38 GMT*
+
+
+## Madison Pettis
+
+## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
+
+
+## Madison Pettis
+
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
+
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
+
+*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
+
+
+## Madison Pettis
 
 ## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
 
@@ -1385,7 +1943,34 @@ Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has becom
 *Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
-## Mark Zuckerberg
+## Austin Butler
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Thu, 18 Jul 2024 08:34:38 GMT*
+
+
+## Austin Butler
+
+## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
+
+
+## Austin Butler
+
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
+
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
+
+*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
+
+
+## Austin Butler
 
 ## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
 
@@ -1448,7 +2033,34 @@ Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has becom
 *Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
-## Ariana Grande
+## Mark Zuckerberg
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Thu, 18 Jul 2024 08:34:38 GMT*
+
+
+## Mark Zuckerberg
+
+## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
+
+
+## Mark Zuckerberg
+
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
+
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
+
+*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
+
+
+## Mark Zuckerberg
 
 ## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
 
@@ -1511,7 +2123,34 @@ Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has becom
 *Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
-## Livvy Dunne
+## Ariana Grande
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Thu, 18 Jul 2024 08:34:38 GMT*
+
+
+## Ariana Grande
+
+## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
+
+
+## Ariana Grande
+
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
+
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
+
+*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
+
+
+## Ariana Grande
 
 ## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
 
@@ -1574,7 +2213,34 @@ Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has becom
 *Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
-## Ali Wong
+## Livvy Dunne
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Thu, 18 Jul 2024 08:34:38 GMT*
+
+
+## Livvy Dunne
+
+## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
+
+
+## Livvy Dunne
+
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
+
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
+
+*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
+
+
+## Livvy Dunne
 
 ## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
 
@@ -1637,7 +2303,34 @@ Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has becom
 *Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
-## Lizzo
+## Ali Wong
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Thu, 18 Jul 2024 08:34:38 GMT*
+
+
+## Ali Wong
+
+## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
+
+
+## Ali Wong
+
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
+
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
+
+*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
+
+
+## Ali Wong
 
 ## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
 
@@ -1700,7 +2393,34 @@ Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has becom
 *Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
-## Alison Brie
+## Lizzo
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Thu, 18 Jul 2024 08:34:38 GMT*
+
+
+## Lizzo
+
+## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
+
+
+## Lizzo
+
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
+
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
+
+*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
+
+
+## Lizzo
 
 ## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
 
@@ -1763,7 +2483,34 @@ Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has becom
 *Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
-## Lil Wayne
+## Alison Brie
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Thu, 18 Jul 2024 08:34:38 GMT*
+
+
+## Alison Brie
+
+## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
+
+
+## Alison Brie
+
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
+
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
+
+*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
+
+
+## Alison Brie
 
 ## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
 
@@ -1826,7 +2573,34 @@ Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has becom
 *Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
-## Adele
+## Lil Wayne
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Thu, 18 Jul 2024 08:34:38 GMT*
+
+
+## Lil Wayne
+
+## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
+
+
+## Lil Wayne
+
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
+
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
+
+*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
+
+
+## Lil Wayne
 
 ## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
 
@@ -1889,7 +2663,34 @@ Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has becom
 *Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
-## Lindsay Lohan
+## Adele
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Thu, 18 Jul 2024 08:34:38 GMT*
+
+
+## Adele
+
+## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
+
+
+## Adele
+
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
+
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
+
+*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
+
+
+## Adele
 
 ## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
 
@@ -1952,7 +2753,34 @@ Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has becom
 *Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
-## Addison Rae
+## Lindsay Lohan
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Thu, 18 Jul 2024 08:34:38 GMT*
+
+
+## Lindsay Lohan
+
+## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
+
+
+## Lindsay Lohan
+
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
+
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
+
+*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
+
+
+## Lindsay Lohan
 
 ## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
 
@@ -2015,7 +2843,34 @@ Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has becom
 *Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
-## Latto
+## Addison Rae
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Thu, 18 Jul 2024 08:34:38 GMT*
+
+
+## Addison Rae
+
+## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
+
+
+## Addison Rae
+
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
+
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
+
+*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
+
+
+## Addison Rae
 
 ## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
 
@@ -2078,7 +2933,34 @@ Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has becom
 *Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
-## Aaron Paul
+## Latto
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Thu, 18 Jul 2024 08:34:38 GMT*
+
+
+## Latto
+
+## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
+
+
+## Latto
+
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
+
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
+
+*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
+
+
+## Latto
 
 ## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
 
@@ -2141,7 +3023,34 @@ Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has becom
 *Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
-## LeBron James
+## Aaron Paul
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Thu, 18 Jul 2024 08:34:38 GMT*
+
+
+## Aaron Paul
+
+## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
+
+
+## Aaron Paul
+
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
+
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
+
+*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
+
+
+## Aaron Paul
 
 ## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
 
@@ -2204,7 +3113,34 @@ Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has becom
 *Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
-## 50 Cent
+## LeBron James
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Thu, 18 Jul 2024 08:34:38 GMT*
+
+
+## LeBron James
+
+## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
+
+
+## LeBron James
+
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
+
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
+
+*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
+
+
+## LeBron James
 
 ## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
 
@@ -2267,7 +3203,34 @@ Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has becom
 *Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
-## Kesha
+## 50 Cent
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Thu, 18 Jul 2024 08:34:38 GMT*
+
+
+## 50 Cent
+
+## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
+
+
+## 50 Cent
+
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
+
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
+
+*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
+
+
+## 50 Cent
 
 ## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
 
@@ -2330,7 +3293,34 @@ Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has becom
 *Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
-## 21 Savage
+## Kesha
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Thu, 18 Jul 2024 08:34:38 GMT*
+
+
+## Kesha
+
+## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
+
+
+## Kesha
+
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
+
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
+
+*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
+
+
+## Kesha
 
 ## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
 
@@ -2393,7 +3383,34 @@ Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has becom
 *Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
-## Larry David
+## 21 Savage
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Thu, 18 Jul 2024 08:34:38 GMT*
+
+
+## 21 Savage
+
+## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
+
+
+## 21 Savage
+
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
+
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
+
+*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
+
+
+## 21 Savage
 
 ## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
 
@@ -2456,7 +3473,34 @@ Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has becom
 *Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
-## Seth Rogan
+## Larry David
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Thu, 18 Jul 2024 08:34:38 GMT*
+
+
+## Larry David
+
+## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
+
+
+## Larry David
+
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
+
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
+
+*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
+
+
+## Larry David
 
 ## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
 
@@ -2519,7 +3563,34 @@ Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has becom
 *Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
-## Simone Biles
+## Seth Rogan
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Thu, 18 Jul 2024 08:34:38 GMT*
+
+
+## Seth Rogan
+
+## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
+
+
+## Seth Rogan
+
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
+
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
+
+*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
+
+
+## Seth Rogan
 
 ## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
 
@@ -2582,7 +3653,34 @@ Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has becom
 *Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
-## Pete Davidson
+## Simone Biles
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Thu, 18 Jul 2024 08:34:38 GMT*
+
+
+## Simone Biles
+
+## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
+
+
+## Simone Biles
+
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
+
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
+
+*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
+
+
+## Simone Biles
 
 ## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
 
@@ -2645,7 +3743,34 @@ Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has becom
 *Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
-## Prince Harry
+## Pete Davidson
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Thu, 18 Jul 2024 08:34:38 GMT*
+
+
+## Pete Davidson
+
+## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
+
+
+## Pete Davidson
+
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
+
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
+
+*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
+
+
+## Pete Davidson
 
 ## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
 
@@ -2708,7 +3833,34 @@ Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has becom
 *Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
-## Princess of Wales
+## Prince Harry
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Thu, 18 Jul 2024 08:34:38 GMT*
+
+
+## Prince Harry
+
+## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
+
+
+## Prince Harry
+
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
+
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
+
+*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
+
+
+## Prince Harry
 
 ## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
 
@@ -2771,7 +3923,34 @@ Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has becom
 *Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
-## Rachel McAdams
+## Princess of Wales
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Thu, 18 Jul 2024 08:34:38 GMT*
+
+
+## Princess of Wales
+
+## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
+
+
+## Princess of Wales
+
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
+
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
+
+*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
+
+
+## Princess of Wales
 
 ## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
 
@@ -2834,7 +4013,34 @@ Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has becom
 *Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
-## Reneé Rapp
+## Rachel McAdams
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Thu, 18 Jul 2024 08:34:38 GMT*
+
+
+## Rachel McAdams
+
+## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
+
+
+## Rachel McAdams
+
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
+
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
+
+*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
+
+
+## Rachel McAdams
 
 ## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
 
@@ -2897,7 +4103,34 @@ Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has becom
 *Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
-## Rick Ross
+## Reneé Rapp
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Thu, 18 Jul 2024 08:34:38 GMT*
+
+
+## Reneé Rapp
+
+## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
+
+
+## Reneé Rapp
+
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
+
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
+
+*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
+
+
+## Reneé Rapp
 
 ## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
 
@@ -2960,7 +4193,34 @@ Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has becom
 *Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
-## Sam Ashgari
+## Rick Ross
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Thu, 18 Jul 2024 08:34:38 GMT*
+
+
+## Rick Ross
+
+## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
+
+
+## Rick Ross
+
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
+
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
+
+*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
+
+
+## Rick Ross
 
 ## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
 
@@ -3023,7 +4283,34 @@ Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has becom
 *Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
-## Sandra Oh
+## Sam Ashgari
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Thu, 18 Jul 2024 08:34:38 GMT*
+
+
+## Sam Ashgari
+
+## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
+
+
+## Sam Ashgari
+
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
+
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
+
+*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
+
+
+## Sam Ashgari
 
 ## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
 
@@ -3086,7 +4373,34 @@ Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has becom
 *Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
-## Donald Trump
+## Sandra Oh
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Thu, 18 Jul 2024 08:34:38 GMT*
+
+
+## Sandra Oh
+
+## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
+
+
+## Sandra Oh
+
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
+
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
+
+*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
+
+
+## Sandra Oh
 
 ## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
 
@@ -3149,7 +4463,34 @@ Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has becom
 *Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
-## Diddy
+## Donald Trump
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Thu, 18 Jul 2024 08:34:38 GMT*
+
+
+## Donald Trump
+
+## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
+
+
+## Donald Trump
+
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
+
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
+
+*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
+
+
+## Donald Trump
 
 ## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
 
@@ -3212,7 +4553,34 @@ Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has becom
 *Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
-## City Girls
+## Diddy
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Thu, 18 Jul 2024 08:34:38 GMT*
+
+
+## Diddy
+
+## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
+
+
+## Diddy
+
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
+
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
+
+*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
+
+
+## Diddy
 
 ## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
 
@@ -3275,7 +4643,34 @@ Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has becom
 *Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
-## Chloe Bailey
+## City Girls
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Thu, 18 Jul 2024 08:34:38 GMT*
+
+
+## City Girls
+
+## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
+
+
+## City Girls
+
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
+
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
+
+*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
+
+
+## City Girls
 
 ## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
 
@@ -3338,7 +4733,34 @@ Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has becom
 *Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
-## Charli D Amelio
+## Chloe Bailey
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Thu, 18 Jul 2024 08:34:38 GMT*
+
+
+## Chloe Bailey
+
+## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
+
+
+## Chloe Bailey
+
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
+
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
+
+*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
+
+
+## Chloe Bailey
 
 ## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
 
@@ -3401,7 +4823,34 @@ Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has becom
 *Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
-## Cardi B
+## Charli D Amelio
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Thu, 18 Jul 2024 08:34:38 GMT*
+
+
+## Charli D Amelio
+
+## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
+
+
+## Charli D Amelio
+
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
+
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
+
+*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
+
+
+## Charli D Amelio
 
 ## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
 
@@ -3464,7 +4913,34 @@ Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has becom
 *Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
-## Bryan Cranston
+## Cardi B
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Thu, 18 Jul 2024 08:34:38 GMT*
+
+
+## Cardi B
+
+## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
+
+
+## Cardi B
+
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
+
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
+
+*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
+
+
+## Cardi B
 
 ## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
 
@@ -3527,7 +5003,34 @@ Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has becom
 *Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
-## Brielle Biermann
+## Bryan Cranston
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Thu, 18 Jul 2024 08:34:38 GMT*
+
+
+## Bryan Cranston
+
+## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
+
+
+## Bryan Cranston
+
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
+
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
+
+*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
+
+
+## Bryan Cranston
 
 ## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
 
@@ -3590,7 +5093,34 @@ Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has becom
 *Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
-## Dua Lipa
+## Brielle Biermann
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Thu, 18 Jul 2024 08:34:38 GMT*
+
+
+## Brielle Biermann
+
+## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
+
+
+## Brielle Biermann
+
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
+
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
+
+*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
+
+
+## Brielle Biermann
 
 ## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
 
@@ -3653,7 +5183,34 @@ Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has becom
 *Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
-## Drake
+## Dua Lipa
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Thu, 18 Jul 2024 08:34:38 GMT*
+
+
+## Dua Lipa
+
+## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
+
+
+## Dua Lipa
+
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
+
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
+
+*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
+
+
+## Dua Lipa
 
 ## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
 
@@ -3716,7 +5273,34 @@ Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has becom
 *Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
-## Jenner
+## Drake
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Thu, 18 Jul 2024 08:34:38 GMT*
+
+
+## Drake
+
+## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
+
+
+## Drake
+
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
+
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
+
+*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
+
+
+## Drake
 
 ## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
 
@@ -3779,7 +5363,34 @@ Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has becom
 *Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
-## J. Cole
+## Jenner
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Thu, 18 Jul 2024 08:34:38 GMT*
+
+
+## Jenner
+
+## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
+
+
+## Jenner
+
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
+
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
+
+*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
+
+
+## Jenner
 
 ## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
 
@@ -3842,7 +5453,34 @@ Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has becom
 *Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
-## Jerrod Carmichael
+## J. Cole
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Thu, 18 Jul 2024 08:34:38 GMT*
+
+
+## J. Cole
+
+## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
+
+
+## J. Cole
+
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
+
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
+
+*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
+
+
+## J. Cole
 
 ## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
 
@@ -3905,7 +5543,34 @@ Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has becom
 *Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
-## Jennifer Lawrence
+## Jerrod Carmichael
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Thu, 18 Jul 2024 08:34:38 GMT*
+
+
+## Jerrod Carmichael
+
+## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
+
+
+## Jerrod Carmichael
+
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
+
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
+
+*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
+
+
+## Jerrod Carmichael
 
 ## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
 
@@ -3968,7 +5633,34 @@ Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has becom
 *Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
-## Joe Biden
+## Jennifer Lawrence
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Thu, 18 Jul 2024 08:34:38 GMT*
+
+
+## Jennifer Lawrence
+
+## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
+
+
+## Jennifer Lawrence
+
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
+
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
+
+*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
+
+
+## Jennifer Lawrence
 
 ## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
 
@@ -4031,7 +5723,34 @@ Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has becom
 *Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
-## J.K. Simmons
+## Joe Biden
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Thu, 18 Jul 2024 08:34:38 GMT*
+
+
+## Joe Biden
+
+## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
+
+
+## Joe Biden
+
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
+
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
+
+*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
+
+
+## Joe Biden
 
 ## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
 
@@ -4094,7 +5813,34 @@ Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has becom
 *Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
-## Kamala Harris
+## J.K. Simmons
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Thu, 18 Jul 2024 08:34:38 GMT*
+
+
+## J.K. Simmons
+
+## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
+
+
+## J.K. Simmons
+
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
+
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
+
+*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
+
+
+## J.K. Simmons
 
 ## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
 
@@ -4157,7 +5903,34 @@ Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has becom
 *Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
-## John C Reilly
+## Kamala Harris
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Thu, 18 Jul 2024 08:34:38 GMT*
+
+
+## Kamala Harris
+
+## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
+
+
+## Kamala Harris
+
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
+
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
+
+*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
+
+
+## Kamala Harris
 
 ## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
 
@@ -4220,7 +5993,34 @@ Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has becom
 *Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
-## Kardashian
+## John C Reilly
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Thu, 18 Jul 2024 08:34:38 GMT*
+
+
+## John C Reilly
+
+## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
+
+
+## John C Reilly
+
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
+
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
+
+*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
+
+
+## John C Reilly
 
 ## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
 
@@ -4283,7 +6083,34 @@ Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has becom
 *Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
-## Kanye
+## Kardashian
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Thu, 18 Jul 2024 08:34:38 GMT*
+
+
+## Kardashian
+
+## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
+
+
+## Kardashian
+
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
+
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
+
+*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
+
+
+## Kardashian
 
 ## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
 
@@ -4346,7 +6173,34 @@ Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has becom
 *Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
-## Zendaya
+## Kanye
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Thu, 18 Jul 2024 08:34:38 GMT*
+
+
+## Kanye
+
+## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
+
+
+## Kanye
+
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
+
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
+
+*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
+
+
+## Kanye
 
 ## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
 
@@ -4409,7 +6263,34 @@ Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has becom
 *Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
-## Will Ferrell
+## Zendaya
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Thu, 18 Jul 2024 08:34:38 GMT*
+
+
+## Zendaya
+
+## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
+
+
+## Zendaya
+
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
+
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
+
+*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
+
+
+## Zendaya
 
 ## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
 
@@ -4472,7 +6353,34 @@ Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has becom
 *Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
-## Zazie Beetz
+## Will Ferrell
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Thu, 18 Jul 2024 08:34:38 GMT*
+
+
+## Will Ferrell
+
+## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
+
+
+## Will Ferrell
+
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
+
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
+
+*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
+
+
+## Will Ferrell
 
 ## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
 
@@ -4535,7 +6443,34 @@ Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has becom
 *Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
-## Bob Odenkirk
+## Zazie Beetz
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Thu, 18 Jul 2024 08:34:38 GMT*
+
+
+## Zazie Beetz
+
+## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
+
+
+## Zazie Beetz
+
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
+
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
+
+*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
+
+
+## Zazie Beetz
 
 ## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
 
@@ -4598,7 +6533,34 @@ Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has becom
 *Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
-## Brad Pitt
+## Bob Odenkirk
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Thu, 18 Jul 2024 08:34:38 GMT*
+
+
+## Bob Odenkirk
+
+## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
+
+
+## Bob Odenkirk
+
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
+
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
+
+*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
+
+
+## Bob Odenkirk
 
 ## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
 
@@ -4661,7 +6623,34 @@ Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has becom
 *Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
-## Beyoncé
+## Brad Pitt
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Thu, 18 Jul 2024 08:34:38 GMT*
+
+
+## Brad Pitt
+
+## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
+
+
+## Brad Pitt
+
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
+
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
+
+*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
+
+
+## Brad Pitt
 
 ## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
 
@@ -4724,7 +6713,34 @@ Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has becom
 *Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
-## Bia
+## Beyoncé
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Thu, 18 Jul 2024 08:34:38 GMT*
+
+
+## Beyoncé
+
+## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
+
+
+## Beyoncé
+
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
+
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
+
+*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
+
+
+## Beyoncé
 
 ## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
 
@@ -4787,7 +6803,34 @@ Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has becom
 *Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
-## Avantika
+## Bia
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Thu, 18 Jul 2024 08:34:38 GMT*
+
+
+## Bia
+
+## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
+
+
+## Bia
+
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
+
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
+
+*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
+
+
+## Bia
 
 ## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
 
@@ -4850,7 +6893,34 @@ Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has becom
 *Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
-## Bernie Sanders
+## Avantika
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Thu, 18 Jul 2024 08:34:38 GMT*
+
+
+## Avantika
+
+## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
+
+
+## Avantika
+
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
+
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
+
+*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
+
+
+## Avantika
 
 ## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
 
@@ -4913,7 +6983,34 @@ Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has becom
 *Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
-## Big Sean
+## Bernie Sanders
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Thu, 18 Jul 2024 08:34:38 GMT*
+
+
+## Bernie Sanders
+
+## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
+
+
+## Bernie Sanders
+
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
+
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
+
+*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
+
+
+## Bernie Sanders
 
 ## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
 
@@ -4976,7 +7073,34 @@ Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has becom
 *Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
-## BlockBoy JB
+## Big Sean
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Thu, 18 Jul 2024 08:34:38 GMT*
+
+
+## Big Sean
+
+## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
+
+
+## Big Sean
+
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
+
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
+
+*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
+
+
+## Big Sean
 
 ## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
 
@@ -5039,7 +7163,34 @@ Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has becom
 *Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
-## Biden
+## BlockBoy JB
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Thu, 18 Jul 2024 08:34:38 GMT*
+
+
+## BlockBoy JB
+
+## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
+
+
+## BlockBoy JB
+
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
+
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
+
+*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
+
+
+## BlockBoy JB
 
 ## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
 
@@ -5102,7 +7253,34 @@ Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has becom
 *Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
-## Bieber
+## Biden
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Thu, 18 Jul 2024 08:34:38 GMT*
+
+
+## Biden
+
+## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
+
+
+## Biden
+
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
+
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
+
+*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
+
+
+## Biden
 
 ## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
 
@@ -5165,7 +7343,34 @@ Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has becom
 *Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
-## Paulina Porizkov
+## Bieber
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Thu, 18 Jul 2024 08:34:38 GMT*
+
+
+## Bieber
+
+## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
+
+
+## Bieber
+
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
+
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
+
+*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
+
+
+## Bieber
 
 ## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
 
@@ -5228,7 +7433,34 @@ Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has becom
 *Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
-## Paris Hilton
+## Paulina Porizkov
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Thu, 18 Jul 2024 08:34:38 GMT*
+
+
+## Paulina Porizkov
+
+## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
+
+
+## Paulina Porizkov
+
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
+
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
+
+*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
+
+
+## Paulina Porizkov
 
 ## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
 
@@ -5291,7 +7523,34 @@ Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has becom
 *Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
-## Metro Boomin
+## Paris Hilton
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Thu, 18 Jul 2024 08:34:38 GMT*
+
+
+## Paris Hilton
+
+## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
+
+
+## Paris Hilton
+
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
+
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
+
+*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
+
+
+## Paris Hilton
 
 ## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
 
@@ -5354,7 +7613,34 @@ Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has becom
 *Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
-## Meghan Markle
+## Metro Boomin
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Thu, 18 Jul 2024 08:34:38 GMT*
+
+
+## Metro Boomin
+
+## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
+
+
+## Metro Boomin
+
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
+
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
+
+*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
+
+
+## Metro Boomin
 
 ## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
 
@@ -5417,7 +7703,34 @@ Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has becom
 *Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
-## Megan Thee Stallion
+## Meghan Markle
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Thu, 18 Jul 2024 08:34:38 GMT*
+
+
+## Meghan Markle
+
+## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
+
+
+## Meghan Markle
+
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
+
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
+
+*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
+
+
+## Meghan Markle
 
 ## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
 
@@ -5480,7 +7793,34 @@ Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has becom
 *Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
-## Maya Rudolph
+## Megan Thee Stallion
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Thu, 18 Jul 2024 08:34:38 GMT*
+
+
+## Megan Thee Stallion
+
+## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
+
+
+## Megan Thee Stallion
+
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
+
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
+
+*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
+
+
+## Megan Thee Stallion
 
 ## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
 
@@ -5543,7 +7883,34 @@ Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has becom
 *Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
-## Olivia Rodrigo
+## Maya Rudolph
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Thu, 18 Jul 2024 08:34:38 GMT*
+
+
+## Maya Rudolph
+
+## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
+
+
+## Maya Rudolph
+
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
+
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
+
+*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
+
+
+## Maya Rudolph
 
 ## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
 
@@ -5606,7 +7973,34 @@ Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has becom
 *Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
-## Obama
+## Olivia Rodrigo
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Thu, 18 Jul 2024 08:34:38 GMT*
+
+
+## Olivia Rodrigo
+
+## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
+
+
+## Olivia Rodrigo
+
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
+
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
+
+*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
+
+
+## Olivia Rodrigo
 
 ## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
 
@@ -5669,7 +8063,34 @@ Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has becom
 *Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
-## Nicki Minaj
+## Obama
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Thu, 18 Jul 2024 08:34:38 GMT*
+
+
+## Obama
+
+## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
+
+
+## Obama
+
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
+
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
+
+*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
+
+
+## Obama
 
 ## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
 
@@ -5732,7 +8153,34 @@ Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has becom
 *Published on: Thu, 18 Jul 2024 08:25:30 GMT*
 
 
-## MrBeast
+## Nicki Minaj
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Thu, 18 Jul 2024 08:34:38 GMT*
+
+
+## Nicki Minaj
+
+## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
+
+
+## Nicki Minaj
+
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
+
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
+
+*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
+
+
+## Nicki Minaj
 
 ## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
 
@@ -5793,5 +8241,41 @@ Aimé Leon Dore gets a lot of foot traffic at its flagship stores. The brand's e
 Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
 *Published on: Thu, 18 Jul 2024 08:25:30 GMT*
+
+
+## MrBeast
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Thu, 18 Jul 2024 08:34:38 GMT*
+
+
+## MrBeast
+
+## [From Air Jordan to Saucony, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-ju-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 18 Jul 2024 08:43:22 GMT*
+
+
+## MrBeast
+
+## [Nike’s Retro Zip-Up Sneaker Continues to Strike Gold](https://www.highsnobiety.com/p/nike-air-max-sunder-metallic-gold/)
+
+Last week, the Nike Air Max Sunder made its glorious, large-scale return by rereleasing in its OG, “canyon gold” colorway.This gave the relatively obscure Air …
+
+*Published on: Thu, 18 Jul 2024 08:51:59 GMT*
+
+
+## MrBeast
+
+## [On's Revolutionary Spray-On Shoe Shakes Up the Running Game](https://www.highsnobiety.com/p/on-cloudboom-strike-ls-sneakers-2024/)
+
+On's Cloudboom Strike LS, the label's new revolutionary sneaker, is quite literally the Bella Hadid Coperni dress of sneakers.Walk with me for a second as I ex…
+
+*Published on: Wed, 17 Jul 2024 09:32:24 GMT*
 
 
