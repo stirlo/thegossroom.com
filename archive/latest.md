@@ -1,11 +1,20 @@
 # Latest Stories
 ## Tim Cook
 
-## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Fri, 19 Jul 2024 08:30:38 GMT*
+
+
+## Tim Cook
+
+## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
 The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
 
-*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
+*Published on: Fri, 19 Jul 2024 08:38:14 GMT*
 
 
 ## Tim Cook
@@ -14,34 +23,7 @@ The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashi
 
 Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
 
-*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
-
-
-## Tim Cook
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
-
-
-## Taylor Swift
-
-## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
-
-The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
-
-*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
-
-
-## Taylor Swift
-
-## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
-
-Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
-
-*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
+*Published on: Fri, 19 Jul 2024 08:38:59 GMT*
 
 
 ## Taylor Swift
@@ -50,16 +32,43 @@ Starface, beloved for its hydrocolloid pimple patches in bright colors and novel
 
 On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
+*Published on: Fri, 19 Jul 2024 08:30:38 GMT*
+
+
+## Taylor Swift
+
+## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
+
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
+
+*Published on: Fri, 19 Jul 2024 08:38:14 GMT*
+
+
+## Taylor Swift
+
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
+
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
+
+*Published on: Fri, 19 Jul 2024 08:38:59 GMT*
 
 
 ## Tom Brady
 
-## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Fri, 19 Jul 2024 08:30:38 GMT*
+
+
+## Tom Brady
+
+## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
 The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
 
-*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
+*Published on: Fri, 19 Jul 2024 08:38:14 GMT*
 
 
 ## Tom Brady
@@ -68,34 +77,7 @@ The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashi
 
 Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
 
-*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
-
-
-## Tom Brady
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
-
-
-## Tina Fey
-
-## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
-
-The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
-
-*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
-
-
-## Tina Fey
-
-## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
-
-Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
-
-*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
+*Published on: Fri, 19 Jul 2024 08:38:59 GMT*
 
 
 ## Tina Fey
@@ -104,16 +86,43 @@ Starface, beloved for its hydrocolloid pimple patches in bright colors and novel
 
 On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
+*Published on: Fri, 19 Jul 2024 08:30:38 GMT*
+
+
+## Tina Fey
+
+## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
+
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
+
+*Published on: Fri, 19 Jul 2024 08:38:14 GMT*
+
+
+## Tina Fey
+
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
+
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
+
+*Published on: Fri, 19 Jul 2024 08:38:59 GMT*
 
 
 ## Steven Yuen
 
-## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Fri, 19 Jul 2024 08:30:38 GMT*
+
+
+## Steven Yuen
+
+## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
 The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
 
-*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
+*Published on: Fri, 19 Jul 2024 08:38:14 GMT*
 
 
 ## Steven Yuen
@@ -122,34 +131,7 @@ The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashi
 
 Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
 
-*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
-
-
-## Steven Yuen
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
-
-
-## Sommer Ray
-
-## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
-
-The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
-
-*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
-
-
-## Sommer Ray
-
-## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
-
-Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
-
-*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
+*Published on: Fri, 19 Jul 2024 08:38:59 GMT*
 
 
 ## Sommer Ray
@@ -158,16 +140,43 @@ Starface, beloved for its hydrocolloid pimple patches in bright colors and novel
 
 On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
+*Published on: Fri, 19 Jul 2024 08:30:38 GMT*
+
+
+## Sommer Ray
+
+## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
+
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
+
+*Published on: Fri, 19 Jul 2024 08:38:14 GMT*
+
+
+## Sommer Ray
+
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
+
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
+
+*Published on: Fri, 19 Jul 2024 08:38:59 GMT*
 
 
 ## Sza
 
-## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Fri, 19 Jul 2024 08:30:38 GMT*
+
+
+## Sza
+
+## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
 The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
 
-*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
+*Published on: Fri, 19 Jul 2024 08:38:14 GMT*
 
 
 ## Sza
@@ -176,34 +185,7 @@ The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashi
 
 Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
 
-*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
-
-
-## Sza
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
-
-
-## Sydney Sweeney
-
-## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
-
-The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
-
-*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
-
-
-## Sydney Sweeney
-
-## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
-
-Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
-
-*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
+*Published on: Fri, 19 Jul 2024 08:38:59 GMT*
 
 
 ## Sydney Sweeney
@@ -212,16 +194,43 @@ Starface, beloved for its hydrocolloid pimple patches in bright colors and novel
 
 On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
+*Published on: Fri, 19 Jul 2024 08:30:38 GMT*
+
+
+## Sydney Sweeney
+
+## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
+
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
+
+*Published on: Fri, 19 Jul 2024 08:38:14 GMT*
+
+
+## Sydney Sweeney
+
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
+
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
+
+*Published on: Fri, 19 Jul 2024 08:38:59 GMT*
 
 
 ## Walton Goggins
 
-## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Fri, 19 Jul 2024 08:30:38 GMT*
+
+
+## Walton Goggins
+
+## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
 The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
 
-*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
+*Published on: Fri, 19 Jul 2024 08:38:14 GMT*
 
 
 ## Walton Goggins
@@ -230,34 +239,7 @@ The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashi
 
 Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
 
-*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
-
-
-## Walton Goggins
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
-
-
-## Tom Holland
-
-## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
-
-The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
-
-*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
-
-
-## Tom Holland
-
-## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
-
-Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
-
-*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
+*Published on: Fri, 19 Jul 2024 08:38:59 GMT*
 
 
 ## Tom Holland
@@ -266,16 +248,43 @@ Starface, beloved for its hydrocolloid pimple patches in bright colors and novel
 
 On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
+*Published on: Fri, 19 Jul 2024 08:30:38 GMT*
+
+
+## Tom Holland
+
+## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
+
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
+
+*Published on: Fri, 19 Jul 2024 08:38:14 GMT*
+
+
+## Tom Holland
+
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
+
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
+
+*Published on: Fri, 19 Jul 2024 08:38:59 GMT*
 
 
 ## Gucci Mane
 
-## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Fri, 19 Jul 2024 08:30:38 GMT*
+
+
+## Gucci Mane
+
+## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
 The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
 
-*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
+*Published on: Fri, 19 Jul 2024 08:38:14 GMT*
 
 
 ## Gucci Mane
@@ -284,34 +293,7 @@ The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashi
 
 Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
 
-*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
-
-
-## Gucci Mane
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
-
-
-## Harry Styles
-
-## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
-
-The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
-
-*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
-
-
-## Harry Styles
-
-## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
-
-Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
-
-*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
+*Published on: Fri, 19 Jul 2024 08:38:59 GMT*
 
 
 ## Harry Styles
@@ -320,16 +302,43 @@ Starface, beloved for its hydrocolloid pimple patches in bright colors and novel
 
 On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
+*Published on: Fri, 19 Jul 2024 08:30:38 GMT*
+
+
+## Harry Styles
+
+## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
+
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
+
+*Published on: Fri, 19 Jul 2024 08:38:14 GMT*
+
+
+## Harry Styles
+
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
+
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
+
+*Published on: Fri, 19 Jul 2024 08:38:59 GMT*
 
 
 ## Jake Paul
 
-## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Fri, 19 Jul 2024 08:30:38 GMT*
+
+
+## Jake Paul
+
+## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
 The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
 
-*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
+*Published on: Fri, 19 Jul 2024 08:38:14 GMT*
 
 
 ## Jake Paul
@@ -338,34 +347,7 @@ The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashi
 
 Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
 
-*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
-
-
-## Jake Paul
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
-
-
-## Jameela Jamil
-
-## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
-
-The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
-
-*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
-
-
-## Jameela Jamil
-
-## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
-
-Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
-
-*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
+*Published on: Fri, 19 Jul 2024 08:38:59 GMT*
 
 
 ## Jameela Jamil
@@ -374,16 +356,43 @@ Starface, beloved for its hydrocolloid pimple patches in bright colors and novel
 
 On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
+*Published on: Fri, 19 Jul 2024 08:30:38 GMT*
+
+
+## Jameela Jamil
+
+## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
+
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
+
+*Published on: Fri, 19 Jul 2024 08:38:14 GMT*
+
+
+## Jameela Jamil
+
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
+
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
+
+*Published on: Fri, 19 Jul 2024 08:38:59 GMT*
 
 
 ## Elon Musk
 
-## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Fri, 19 Jul 2024 08:30:38 GMT*
+
+
+## Elon Musk
+
+## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
 The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
 
-*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
+*Published on: Fri, 19 Jul 2024 08:38:14 GMT*
 
 
 ## Elon Musk
@@ -392,34 +401,7 @@ The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashi
 
 Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
 
-*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
-
-
-## Elon Musk
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
-
-
-## Gabrielle Union
-
-## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
-
-The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
-
-*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
-
-
-## Gabrielle Union
-
-## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
-
-Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
-
-*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
+*Published on: Fri, 19 Jul 2024 08:38:59 GMT*
 
 
 ## Gabrielle Union
@@ -428,16 +410,43 @@ Starface, beloved for its hydrocolloid pimple patches in bright colors and novel
 
 On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
+*Published on: Fri, 19 Jul 2024 08:30:38 GMT*
+
+
+## Gabrielle Union
+
+## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
+
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
+
+*Published on: Fri, 19 Jul 2024 08:38:14 GMT*
+
+
+## Gabrielle Union
+
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
+
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
+
+*Published on: Fri, 19 Jul 2024 08:38:59 GMT*
 
 
 ## Giancarlo Esposito
 
-## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Fri, 19 Jul 2024 08:30:38 GMT*
+
+
+## Giancarlo Esposito
+
+## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
 The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
 
-*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
+*Published on: Fri, 19 Jul 2024 08:38:14 GMT*
 
 
 ## Giancarlo Esposito
@@ -446,34 +455,7 @@ The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashi
 
 Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
 
-*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
-
-
-## Giancarlo Esposito
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
-
-
-## Gillian Jacobs
-
-## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
-
-The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
-
-*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
-
-
-## Gillian Jacobs
-
-## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
-
-Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
-
-*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
+*Published on: Fri, 19 Jul 2024 08:38:59 GMT*
 
 
 ## Gillian Jacobs
@@ -482,16 +464,43 @@ Starface, beloved for its hydrocolloid pimple patches in bright colors and novel
 
 On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
+*Published on: Fri, 19 Jul 2024 08:30:38 GMT*
+
+
+## Gillian Jacobs
+
+## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
+
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
+
+*Published on: Fri, 19 Jul 2024 08:38:14 GMT*
+
+
+## Gillian Jacobs
+
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
+
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
+
+*Published on: Fri, 19 Jul 2024 08:38:59 GMT*
 
 
 ## Jason Mantzoukas
 
-## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Fri, 19 Jul 2024 08:30:38 GMT*
+
+
+## Jason Mantzoukas
+
+## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
 The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
 
-*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
+*Published on: Fri, 19 Jul 2024 08:38:14 GMT*
 
 
 ## Jason Mantzoukas
@@ -500,34 +509,7 @@ The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashi
 
 Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
 
-*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
-
-
-## Jason Mantzoukas
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
-
-
-## JB Smoove
-
-## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
-
-The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
-
-*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
-
-
-## JB Smoove
-
-## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
-
-Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
-
-*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
+*Published on: Fri, 19 Jul 2024 08:38:59 GMT*
 
 
 ## JB Smoove
@@ -536,16 +518,43 @@ Starface, beloved for its hydrocolloid pimple patches in bright colors and novel
 
 On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
+*Published on: Fri, 19 Jul 2024 08:30:38 GMT*
+
+
+## JB Smoove
+
+## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
+
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
+
+*Published on: Fri, 19 Jul 2024 08:38:14 GMT*
+
+
+## JB Smoove
+
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
+
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
+
+*Published on: Fri, 19 Jul 2024 08:38:59 GMT*
 
 
 ## Madison Pettis
 
-## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Fri, 19 Jul 2024 08:30:38 GMT*
+
+
+## Madison Pettis
+
+## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
 The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
 
-*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
+*Published on: Fri, 19 Jul 2024 08:38:14 GMT*
 
 
 ## Madison Pettis
@@ -554,34 +563,7 @@ The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashi
 
 Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
 
-*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
-
-
-## Madison Pettis
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
-
-
-## Austin Butler
-
-## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
-
-The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
-
-*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
-
-
-## Austin Butler
-
-## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
-
-Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
-
-*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
+*Published on: Fri, 19 Jul 2024 08:38:59 GMT*
 
 
 ## Austin Butler
@@ -590,16 +572,43 @@ Starface, beloved for its hydrocolloid pimple patches in bright colors and novel
 
 On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
+*Published on: Fri, 19 Jul 2024 08:30:38 GMT*
+
+
+## Austin Butler
+
+## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
+
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
+
+*Published on: Fri, 19 Jul 2024 08:38:14 GMT*
+
+
+## Austin Butler
+
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
+
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
+
+*Published on: Fri, 19 Jul 2024 08:38:59 GMT*
 
 
 ## Mark Zuckerberg
 
-## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Fri, 19 Jul 2024 08:30:38 GMT*
+
+
+## Mark Zuckerberg
+
+## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
 The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
 
-*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
+*Published on: Fri, 19 Jul 2024 08:38:14 GMT*
 
 
 ## Mark Zuckerberg
@@ -608,34 +617,7 @@ The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashi
 
 Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
 
-*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
-
-
-## Mark Zuckerberg
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
-
-
-## Ariana Grande
-
-## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
-
-The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
-
-*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
-
-
-## Ariana Grande
-
-## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
-
-Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
-
-*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
+*Published on: Fri, 19 Jul 2024 08:38:59 GMT*
 
 
 ## Ariana Grande
@@ -644,16 +626,43 @@ Starface, beloved for its hydrocolloid pimple patches in bright colors and novel
 
 On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
+*Published on: Fri, 19 Jul 2024 08:30:38 GMT*
+
+
+## Ariana Grande
+
+## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
+
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
+
+*Published on: Fri, 19 Jul 2024 08:38:14 GMT*
+
+
+## Ariana Grande
+
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
+
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
+
+*Published on: Fri, 19 Jul 2024 08:38:59 GMT*
 
 
 ## Livvy Dunne
 
-## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Fri, 19 Jul 2024 08:30:38 GMT*
+
+
+## Livvy Dunne
+
+## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
 The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
 
-*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
+*Published on: Fri, 19 Jul 2024 08:38:14 GMT*
 
 
 ## Livvy Dunne
@@ -662,34 +671,7 @@ The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashi
 
 Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
 
-*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
-
-
-## Livvy Dunne
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
-
-
-## Ali Wong
-
-## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
-
-The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
-
-*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
-
-
-## Ali Wong
-
-## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
-
-Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
-
-*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
+*Published on: Fri, 19 Jul 2024 08:38:59 GMT*
 
 
 ## Ali Wong
@@ -698,16 +680,43 @@ Starface, beloved for its hydrocolloid pimple patches in bright colors and novel
 
 On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
+*Published on: Fri, 19 Jul 2024 08:30:38 GMT*
+
+
+## Ali Wong
+
+## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
+
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
+
+*Published on: Fri, 19 Jul 2024 08:38:14 GMT*
+
+
+## Ali Wong
+
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
+
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
+
+*Published on: Fri, 19 Jul 2024 08:38:59 GMT*
 
 
 ## Lizzo
 
-## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Fri, 19 Jul 2024 08:30:38 GMT*
+
+
+## Lizzo
+
+## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
 The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
 
-*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
+*Published on: Fri, 19 Jul 2024 08:38:14 GMT*
 
 
 ## Lizzo
@@ -716,34 +725,7 @@ The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashi
 
 Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
 
-*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
-
-
-## Lizzo
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
-
-
-## Alison Brie
-
-## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
-
-The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
-
-*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
-
-
-## Alison Brie
-
-## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
-
-Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
-
-*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
+*Published on: Fri, 19 Jul 2024 08:38:59 GMT*
 
 
 ## Alison Brie
@@ -752,16 +734,43 @@ Starface, beloved for its hydrocolloid pimple patches in bright colors and novel
 
 On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
+*Published on: Fri, 19 Jul 2024 08:30:38 GMT*
+
+
+## Alison Brie
+
+## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
+
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
+
+*Published on: Fri, 19 Jul 2024 08:38:14 GMT*
+
+
+## Alison Brie
+
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
+
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
+
+*Published on: Fri, 19 Jul 2024 08:38:59 GMT*
 
 
 ## Lil Wayne
 
-## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Fri, 19 Jul 2024 08:30:38 GMT*
+
+
+## Lil Wayne
+
+## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
 The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
 
-*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
+*Published on: Fri, 19 Jul 2024 08:38:14 GMT*
 
 
 ## Lil Wayne
@@ -770,34 +779,7 @@ The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashi
 
 Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
 
-*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
-
-
-## Lil Wayne
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
-
-
-## Adele
-
-## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
-
-The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
-
-*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
-
-
-## Adele
-
-## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
-
-Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
-
-*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
+*Published on: Fri, 19 Jul 2024 08:38:59 GMT*
 
 
 ## Adele
@@ -806,16 +788,43 @@ Starface, beloved for its hydrocolloid pimple patches in bright colors and novel
 
 On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
+*Published on: Fri, 19 Jul 2024 08:30:38 GMT*
+
+
+## Adele
+
+## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
+
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
+
+*Published on: Fri, 19 Jul 2024 08:38:14 GMT*
+
+
+## Adele
+
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
+
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
+
+*Published on: Fri, 19 Jul 2024 08:38:59 GMT*
 
 
 ## Lindsay Lohan
 
-## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Fri, 19 Jul 2024 08:30:38 GMT*
+
+
+## Lindsay Lohan
+
+## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
 The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
 
-*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
+*Published on: Fri, 19 Jul 2024 08:38:14 GMT*
 
 
 ## Lindsay Lohan
@@ -824,34 +833,7 @@ The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashi
 
 Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
 
-*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
-
-
-## Lindsay Lohan
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
-
-
-## Addison Rae
-
-## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
-
-The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
-
-*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
-
-
-## Addison Rae
-
-## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
-
-Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
-
-*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
+*Published on: Fri, 19 Jul 2024 08:38:59 GMT*
 
 
 ## Addison Rae
@@ -860,16 +842,43 @@ Starface, beloved for its hydrocolloid pimple patches in bright colors and novel
 
 On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
+*Published on: Fri, 19 Jul 2024 08:30:38 GMT*
+
+
+## Addison Rae
+
+## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
+
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
+
+*Published on: Fri, 19 Jul 2024 08:38:14 GMT*
+
+
+## Addison Rae
+
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
+
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
+
+*Published on: Fri, 19 Jul 2024 08:38:59 GMT*
 
 
 ## Latto
 
-## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Fri, 19 Jul 2024 08:30:38 GMT*
+
+
+## Latto
+
+## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
 The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
 
-*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
+*Published on: Fri, 19 Jul 2024 08:38:14 GMT*
 
 
 ## Latto
@@ -878,34 +887,7 @@ The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashi
 
 Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
 
-*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
-
-
-## Latto
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
-
-
-## Aaron Paul
-
-## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
-
-The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
-
-*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
-
-
-## Aaron Paul
-
-## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
-
-Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
-
-*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
+*Published on: Fri, 19 Jul 2024 08:38:59 GMT*
 
 
 ## Aaron Paul
@@ -914,16 +896,43 @@ Starface, beloved for its hydrocolloid pimple patches in bright colors and novel
 
 On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
+*Published on: Fri, 19 Jul 2024 08:30:38 GMT*
+
+
+## Aaron Paul
+
+## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
+
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
+
+*Published on: Fri, 19 Jul 2024 08:38:14 GMT*
+
+
+## Aaron Paul
+
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
+
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
+
+*Published on: Fri, 19 Jul 2024 08:38:59 GMT*
 
 
 ## LeBron James
 
-## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Fri, 19 Jul 2024 08:30:38 GMT*
+
+
+## LeBron James
+
+## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
 The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
 
-*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
+*Published on: Fri, 19 Jul 2024 08:38:14 GMT*
 
 
 ## LeBron James
@@ -932,34 +941,7 @@ The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashi
 
 Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
 
-*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
-
-
-## LeBron James
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
-
-
-## 50 Cent
-
-## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
-
-The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
-
-*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
-
-
-## 50 Cent
-
-## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
-
-Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
-
-*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
+*Published on: Fri, 19 Jul 2024 08:38:59 GMT*
 
 
 ## 50 Cent
@@ -968,16 +950,43 @@ Starface, beloved for its hydrocolloid pimple patches in bright colors and novel
 
 On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
+*Published on: Fri, 19 Jul 2024 08:30:38 GMT*
+
+
+## 50 Cent
+
+## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
+
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
+
+*Published on: Fri, 19 Jul 2024 08:38:14 GMT*
+
+
+## 50 Cent
+
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
+
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
+
+*Published on: Fri, 19 Jul 2024 08:38:59 GMT*
 
 
 ## Kesha
 
-## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Fri, 19 Jul 2024 08:30:38 GMT*
+
+
+## Kesha
+
+## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
 The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
 
-*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
+*Published on: Fri, 19 Jul 2024 08:38:14 GMT*
 
 
 ## Kesha
@@ -986,34 +995,7 @@ The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashi
 
 Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
 
-*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
-
-
-## Kesha
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
-
-
-## 21 Savage
-
-## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
-
-The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
-
-*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
-
-
-## 21 Savage
-
-## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
-
-Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
-
-*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
+*Published on: Fri, 19 Jul 2024 08:38:59 GMT*
 
 
 ## 21 Savage
@@ -1022,16 +1004,43 @@ Starface, beloved for its hydrocolloid pimple patches in bright colors and novel
 
 On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
+*Published on: Fri, 19 Jul 2024 08:30:38 GMT*
+
+
+## 21 Savage
+
+## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
+
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
+
+*Published on: Fri, 19 Jul 2024 08:38:14 GMT*
+
+
+## 21 Savage
+
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
+
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
+
+*Published on: Fri, 19 Jul 2024 08:38:59 GMT*
 
 
 ## Larry David
 
-## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Fri, 19 Jul 2024 08:30:38 GMT*
+
+
+## Larry David
+
+## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
 The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
 
-*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
+*Published on: Fri, 19 Jul 2024 08:38:14 GMT*
 
 
 ## Larry David
@@ -1040,34 +1049,7 @@ The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashi
 
 Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
 
-*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
-
-
-## Larry David
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
-
-
-## Seth Rogan
-
-## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
-
-The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
-
-*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
-
-
-## Seth Rogan
-
-## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
-
-Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
-
-*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
+*Published on: Fri, 19 Jul 2024 08:38:59 GMT*
 
 
 ## Seth Rogan
@@ -1076,16 +1058,43 @@ Starface, beloved for its hydrocolloid pimple patches in bright colors and novel
 
 On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
+*Published on: Fri, 19 Jul 2024 08:30:38 GMT*
+
+
+## Seth Rogan
+
+## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
+
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
+
+*Published on: Fri, 19 Jul 2024 08:38:14 GMT*
+
+
+## Seth Rogan
+
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
+
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
+
+*Published on: Fri, 19 Jul 2024 08:38:59 GMT*
 
 
 ## Simone Biles
 
-## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Fri, 19 Jul 2024 08:30:38 GMT*
+
+
+## Simone Biles
+
+## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
 The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
 
-*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
+*Published on: Fri, 19 Jul 2024 08:38:14 GMT*
 
 
 ## Simone Biles
@@ -1094,34 +1103,7 @@ The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashi
 
 Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
 
-*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
-
-
-## Simone Biles
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
-
-
-## Pete Davidson
-
-## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
-
-The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
-
-*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
-
-
-## Pete Davidson
-
-## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
-
-Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
-
-*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
+*Published on: Fri, 19 Jul 2024 08:38:59 GMT*
 
 
 ## Pete Davidson
@@ -1130,16 +1112,43 @@ Starface, beloved for its hydrocolloid pimple patches in bright colors and novel
 
 On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
+*Published on: Fri, 19 Jul 2024 08:30:38 GMT*
+
+
+## Pete Davidson
+
+## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
+
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
+
+*Published on: Fri, 19 Jul 2024 08:38:14 GMT*
+
+
+## Pete Davidson
+
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
+
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
+
+*Published on: Fri, 19 Jul 2024 08:38:59 GMT*
 
 
 ## Prince Harry
 
-## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Fri, 19 Jul 2024 08:30:38 GMT*
+
+
+## Prince Harry
+
+## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
 The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
 
-*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
+*Published on: Fri, 19 Jul 2024 08:38:14 GMT*
 
 
 ## Prince Harry
@@ -1148,34 +1157,7 @@ The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashi
 
 Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
 
-*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
-
-
-## Prince Harry
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
-
-
-## Princess of Wales
-
-## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
-
-The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
-
-*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
-
-
-## Princess of Wales
-
-## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
-
-Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
-
-*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
+*Published on: Fri, 19 Jul 2024 08:38:59 GMT*
 
 
 ## Princess of Wales
@@ -1184,16 +1166,43 @@ Starface, beloved for its hydrocolloid pimple patches in bright colors and novel
 
 On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
+*Published on: Fri, 19 Jul 2024 08:30:38 GMT*
+
+
+## Princess of Wales
+
+## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
+
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
+
+*Published on: Fri, 19 Jul 2024 08:38:14 GMT*
+
+
+## Princess of Wales
+
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
+
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
+
+*Published on: Fri, 19 Jul 2024 08:38:59 GMT*
 
 
 ## Rachel McAdams
 
-## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Fri, 19 Jul 2024 08:30:38 GMT*
+
+
+## Rachel McAdams
+
+## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
 The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
 
-*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
+*Published on: Fri, 19 Jul 2024 08:38:14 GMT*
 
 
 ## Rachel McAdams
@@ -1202,34 +1211,7 @@ The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashi
 
 Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
 
-*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
-
-
-## Rachel McAdams
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
-
-
-## Reneé Rapp
-
-## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
-
-The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
-
-*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
-
-
-## Reneé Rapp
-
-## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
-
-Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
-
-*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
+*Published on: Fri, 19 Jul 2024 08:38:59 GMT*
 
 
 ## Reneé Rapp
@@ -1238,16 +1220,43 @@ Starface, beloved for its hydrocolloid pimple patches in bright colors and novel
 
 On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
+*Published on: Fri, 19 Jul 2024 08:30:38 GMT*
+
+
+## Reneé Rapp
+
+## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
+
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
+
+*Published on: Fri, 19 Jul 2024 08:38:14 GMT*
+
+
+## Reneé Rapp
+
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
+
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
+
+*Published on: Fri, 19 Jul 2024 08:38:59 GMT*
 
 
 ## Rick Ross
 
-## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Fri, 19 Jul 2024 08:30:38 GMT*
+
+
+## Rick Ross
+
+## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
 The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
 
-*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
+*Published on: Fri, 19 Jul 2024 08:38:14 GMT*
 
 
 ## Rick Ross
@@ -1256,34 +1265,7 @@ The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashi
 
 Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
 
-*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
-
-
-## Rick Ross
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
-
-
-## Sam Ashgari
-
-## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
-
-The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
-
-*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
-
-
-## Sam Ashgari
-
-## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
-
-Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
-
-*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
+*Published on: Fri, 19 Jul 2024 08:38:59 GMT*
 
 
 ## Sam Ashgari
@@ -1292,16 +1274,43 @@ Starface, beloved for its hydrocolloid pimple patches in bright colors and novel
 
 On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
+*Published on: Fri, 19 Jul 2024 08:30:38 GMT*
+
+
+## Sam Ashgari
+
+## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
+
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
+
+*Published on: Fri, 19 Jul 2024 08:38:14 GMT*
+
+
+## Sam Ashgari
+
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
+
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
+
+*Published on: Fri, 19 Jul 2024 08:38:59 GMT*
 
 
 ## Sandra Oh
 
-## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Fri, 19 Jul 2024 08:30:38 GMT*
+
+
+## Sandra Oh
+
+## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
 The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
 
-*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
+*Published on: Fri, 19 Jul 2024 08:38:14 GMT*
 
 
 ## Sandra Oh
@@ -1310,34 +1319,7 @@ The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashi
 
 Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
 
-*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
-
-
-## Sandra Oh
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
-
-
-## Donald Trump
-
-## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
-
-The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
-
-*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
-
-
-## Donald Trump
-
-## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
-
-Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
-
-*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
+*Published on: Fri, 19 Jul 2024 08:38:59 GMT*
 
 
 ## Donald Trump
@@ -1346,16 +1328,43 @@ Starface, beloved for its hydrocolloid pimple patches in bright colors and novel
 
 On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
+*Published on: Fri, 19 Jul 2024 08:30:38 GMT*
+
+
+## Donald Trump
+
+## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
+
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
+
+*Published on: Fri, 19 Jul 2024 08:38:14 GMT*
+
+
+## Donald Trump
+
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
+
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
+
+*Published on: Fri, 19 Jul 2024 08:38:59 GMT*
 
 
 ## Diddy
 
-## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Fri, 19 Jul 2024 08:30:38 GMT*
+
+
+## Diddy
+
+## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
 The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
 
-*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
+*Published on: Fri, 19 Jul 2024 08:38:14 GMT*
 
 
 ## Diddy
@@ -1364,34 +1373,7 @@ The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashi
 
 Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
 
-*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
-
-
-## Diddy
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
-
-
-## City Girls
-
-## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
-
-The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
-
-*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
-
-
-## City Girls
-
-## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
-
-Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
-
-*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
+*Published on: Fri, 19 Jul 2024 08:38:59 GMT*
 
 
 ## City Girls
@@ -1400,16 +1382,43 @@ Starface, beloved for its hydrocolloid pimple patches in bright colors and novel
 
 On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
+*Published on: Fri, 19 Jul 2024 08:30:38 GMT*
+
+
+## City Girls
+
+## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
+
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
+
+*Published on: Fri, 19 Jul 2024 08:38:14 GMT*
+
+
+## City Girls
+
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
+
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
+
+*Published on: Fri, 19 Jul 2024 08:38:59 GMT*
 
 
 ## Chloe Bailey
 
-## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Fri, 19 Jul 2024 08:30:38 GMT*
+
+
+## Chloe Bailey
+
+## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
 The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
 
-*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
+*Published on: Fri, 19 Jul 2024 08:38:14 GMT*
 
 
 ## Chloe Bailey
@@ -1418,34 +1427,7 @@ The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashi
 
 Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
 
-*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
-
-
-## Chloe Bailey
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
-
-
-## Charli D Amelio
-
-## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
-
-The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
-
-*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
-
-
-## Charli D Amelio
-
-## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
-
-Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
-
-*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
+*Published on: Fri, 19 Jul 2024 08:38:59 GMT*
 
 
 ## Charli D Amelio
@@ -1454,16 +1436,43 @@ Starface, beloved for its hydrocolloid pimple patches in bright colors and novel
 
 On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
+*Published on: Fri, 19 Jul 2024 08:30:38 GMT*
+
+
+## Charli D Amelio
+
+## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
+
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
+
+*Published on: Fri, 19 Jul 2024 08:38:14 GMT*
+
+
+## Charli D Amelio
+
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
+
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
+
+*Published on: Fri, 19 Jul 2024 08:38:59 GMT*
 
 
 ## Cardi B
 
-## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Fri, 19 Jul 2024 08:30:38 GMT*
+
+
+## Cardi B
+
+## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
 The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
 
-*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
+*Published on: Fri, 19 Jul 2024 08:38:14 GMT*
 
 
 ## Cardi B
@@ -1472,34 +1481,7 @@ The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashi
 
 Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
 
-*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
-
-
-## Cardi B
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
-
-
-## Bryan Cranston
-
-## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
-
-The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
-
-*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
-
-
-## Bryan Cranston
-
-## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
-
-Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
-
-*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
+*Published on: Fri, 19 Jul 2024 08:38:59 GMT*
 
 
 ## Bryan Cranston
@@ -1508,16 +1490,43 @@ Starface, beloved for its hydrocolloid pimple patches in bright colors and novel
 
 On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
+*Published on: Fri, 19 Jul 2024 08:30:38 GMT*
+
+
+## Bryan Cranston
+
+## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
+
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
+
+*Published on: Fri, 19 Jul 2024 08:38:14 GMT*
+
+
+## Bryan Cranston
+
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
+
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
+
+*Published on: Fri, 19 Jul 2024 08:38:59 GMT*
 
 
 ## Brielle Biermann
 
-## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Fri, 19 Jul 2024 08:30:38 GMT*
+
+
+## Brielle Biermann
+
+## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
 The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
 
-*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
+*Published on: Fri, 19 Jul 2024 08:38:14 GMT*
 
 
 ## Brielle Biermann
@@ -1526,34 +1535,7 @@ The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashi
 
 Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
 
-*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
-
-
-## Brielle Biermann
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
-
-
-## Dua Lipa
-
-## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
-
-The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
-
-*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
-
-
-## Dua Lipa
-
-## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
-
-Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
-
-*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
+*Published on: Fri, 19 Jul 2024 08:38:59 GMT*
 
 
 ## Dua Lipa
@@ -1562,16 +1544,43 @@ Starface, beloved for its hydrocolloid pimple patches in bright colors and novel
 
 On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
+*Published on: Fri, 19 Jul 2024 08:30:38 GMT*
+
+
+## Dua Lipa
+
+## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
+
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
+
+*Published on: Fri, 19 Jul 2024 08:38:14 GMT*
+
+
+## Dua Lipa
+
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
+
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
+
+*Published on: Fri, 19 Jul 2024 08:38:59 GMT*
 
 
 ## Drake
 
-## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Fri, 19 Jul 2024 08:30:38 GMT*
+
+
+## Drake
+
+## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
 The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
 
-*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
+*Published on: Fri, 19 Jul 2024 08:38:14 GMT*
 
 
 ## Drake
@@ -1580,34 +1589,7 @@ The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashi
 
 Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
 
-*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
-
-
-## Drake
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
-
-
-## Jenner
-
-## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
-
-The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
-
-*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
-
-
-## Jenner
-
-## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
-
-Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
-
-*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
+*Published on: Fri, 19 Jul 2024 08:38:59 GMT*
 
 
 ## Jenner
@@ -1616,16 +1598,43 @@ Starface, beloved for its hydrocolloid pimple patches in bright colors and novel
 
 On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
+*Published on: Fri, 19 Jul 2024 08:30:38 GMT*
+
+
+## Jenner
+
+## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
+
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
+
+*Published on: Fri, 19 Jul 2024 08:38:14 GMT*
+
+
+## Jenner
+
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
+
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
+
+*Published on: Fri, 19 Jul 2024 08:38:59 GMT*
 
 
 ## J. Cole
 
-## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Fri, 19 Jul 2024 08:30:38 GMT*
+
+
+## J. Cole
+
+## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
 The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
 
-*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
+*Published on: Fri, 19 Jul 2024 08:38:14 GMT*
 
 
 ## J. Cole
@@ -1634,34 +1643,7 @@ The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashi
 
 Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
 
-*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
-
-
-## J. Cole
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
-
-
-## Jerrod Carmichael
-
-## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
-
-The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
-
-*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
-
-
-## Jerrod Carmichael
-
-## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
-
-Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
-
-*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
+*Published on: Fri, 19 Jul 2024 08:38:59 GMT*
 
 
 ## Jerrod Carmichael
@@ -1670,16 +1652,43 @@ Starface, beloved for its hydrocolloid pimple patches in bright colors and novel
 
 On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
+*Published on: Fri, 19 Jul 2024 08:30:38 GMT*
+
+
+## Jerrod Carmichael
+
+## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
+
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
+
+*Published on: Fri, 19 Jul 2024 08:38:14 GMT*
+
+
+## Jerrod Carmichael
+
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
+
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
+
+*Published on: Fri, 19 Jul 2024 08:38:59 GMT*
 
 
 ## Jennifer Lawrence
 
-## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Fri, 19 Jul 2024 08:30:38 GMT*
+
+
+## Jennifer Lawrence
+
+## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
 The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
 
-*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
+*Published on: Fri, 19 Jul 2024 08:38:14 GMT*
 
 
 ## Jennifer Lawrence
@@ -1688,34 +1697,7 @@ The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashi
 
 Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
 
-*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
-
-
-## Jennifer Lawrence
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
-
-
-## Joe Biden
-
-## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
-
-The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
-
-*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
-
-
-## Joe Biden
-
-## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
-
-Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
-
-*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
+*Published on: Fri, 19 Jul 2024 08:38:59 GMT*
 
 
 ## Joe Biden
@@ -1724,16 +1706,43 @@ Starface, beloved for its hydrocolloid pimple patches in bright colors and novel
 
 On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
+*Published on: Fri, 19 Jul 2024 08:30:38 GMT*
+
+
+## Joe Biden
+
+## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
+
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
+
+*Published on: Fri, 19 Jul 2024 08:38:14 GMT*
+
+
+## Joe Biden
+
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
+
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
+
+*Published on: Fri, 19 Jul 2024 08:38:59 GMT*
 
 
 ## J.K. Simmons
 
-## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Fri, 19 Jul 2024 08:30:38 GMT*
+
+
+## J.K. Simmons
+
+## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
 The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
 
-*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
+*Published on: Fri, 19 Jul 2024 08:38:14 GMT*
 
 
 ## J.K. Simmons
@@ -1742,34 +1751,7 @@ The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashi
 
 Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
 
-*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
-
-
-## J.K. Simmons
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
-
-
-## Kamala Harris
-
-## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
-
-The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
-
-*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
-
-
-## Kamala Harris
-
-## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
-
-Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
-
-*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
+*Published on: Fri, 19 Jul 2024 08:38:59 GMT*
 
 
 ## Kamala Harris
@@ -1778,16 +1760,43 @@ Starface, beloved for its hydrocolloid pimple patches in bright colors and novel
 
 On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
+*Published on: Fri, 19 Jul 2024 08:30:38 GMT*
+
+
+## Kamala Harris
+
+## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
+
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
+
+*Published on: Fri, 19 Jul 2024 08:38:14 GMT*
+
+
+## Kamala Harris
+
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
+
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
+
+*Published on: Fri, 19 Jul 2024 08:38:59 GMT*
 
 
 ## John C Reilly
 
-## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Fri, 19 Jul 2024 08:30:38 GMT*
+
+
+## John C Reilly
+
+## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
 The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
 
-*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
+*Published on: Fri, 19 Jul 2024 08:38:14 GMT*
 
 
 ## John C Reilly
@@ -1796,34 +1805,7 @@ The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashi
 
 Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
 
-*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
-
-
-## John C Reilly
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
-
-
-## Kardashian
-
-## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
-
-The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
-
-*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
-
-
-## Kardashian
-
-## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
-
-Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
-
-*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
+*Published on: Fri, 19 Jul 2024 08:38:59 GMT*
 
 
 ## Kardashian
@@ -1832,16 +1814,43 @@ Starface, beloved for its hydrocolloid pimple patches in bright colors and novel
 
 On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
+*Published on: Fri, 19 Jul 2024 08:30:38 GMT*
+
+
+## Kardashian
+
+## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
+
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
+
+*Published on: Fri, 19 Jul 2024 08:38:14 GMT*
+
+
+## Kardashian
+
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
+
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
+
+*Published on: Fri, 19 Jul 2024 08:38:59 GMT*
 
 
 ## Kanye
 
-## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Fri, 19 Jul 2024 08:30:38 GMT*
+
+
+## Kanye
+
+## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
 The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
 
-*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
+*Published on: Fri, 19 Jul 2024 08:38:14 GMT*
 
 
 ## Kanye
@@ -1850,34 +1859,7 @@ The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashi
 
 Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
 
-*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
-
-
-## Kanye
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
-
-
-## Zendaya
-
-## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
-
-The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
-
-*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
-
-
-## Zendaya
-
-## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
-
-Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
-
-*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
+*Published on: Fri, 19 Jul 2024 08:38:59 GMT*
 
 
 ## Zendaya
@@ -1886,16 +1868,43 @@ Starface, beloved for its hydrocolloid pimple patches in bright colors and novel
 
 On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
+*Published on: Fri, 19 Jul 2024 08:30:38 GMT*
+
+
+## Zendaya
+
+## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
+
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
+
+*Published on: Fri, 19 Jul 2024 08:38:14 GMT*
+
+
+## Zendaya
+
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
+
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
+
+*Published on: Fri, 19 Jul 2024 08:38:59 GMT*
 
 
 ## Will Ferrell
 
-## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Fri, 19 Jul 2024 08:30:38 GMT*
+
+
+## Will Ferrell
+
+## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
 The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
 
-*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
+*Published on: Fri, 19 Jul 2024 08:38:14 GMT*
 
 
 ## Will Ferrell
@@ -1904,34 +1913,7 @@ The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashi
 
 Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
 
-*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
-
-
-## Will Ferrell
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
-
-
-## Zazie Beetz
-
-## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
-
-The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
-
-*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
-
-
-## Zazie Beetz
-
-## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
-
-Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
-
-*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
+*Published on: Fri, 19 Jul 2024 08:38:59 GMT*
 
 
 ## Zazie Beetz
@@ -1940,16 +1922,43 @@ Starface, beloved for its hydrocolloid pimple patches in bright colors and novel
 
 On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
+*Published on: Fri, 19 Jul 2024 08:30:38 GMT*
+
+
+## Zazie Beetz
+
+## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
+
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
+
+*Published on: Fri, 19 Jul 2024 08:38:14 GMT*
+
+
+## Zazie Beetz
+
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
+
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
+
+*Published on: Fri, 19 Jul 2024 08:38:59 GMT*
 
 
 ## Bob Odenkirk
 
-## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Fri, 19 Jul 2024 08:30:38 GMT*
+
+
+## Bob Odenkirk
+
+## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
 The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
 
-*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
+*Published on: Fri, 19 Jul 2024 08:38:14 GMT*
 
 
 ## Bob Odenkirk
@@ -1958,34 +1967,7 @@ The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashi
 
 Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
 
-*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
-
-
-## Bob Odenkirk
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
-
-
-## Brad Pitt
-
-## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
-
-The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
-
-*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
-
-
-## Brad Pitt
-
-## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
-
-Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
-
-*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
+*Published on: Fri, 19 Jul 2024 08:38:59 GMT*
 
 
 ## Brad Pitt
@@ -1994,16 +1976,43 @@ Starface, beloved for its hydrocolloid pimple patches in bright colors and novel
 
 On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
+*Published on: Fri, 19 Jul 2024 08:30:38 GMT*
+
+
+## Brad Pitt
+
+## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
+
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
+
+*Published on: Fri, 19 Jul 2024 08:38:14 GMT*
+
+
+## Brad Pitt
+
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
+
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
+
+*Published on: Fri, 19 Jul 2024 08:38:59 GMT*
 
 
 ## Beyoncé
 
-## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Fri, 19 Jul 2024 08:30:38 GMT*
+
+
+## Beyoncé
+
+## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
 The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
 
-*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
+*Published on: Fri, 19 Jul 2024 08:38:14 GMT*
 
 
 ## Beyoncé
@@ -2012,34 +2021,7 @@ The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashi
 
 Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
 
-*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
-
-
-## Beyoncé
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
-
-
-## Bia
-
-## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
-
-The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
-
-*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
-
-
-## Bia
-
-## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
-
-Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
-
-*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
+*Published on: Fri, 19 Jul 2024 08:38:59 GMT*
 
 
 ## Bia
@@ -2048,16 +2030,43 @@ Starface, beloved for its hydrocolloid pimple patches in bright colors and novel
 
 On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
+*Published on: Fri, 19 Jul 2024 08:30:38 GMT*
+
+
+## Bia
+
+## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
+
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
+
+*Published on: Fri, 19 Jul 2024 08:38:14 GMT*
+
+
+## Bia
+
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
+
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
+
+*Published on: Fri, 19 Jul 2024 08:38:59 GMT*
 
 
 ## Avantika
 
-## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Fri, 19 Jul 2024 08:30:38 GMT*
+
+
+## Avantika
+
+## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
 The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
 
-*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
+*Published on: Fri, 19 Jul 2024 08:38:14 GMT*
 
 
 ## Avantika
@@ -2066,34 +2075,7 @@ The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashi
 
 Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
 
-*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
-
-
-## Avantika
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
-
-
-## Bernie Sanders
-
-## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
-
-The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
-
-*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
-
-
-## Bernie Sanders
-
-## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
-
-Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
-
-*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
+*Published on: Fri, 19 Jul 2024 08:38:59 GMT*
 
 
 ## Bernie Sanders
@@ -2102,16 +2084,43 @@ Starface, beloved for its hydrocolloid pimple patches in bright colors and novel
 
 On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
+*Published on: Fri, 19 Jul 2024 08:30:38 GMT*
+
+
+## Bernie Sanders
+
+## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
+
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
+
+*Published on: Fri, 19 Jul 2024 08:38:14 GMT*
+
+
+## Bernie Sanders
+
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
+
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
+
+*Published on: Fri, 19 Jul 2024 08:38:59 GMT*
 
 
 ## Big Sean
 
-## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Fri, 19 Jul 2024 08:30:38 GMT*
+
+
+## Big Sean
+
+## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
 The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
 
-*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
+*Published on: Fri, 19 Jul 2024 08:38:14 GMT*
 
 
 ## Big Sean
@@ -2120,34 +2129,7 @@ The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashi
 
 Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
 
-*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
-
-
-## Big Sean
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
-
-
-## BlockBoy JB
-
-## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
-
-The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
-
-*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
-
-
-## BlockBoy JB
-
-## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
-
-Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
-
-*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
+*Published on: Fri, 19 Jul 2024 08:38:59 GMT*
 
 
 ## BlockBoy JB
@@ -2156,16 +2138,43 @@ Starface, beloved for its hydrocolloid pimple patches in bright colors and novel
 
 On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
+*Published on: Fri, 19 Jul 2024 08:30:38 GMT*
+
+
+## BlockBoy JB
+
+## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
+
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
+
+*Published on: Fri, 19 Jul 2024 08:38:14 GMT*
+
+
+## BlockBoy JB
+
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
+
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
+
+*Published on: Fri, 19 Jul 2024 08:38:59 GMT*
 
 
 ## Biden
 
-## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Fri, 19 Jul 2024 08:30:38 GMT*
+
+
+## Biden
+
+## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
 The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
 
-*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
+*Published on: Fri, 19 Jul 2024 08:38:14 GMT*
 
 
 ## Biden
@@ -2174,34 +2183,7 @@ The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashi
 
 Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
 
-*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
-
-
-## Biden
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
-
-
-## Bieber
-
-## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
-
-The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
-
-*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
-
-
-## Bieber
-
-## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
-
-Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
-
-*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
+*Published on: Fri, 19 Jul 2024 08:38:59 GMT*
 
 
 ## Bieber
@@ -2210,16 +2192,43 @@ Starface, beloved for its hydrocolloid pimple patches in bright colors and novel
 
 On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
+*Published on: Fri, 19 Jul 2024 08:30:38 GMT*
+
+
+## Bieber
+
+## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
+
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
+
+*Published on: Fri, 19 Jul 2024 08:38:14 GMT*
+
+
+## Bieber
+
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
+
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
+
+*Published on: Fri, 19 Jul 2024 08:38:59 GMT*
 
 
 ## Paulina Porizkov
 
-## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Fri, 19 Jul 2024 08:30:38 GMT*
+
+
+## Paulina Porizkov
+
+## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
 The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
 
-*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
+*Published on: Fri, 19 Jul 2024 08:38:14 GMT*
 
 
 ## Paulina Porizkov
@@ -2228,34 +2237,7 @@ The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashi
 
 Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
 
-*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
-
-
-## Paulina Porizkov
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
-
-
-## Paris Hilton
-
-## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
-
-The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
-
-*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
-
-
-## Paris Hilton
-
-## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
-
-Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
-
-*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
+*Published on: Fri, 19 Jul 2024 08:38:59 GMT*
 
 
 ## Paris Hilton
@@ -2264,16 +2246,43 @@ Starface, beloved for its hydrocolloid pimple patches in bright colors and novel
 
 On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
+*Published on: Fri, 19 Jul 2024 08:30:38 GMT*
+
+
+## Paris Hilton
+
+## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
+
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
+
+*Published on: Fri, 19 Jul 2024 08:38:14 GMT*
+
+
+## Paris Hilton
+
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
+
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
+
+*Published on: Fri, 19 Jul 2024 08:38:59 GMT*
 
 
 ## Metro Boomin
 
-## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Fri, 19 Jul 2024 08:30:38 GMT*
+
+
+## Metro Boomin
+
+## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
 The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
 
-*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
+*Published on: Fri, 19 Jul 2024 08:38:14 GMT*
 
 
 ## Metro Boomin
@@ -2282,34 +2291,7 @@ The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashi
 
 Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
 
-*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
-
-
-## Metro Boomin
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
-
-
-## Meghan Markle
-
-## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
-
-The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
-
-*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
-
-
-## Meghan Markle
-
-## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
-
-Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
-
-*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
+*Published on: Fri, 19 Jul 2024 08:38:59 GMT*
 
 
 ## Meghan Markle
@@ -2318,16 +2300,43 @@ Starface, beloved for its hydrocolloid pimple patches in bright colors and novel
 
 On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
+*Published on: Fri, 19 Jul 2024 08:30:38 GMT*
+
+
+## Meghan Markle
+
+## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
+
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
+
+*Published on: Fri, 19 Jul 2024 08:38:14 GMT*
+
+
+## Meghan Markle
+
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
+
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
+
+*Published on: Fri, 19 Jul 2024 08:38:59 GMT*
 
 
 ## Megan Thee Stallion
 
-## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Fri, 19 Jul 2024 08:30:38 GMT*
+
+
+## Megan Thee Stallion
+
+## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
 The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
 
-*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
+*Published on: Fri, 19 Jul 2024 08:38:14 GMT*
 
 
 ## Megan Thee Stallion
@@ -2336,34 +2345,7 @@ The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashi
 
 Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
 
-*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
-
-
-## Megan Thee Stallion
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
-
-
-## Maya Rudolph
-
-## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
-
-The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
-
-*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
-
-
-## Maya Rudolph
-
-## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
-
-Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
-
-*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
+*Published on: Fri, 19 Jul 2024 08:38:59 GMT*
 
 
 ## Maya Rudolph
@@ -2372,16 +2354,43 @@ Starface, beloved for its hydrocolloid pimple patches in bright colors and novel
 
 On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
+*Published on: Fri, 19 Jul 2024 08:30:38 GMT*
+
+
+## Maya Rudolph
+
+## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
+
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
+
+*Published on: Fri, 19 Jul 2024 08:38:14 GMT*
+
+
+## Maya Rudolph
+
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
+
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
+
+*Published on: Fri, 19 Jul 2024 08:38:59 GMT*
 
 
 ## Olivia Rodrigo
 
-## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Fri, 19 Jul 2024 08:30:38 GMT*
+
+
+## Olivia Rodrigo
+
+## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
 The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
 
-*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
+*Published on: Fri, 19 Jul 2024 08:38:14 GMT*
 
 
 ## Olivia Rodrigo
@@ -2390,34 +2399,7 @@ The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashi
 
 Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
 
-*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
-
-
-## Olivia Rodrigo
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
-
-
-## Obama
-
-## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
-
-The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
-
-*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
-
-
-## Obama
-
-## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
-
-Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
-
-*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
+*Published on: Fri, 19 Jul 2024 08:38:59 GMT*
 
 
 ## Obama
@@ -2426,25 +2408,25 @@ Starface, beloved for its hydrocolloid pimple patches in bright colors and novel
 
 On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
+*Published on: Fri, 19 Jul 2024 08:30:38 GMT*
 
 
-## Nicki Minaj
+## Obama
 
-## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
+## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
 The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
 
-*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
+*Published on: Fri, 19 Jul 2024 08:38:14 GMT*
 
 
-## Nicki Minaj
+## Obama
 
 ## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
 
 Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
 
-*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
+*Published on: Fri, 19 Jul 2024 08:38:59 GMT*
 
 
 ## Nicki Minaj
@@ -2453,25 +2435,25 @@ Starface, beloved for its hydrocolloid pimple patches in bright colors and novel
 
 On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
+*Published on: Fri, 19 Jul 2024 08:30:38 GMT*
 
 
-## MrBeast
+## Nicki Minaj
 
-## [ASICS’ New Collaboration Is Over-Branded (In a Good Way)](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
+## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
 
 The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
 
-*Published on: Thu, 18 Jul 2024 15:28:14 GMT*
+*Published on: Fri, 19 Jul 2024 08:38:14 GMT*
 
 
-## MrBeast
+## Nicki Minaj
 
 ## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
 
 Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
 
-*Published on: Thu, 18 Jul 2024 15:45:10 GMT*
+*Published on: Fri, 19 Jul 2024 08:38:59 GMT*
 
 
 ## MrBeast
@@ -2480,6 +2462,24 @@ Starface, beloved for its hydrocolloid pimple patches in bright colors and novel
 
 On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Thu, 18 Jul 2024 15:47:38 GMT*
+*Published on: Fri, 19 Jul 2024 08:30:38 GMT*
+
+
+## MrBeast
+
+## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
+
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
+
+*Published on: Fri, 19 Jul 2024 08:38:14 GMT*
+
+
+## MrBeast
+
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
+
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
+
+*Published on: Fri, 19 Jul 2024 08:38:59 GMT*
 
 
