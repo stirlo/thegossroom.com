@@ -1,15 +1,6 @@
 # Latest Stories
 ## Tim Cook
 
-## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
-
-Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
-
-*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
-
-
-## Tim Cook
-
 ## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
 
 adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
@@ -73,15 +64,6 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Taylor Swift
 
-## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
-
-Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
-
-*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
-
-
-## Taylor Swift
-
 ## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
 
 adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
@@ -145,15 +127,6 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Tom Brady
 
-## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
-
-Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
-
-*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
-
-
-## Tom Brady
-
 ## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
 
 adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
@@ -217,15 +190,6 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Tina Fey
 
-## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
-
-Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
-
-*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
-
-
-## Tina Fey
-
 ## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
 
 adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
@@ -289,15 +253,6 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Steven Yuen
 
-## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
-
-Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
-
-*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
-
-
-## Steven Yuen
-
 ## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
 
 adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
@@ -361,15 +316,6 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Sommer Ray
 
-## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
-
-Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
-
-*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
-
-
-## Sommer Ray
-
 ## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
 
 adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
@@ -433,15 +379,6 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Sza
 
-## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
-
-Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
-
-*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
-
-
-## Sza
-
 ## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
 
 adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
@@ -505,15 +442,6 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Sydney Sweeney
 
-## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
-
-Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
-
-*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
-
-
-## Sydney Sweeney
-
 ## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
 
 adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
@@ -577,15 +505,6 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Walton Goggins
 
-## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
-
-Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
-
-*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
-
-
-## Walton Goggins
-
 ## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
 
 adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
@@ -649,15 +568,6 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Tom Holland
 
-## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
-
-Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
-
-*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
-
-
-## Tom Holland
-
 ## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
 
 adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
@@ -721,15 +631,6 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Gucci Mane
 
-## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
-
-Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
-
-*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
-
-
-## Gucci Mane
-
 ## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
 
 adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
@@ -793,15 +694,6 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Harry Styles
 
-## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
-
-Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
-
-*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
-
-
-## Harry Styles
-
 ## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
 
 adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
@@ -865,15 +757,6 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Jake Paul
 
-## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
-
-Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
-
-*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
-
-
-## Jake Paul
-
 ## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
 
 adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
@@ -937,15 +820,6 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Jameela Jamil
 
-## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
-
-Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
-
-*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
-
-
-## Jameela Jamil
-
 ## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
 
 adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
@@ -1009,15 +883,6 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Elon Musk
 
-## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
-
-Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
-
-*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
-
-
-## Elon Musk
-
 ## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
 
 adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
@@ -1081,15 +946,6 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Gabrielle Union
 
-## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
-
-Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
-
-*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
-
-
-## Gabrielle Union
-
 ## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
 
 adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
@@ -1153,15 +1009,6 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Giancarlo Esposito
 
-## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
-
-Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
-
-*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
-
-
-## Giancarlo Esposito
-
 ## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
 
 adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
@@ -1225,15 +1072,6 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Gillian Jacobs
 
-## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
-
-Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
-
-*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
-
-
-## Gillian Jacobs
-
 ## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
 
 adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
@@ -1297,15 +1135,6 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Jason Mantzoukas
 
-## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
-
-Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
-
-*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
-
-
-## Jason Mantzoukas
-
 ## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
 
 adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
@@ -1369,15 +1198,6 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## JB Smoove
 
-## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
-
-Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
-
-*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
-
-
-## JB Smoove
-
 ## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
 
 adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
@@ -1441,15 +1261,6 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Madison Pettis
 
-## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
-
-Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
-
-*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
-
-
-## Madison Pettis
-
 ## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
 
 adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
@@ -1513,15 +1324,6 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Austin Butler
 
-## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
-
-Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
-
-*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
-
-
-## Austin Butler
-
 ## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
 
 adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
@@ -1585,15 +1387,6 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Mark Zuckerberg
 
-## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
-
-Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
-
-*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
-
-
-## Mark Zuckerberg
-
 ## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
 
 adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
@@ -1657,15 +1450,6 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Ariana Grande
 
-## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
-
-Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
-
-*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
-
-
-## Ariana Grande
-
 ## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
 
 adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
@@ -1729,15 +1513,6 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Livvy Dunne
 
-## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
-
-Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
-
-*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
-
-
-## Livvy Dunne
-
 ## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
 
 adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
@@ -1801,15 +1576,6 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Ali Wong
 
-## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
-
-Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
-
-*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
-
-
-## Ali Wong
-
 ## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
 
 adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
@@ -1873,15 +1639,6 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Lizzo
 
-## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
-
-Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
-
-*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
-
-
-## Lizzo
-
 ## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
 
 adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
@@ -1945,15 +1702,6 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Alison Brie
 
-## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
-
-Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
-
-*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
-
-
-## Alison Brie
-
 ## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
 
 adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
@@ -2017,15 +1765,6 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Lil Wayne
 
-## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
-
-Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
-
-*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
-
-
-## Lil Wayne
-
 ## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
 
 adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
@@ -2089,15 +1828,6 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Adele
 
-## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
-
-Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
-
-*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
-
-
-## Adele
-
 ## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
 
 adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
@@ -2161,15 +1891,6 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Lindsay Lohan
 
-## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
-
-Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
-
-*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
-
-
-## Lindsay Lohan
-
 ## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
 
 adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
@@ -2233,15 +1954,6 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Addison Rae
 
-## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
-
-Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
-
-*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
-
-
-## Addison Rae
-
 ## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
 
 adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
@@ -2305,15 +2017,6 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Latto
 
-## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
-
-Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
-
-*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
-
-
-## Latto
-
 ## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
 
 adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
@@ -2377,15 +2080,6 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Aaron Paul
 
-## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
-
-Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
-
-*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
-
-
-## Aaron Paul
-
 ## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
 
 adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
@@ -2449,15 +2143,6 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## LeBron James
 
-## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
-
-Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
-
-*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
-
-
-## LeBron James
-
 ## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
 
 adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
@@ -2521,15 +2206,6 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## 50 Cent
 
-## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
-
-Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
-
-*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
-
-
-## 50 Cent
-
 ## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
 
 adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
@@ -2593,15 +2269,6 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Kesha
 
-## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
-
-Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
-
-*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
-
-
-## Kesha
-
 ## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
 
 adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
@@ -2665,15 +2332,6 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## 21 Savage
 
-## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
-
-Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
-
-*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
-
-
-## 21 Savage
-
 ## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
 
 adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
@@ -2737,15 +2395,6 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Larry David
 
-## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
-
-Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
-
-*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
-
-
-## Larry David
-
 ## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
 
 adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
@@ -2809,15 +2458,6 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Seth Rogan
 
-## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
-
-Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
-
-*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
-
-
-## Seth Rogan
-
 ## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
 
 adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
@@ -2881,15 +2521,6 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Simone Biles
 
-## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
-
-Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
-
-*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
-
-
-## Simone Biles
-
 ## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
 
 adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
@@ -2953,15 +2584,6 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Pete Davidson
 
-## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
-
-Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
-
-*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
-
-
-## Pete Davidson
-
 ## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
 
 adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
@@ -3025,15 +2647,6 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Prince Harry
 
-## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
-
-Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
-
-*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
-
-
-## Prince Harry
-
 ## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
 
 adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
@@ -3097,15 +2710,6 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Princess of Wales
 
-## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
-
-Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
-
-*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
-
-
-## Princess of Wales
-
 ## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
 
 adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
@@ -3169,15 +2773,6 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Rachel McAdams
 
-## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
-
-Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
-
-*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
-
-
-## Rachel McAdams
-
 ## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
 
 adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
@@ -3241,15 +2836,6 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Reneé Rapp
 
-## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
-
-Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
-
-*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
-
-
-## Reneé Rapp
-
 ## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
 
 adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
@@ -3313,15 +2899,6 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Rick Ross
 
-## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
-
-Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
-
-*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
-
-
-## Rick Ross
-
 ## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
 
 adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
@@ -3385,15 +2962,6 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Sam Ashgari
 
-## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
-
-Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
-
-*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
-
-
-## Sam Ashgari
-
 ## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
 
 adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
@@ -3457,15 +3025,6 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Sandra Oh
 
-## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
-
-Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
-
-*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
-
-
-## Sandra Oh
-
 ## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
 
 adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
@@ -3529,15 +3088,6 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Donald Trump
 
-## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
-
-Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
-
-*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
-
-
-## Donald Trump
-
 ## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
 
 adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
@@ -3601,15 +3151,6 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Diddy
 
-## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
-
-Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
-
-*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
-
-
-## Diddy
-
 ## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
 
 adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
@@ -3673,15 +3214,6 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## City Girls
 
-## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
-
-Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
-
-*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
-
-
-## City Girls
-
 ## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
 
 adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
@@ -3745,15 +3277,6 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Chloe Bailey
 
-## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
-
-Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
-
-*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
-
-
-## Chloe Bailey
-
 ## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
 
 adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
@@ -3817,15 +3340,6 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Charli D Amelio
 
-## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
-
-Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
-
-*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
-
-
-## Charli D Amelio
-
 ## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
 
 adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
@@ -3889,15 +3403,6 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Cardi B
 
-## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
-
-Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
-
-*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
-
-
-## Cardi B
-
 ## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
 
 adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
@@ -3961,15 +3466,6 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Bryan Cranston
 
-## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
-
-Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
-
-*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
-
-
-## Bryan Cranston
-
 ## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
 
 adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
@@ -4033,15 +3529,6 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Brielle Biermann
 
-## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
-
-Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
-
-*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
-
-
-## Brielle Biermann
-
 ## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
 
 adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
@@ -4105,15 +3592,6 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Dua Lipa
 
-## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
-
-Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
-
-*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
-
-
-## Dua Lipa
-
 ## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
 
 adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
@@ -4177,15 +3655,6 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Drake
 
-## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
-
-Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
-
-*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
-
-
-## Drake
-
 ## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
 
 adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
@@ -4249,15 +3718,6 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Jenner
 
-## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
-
-Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
-
-*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
-
-
-## Jenner
-
 ## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
 
 adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
@@ -4321,15 +3781,6 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## J. Cole
 
-## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
-
-Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
-
-*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
-
-
-## J. Cole
-
 ## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
 
 adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
@@ -4393,15 +3844,6 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Jerrod Carmichael
 
-## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
-
-Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
-
-*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
-
-
-## Jerrod Carmichael
-
 ## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
 
 adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
@@ -4465,15 +3907,6 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Jennifer Lawrence
 
-## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
-
-Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
-
-*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
-
-
-## Jennifer Lawrence
-
 ## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
 
 adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
@@ -4537,15 +3970,6 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Joe Biden
 
-## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
-
-Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
-
-*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
-
-
-## Joe Biden
-
 ## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
 
 adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
@@ -4609,15 +4033,6 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## J.K. Simmons
 
-## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
-
-Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
-
-*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
-
-
-## J.K. Simmons
-
 ## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
 
 adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
@@ -4681,15 +4096,6 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Kamala Harris
 
-## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
-
-Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
-
-*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
-
-
-## Kamala Harris
-
 ## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
 
 adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
@@ -4753,15 +4159,6 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## John C Reilly
 
-## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
-
-Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
-
-*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
-
-
-## John C Reilly
-
 ## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
 
 adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
@@ -4825,15 +4222,6 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Kardashian
 
-## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
-
-Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
-
-*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
-
-
-## Kardashian
-
 ## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
 
 adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
@@ -4897,15 +4285,6 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Kanye
 
-## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
-
-Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
-
-*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
-
-
-## Kanye
-
 ## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
 
 adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
@@ -4969,15 +4348,6 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Zendaya
 
-## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
-
-Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
-
-*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
-
-
-## Zendaya
-
 ## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
 
 adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
@@ -5041,15 +4411,6 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Will Ferrell
 
-## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
-
-Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
-
-*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
-
-
-## Will Ferrell
-
 ## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
 
 adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
@@ -5113,15 +4474,6 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Zazie Beetz
 
-## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
-
-Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
-
-*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
-
-
-## Zazie Beetz
-
 ## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
 
 adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
@@ -5185,15 +4537,6 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Bob Odenkirk
 
-## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
-
-Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
-
-*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
-
-
-## Bob Odenkirk
-
 ## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
 
 adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
@@ -5257,15 +4600,6 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Brad Pitt
 
-## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
-
-Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
-
-*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
-
-
-## Brad Pitt
-
 ## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
 
 adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
@@ -5329,15 +4663,6 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Beyoncé
 
-## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
-
-Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
-
-*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
-
-
-## Beyoncé
-
 ## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
 
 adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
@@ -5401,15 +4726,6 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Bia
 
-## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
-
-Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
-
-*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
-
-
-## Bia
-
 ## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
 
 adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
@@ -5473,15 +4789,6 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Avantika
 
-## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
-
-Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
-
-*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
-
-
-## Avantika
-
 ## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
 
 adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
@@ -5545,15 +4852,6 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Bernie Sanders
 
-## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
-
-Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
-
-*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
-
-
-## Bernie Sanders
-
 ## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
 
 adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
@@ -5617,15 +4915,6 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Big Sean
 
-## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
-
-Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
-
-*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
-
-
-## Big Sean
-
 ## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
 
 adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
@@ -5689,15 +4978,6 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## BlockBoy JB
 
-## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
-
-Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
-
-*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
-
-
-## BlockBoy JB
-
 ## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
 
 adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
@@ -5761,15 +5041,6 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Biden
 
-## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
-
-Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
-
-*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
-
-
-## Biden
-
 ## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
 
 adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
@@ -5833,15 +5104,6 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Bieber
 
-## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
-
-Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
-
-*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
-
-
-## Bieber
-
 ## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
 
 adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
@@ -5905,15 +5167,6 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Paulina Porizkov
 
-## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
-
-Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
-
-*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
-
-
-## Paulina Porizkov
-
 ## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
 
 adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
@@ -5977,15 +5230,6 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Paris Hilton
 
-## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
-
-Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
-
-*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
-
-
-## Paris Hilton
-
 ## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
 
 adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
@@ -6049,15 +5293,6 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Metro Boomin
 
-## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
-
-Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
-
-*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
-
-
-## Metro Boomin
-
 ## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
 
 adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
@@ -6117,15 +5352,6 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
 
 *Published on: Sat, 20 Jul 2024 17:05:00 GMT*
-
-
-## Meghan Markle
-
-## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
-
-Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
-
-*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
 
 
 ## Meghan Markle
@@ -6193,15 +5419,6 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Megan Thee Stallion
 
-## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
-
-Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
-
-*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
-
-
-## Megan Thee Stallion
-
 ## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
 
 adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
@@ -6261,15 +5478,6 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
 
 *Published on: Sat, 20 Jul 2024 17:05:00 GMT*
-
-
-## Maya Rudolph
-
-## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
-
-Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
-
-*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
 
 
 ## Maya Rudolph
@@ -6337,15 +5545,6 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Olivia Rodrigo
 
-## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
-
-Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
-
-*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
-
-
-## Olivia Rodrigo
-
 ## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
 
 adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
@@ -6405,15 +5604,6 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
 
 *Published on: Sat, 20 Jul 2024 17:05:00 GMT*
-
-
-## Obama
-
-## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
-
-Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
-
-*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
 
 
 ## Obama
@@ -6481,15 +5671,6 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Nicki Minaj
 
-## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
-
-Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
-
-*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
-
-
-## Nicki Minaj
-
 ## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
 
 adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
@@ -6549,15 +5730,6 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
 
 *Published on: Sat, 20 Jul 2024 17:05:00 GMT*
-
-
-## MrBeast
-
-## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
-
-Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
-
-*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
 
 
 ## MrBeast
