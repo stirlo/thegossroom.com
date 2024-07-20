@@ -1,15 +1,6 @@
 # Latest Stories
 ## Tim Cook
 
-## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
-
-To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
-
-*Published on: Fri, 19 Jul 2024 16:57:20 GMT*
-
-
-## Tim Cook
-
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
 
 With grape power comes grape sneakers. A new Nike Book 1 has entered the chat, and it goes by "Barely Grape." I've also seen some people call the latest Book s…
@@ -71,13 +62,13 @@ Nigel Sylvester is sharing his grandmother's driveway with the world through his
 *Published on: Sat, 20 Jul 2024 13:49:00 GMT*
 
 
-## Taylor Swift
+## Tim Cook
 
 ## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
 
 To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
 
-*Published on: Fri, 19 Jul 2024 16:57:20 GMT*
+*Published on: Sat, 20 Jul 2024 14:30:00 GMT*
 
 
 ## Taylor Swift
@@ -135,6 +126,78 @@ Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has becom
 
 
 ## Taylor Swift
+
+## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
+
+Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
+
+*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
+
+
+## Taylor Swift
+
+## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
+
+To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
+
+*Published on: Sat, 20 Jul 2024 14:30:00 GMT*
+
+
+## Tom Brady
+
+## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
+
+With grape power comes grape sneakers. A new Nike Book 1 has entered the chat, and it goes by "Barely Grape." I've also seen some people call the latest Book s…
+
+*Published on: Fri, 19 Jul 2024 18:39:00 GMT*
+
+
+## Tom Brady
+
+## [Nike's Dynamic Air Max Sneakers Are Running Wild](https://www.highsnobiety.com/p/nike-air-max-dn-sneakers-2024/)
+
+The best has yet to come from Nike's Air Max Dn sneakers. Hard-launched during 2024 Air Max Day , the Air Max sneaker, loaded with new cloud-like Dynamic Air, …
+
+*Published on: Fri, 19 Jul 2024 19:56:09 GMT*
+
+
+## Tom Brady
+
+## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
+
+Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
+
+*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
+
+
+## Tom Brady
+
+## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
+
+adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
+
+*Published on: Sat, 20 Jul 2024 07:00:01 GMT*
+
+
+## Tom Brady
+
+## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
+
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
+
+*Published on: Sat, 20 Jul 2024 08:38:14 GMT*
+
+
+## Tom Brady
+
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
+
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
+
+*Published on: Sat, 20 Jul 2024 13:48:00 GMT*
+
+
+## Tom Brady
 
 ## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
 
@@ -149,79 +212,7 @@ Nigel Sylvester is sharing his grandmother's driveway with the world through his
 
 To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
 
-*Published on: Fri, 19 Jul 2024 16:57:20 GMT*
-
-
-## Tom Brady
-
-## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
-
-With grape power comes grape sneakers. A new Nike Book 1 has entered the chat, and it goes by "Barely Grape." I've also seen some people call the latest Book s…
-
-*Published on: Fri, 19 Jul 2024 18:39:00 GMT*
-
-
-## Tom Brady
-
-## [Nike's Dynamic Air Max Sneakers Are Running Wild](https://www.highsnobiety.com/p/nike-air-max-dn-sneakers-2024/)
-
-The best has yet to come from Nike's Air Max Dn sneakers. Hard-launched during 2024 Air Max Day , the Air Max sneaker, loaded with new cloud-like Dynamic Air, …
-
-*Published on: Fri, 19 Jul 2024 19:56:09 GMT*
-
-
-## Tom Brady
-
-## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
-
-Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
-
-*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
-
-
-## Tom Brady
-
-## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
-
-adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
-
-*Published on: Sat, 20 Jul 2024 07:00:01 GMT*
-
-
-## Tom Brady
-
-## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
-
-The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
-
-*Published on: Sat, 20 Jul 2024 08:38:14 GMT*
-
-
-## Tom Brady
-
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Sat, 20 Jul 2024 13:48:00 GMT*
-
-
-## Tom Brady
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
-
-
-## Tina Fey
-
-## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
-
-To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
-
-*Published on: Fri, 19 Jul 2024 16:57:20 GMT*
+*Published on: Sat, 20 Jul 2024 14:30:00 GMT*
 
 
 ## Tina Fey
@@ -287,13 +278,13 @@ Nigel Sylvester is sharing his grandmother's driveway with the world through his
 *Published on: Sat, 20 Jul 2024 13:49:00 GMT*
 
 
-## Steven Yuen
+## Tina Fey
 
 ## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
 
 To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
 
-*Published on: Fri, 19 Jul 2024 16:57:20 GMT*
+*Published on: Sat, 20 Jul 2024 14:30:00 GMT*
 
 
 ## Steven Yuen
@@ -351,6 +342,78 @@ Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has becom
 
 
 ## Steven Yuen
+
+## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
+
+Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
+
+*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
+
+
+## Steven Yuen
+
+## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
+
+To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
+
+*Published on: Sat, 20 Jul 2024 14:30:00 GMT*
+
+
+## Sommer Ray
+
+## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
+
+With grape power comes grape sneakers. A new Nike Book 1 has entered the chat, and it goes by "Barely Grape." I've also seen some people call the latest Book s…
+
+*Published on: Fri, 19 Jul 2024 18:39:00 GMT*
+
+
+## Sommer Ray
+
+## [Nike's Dynamic Air Max Sneakers Are Running Wild](https://www.highsnobiety.com/p/nike-air-max-dn-sneakers-2024/)
+
+The best has yet to come from Nike's Air Max Dn sneakers. Hard-launched during 2024 Air Max Day , the Air Max sneaker, loaded with new cloud-like Dynamic Air, …
+
+*Published on: Fri, 19 Jul 2024 19:56:09 GMT*
+
+
+## Sommer Ray
+
+## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
+
+Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
+
+*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
+
+
+## Sommer Ray
+
+## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
+
+adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
+
+*Published on: Sat, 20 Jul 2024 07:00:01 GMT*
+
+
+## Sommer Ray
+
+## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
+
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
+
+*Published on: Sat, 20 Jul 2024 08:38:14 GMT*
+
+
+## Sommer Ray
+
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
+
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
+
+*Published on: Sat, 20 Jul 2024 13:48:00 GMT*
+
+
+## Sommer Ray
 
 ## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
 
@@ -365,79 +428,7 @@ Nigel Sylvester is sharing his grandmother's driveway with the world through his
 
 To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
 
-*Published on: Fri, 19 Jul 2024 16:57:20 GMT*
-
-
-## Sommer Ray
-
-## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
-
-With grape power comes grape sneakers. A new Nike Book 1 has entered the chat, and it goes by "Barely Grape." I've also seen some people call the latest Book s…
-
-*Published on: Fri, 19 Jul 2024 18:39:00 GMT*
-
-
-## Sommer Ray
-
-## [Nike's Dynamic Air Max Sneakers Are Running Wild](https://www.highsnobiety.com/p/nike-air-max-dn-sneakers-2024/)
-
-The best has yet to come from Nike's Air Max Dn sneakers. Hard-launched during 2024 Air Max Day , the Air Max sneaker, loaded with new cloud-like Dynamic Air, …
-
-*Published on: Fri, 19 Jul 2024 19:56:09 GMT*
-
-
-## Sommer Ray
-
-## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
-
-Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
-
-*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
-
-
-## Sommer Ray
-
-## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
-
-adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
-
-*Published on: Sat, 20 Jul 2024 07:00:01 GMT*
-
-
-## Sommer Ray
-
-## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
-
-The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
-
-*Published on: Sat, 20 Jul 2024 08:38:14 GMT*
-
-
-## Sommer Ray
-
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Sat, 20 Jul 2024 13:48:00 GMT*
-
-
-## Sommer Ray
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
-
-
-## Sza
-
-## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
-
-To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
-
-*Published on: Fri, 19 Jul 2024 16:57:20 GMT*
+*Published on: Sat, 20 Jul 2024 14:30:00 GMT*
 
 
 ## Sza
@@ -503,13 +494,13 @@ Nigel Sylvester is sharing his grandmother's driveway with the world through his
 *Published on: Sat, 20 Jul 2024 13:49:00 GMT*
 
 
-## Sydney Sweeney
+## Sza
 
 ## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
 
 To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
 
-*Published on: Fri, 19 Jul 2024 16:57:20 GMT*
+*Published on: Sat, 20 Jul 2024 14:30:00 GMT*
 
 
 ## Sydney Sweeney
@@ -567,6 +558,78 @@ Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has becom
 
 
 ## Sydney Sweeney
+
+## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
+
+Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
+
+*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
+
+
+## Sydney Sweeney
+
+## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
+
+To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
+
+*Published on: Sat, 20 Jul 2024 14:30:00 GMT*
+
+
+## Walton Goggins
+
+## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
+
+With grape power comes grape sneakers. A new Nike Book 1 has entered the chat, and it goes by "Barely Grape." I've also seen some people call the latest Book s…
+
+*Published on: Fri, 19 Jul 2024 18:39:00 GMT*
+
+
+## Walton Goggins
+
+## [Nike's Dynamic Air Max Sneakers Are Running Wild](https://www.highsnobiety.com/p/nike-air-max-dn-sneakers-2024/)
+
+The best has yet to come from Nike's Air Max Dn sneakers. Hard-launched during 2024 Air Max Day , the Air Max sneaker, loaded with new cloud-like Dynamic Air, …
+
+*Published on: Fri, 19 Jul 2024 19:56:09 GMT*
+
+
+## Walton Goggins
+
+## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
+
+Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
+
+*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
+
+
+## Walton Goggins
+
+## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
+
+adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
+
+*Published on: Sat, 20 Jul 2024 07:00:01 GMT*
+
+
+## Walton Goggins
+
+## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
+
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
+
+*Published on: Sat, 20 Jul 2024 08:38:14 GMT*
+
+
+## Walton Goggins
+
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
+
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
+
+*Published on: Sat, 20 Jul 2024 13:48:00 GMT*
+
+
+## Walton Goggins
 
 ## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
 
@@ -581,79 +644,7 @@ Nigel Sylvester is sharing his grandmother's driveway with the world through his
 
 To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
 
-*Published on: Fri, 19 Jul 2024 16:57:20 GMT*
-
-
-## Walton Goggins
-
-## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
-
-With grape power comes grape sneakers. A new Nike Book 1 has entered the chat, and it goes by "Barely Grape." I've also seen some people call the latest Book s…
-
-*Published on: Fri, 19 Jul 2024 18:39:00 GMT*
-
-
-## Walton Goggins
-
-## [Nike's Dynamic Air Max Sneakers Are Running Wild](https://www.highsnobiety.com/p/nike-air-max-dn-sneakers-2024/)
-
-The best has yet to come from Nike's Air Max Dn sneakers. Hard-launched during 2024 Air Max Day , the Air Max sneaker, loaded with new cloud-like Dynamic Air, …
-
-*Published on: Fri, 19 Jul 2024 19:56:09 GMT*
-
-
-## Walton Goggins
-
-## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
-
-Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
-
-*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
-
-
-## Walton Goggins
-
-## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
-
-adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
-
-*Published on: Sat, 20 Jul 2024 07:00:01 GMT*
-
-
-## Walton Goggins
-
-## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
-
-The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
-
-*Published on: Sat, 20 Jul 2024 08:38:14 GMT*
-
-
-## Walton Goggins
-
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Sat, 20 Jul 2024 13:48:00 GMT*
-
-
-## Walton Goggins
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
-
-
-## Tom Holland
-
-## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
-
-To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
-
-*Published on: Fri, 19 Jul 2024 16:57:20 GMT*
+*Published on: Sat, 20 Jul 2024 14:30:00 GMT*
 
 
 ## Tom Holland
@@ -719,13 +710,13 @@ Nigel Sylvester is sharing his grandmother's driveway with the world through his
 *Published on: Sat, 20 Jul 2024 13:49:00 GMT*
 
 
-## Gucci Mane
+## Tom Holland
 
 ## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
 
 To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
 
-*Published on: Fri, 19 Jul 2024 16:57:20 GMT*
+*Published on: Sat, 20 Jul 2024 14:30:00 GMT*
 
 
 ## Gucci Mane
@@ -783,6 +774,78 @@ Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has becom
 
 
 ## Gucci Mane
+
+## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
+
+Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
+
+*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
+
+
+## Gucci Mane
+
+## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
+
+To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
+
+*Published on: Sat, 20 Jul 2024 14:30:00 GMT*
+
+
+## Harry Styles
+
+## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
+
+With grape power comes grape sneakers. A new Nike Book 1 has entered the chat, and it goes by "Barely Grape." I've also seen some people call the latest Book s…
+
+*Published on: Fri, 19 Jul 2024 18:39:00 GMT*
+
+
+## Harry Styles
+
+## [Nike's Dynamic Air Max Sneakers Are Running Wild](https://www.highsnobiety.com/p/nike-air-max-dn-sneakers-2024/)
+
+The best has yet to come from Nike's Air Max Dn sneakers. Hard-launched during 2024 Air Max Day , the Air Max sneaker, loaded with new cloud-like Dynamic Air, …
+
+*Published on: Fri, 19 Jul 2024 19:56:09 GMT*
+
+
+## Harry Styles
+
+## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
+
+Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
+
+*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
+
+
+## Harry Styles
+
+## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
+
+adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
+
+*Published on: Sat, 20 Jul 2024 07:00:01 GMT*
+
+
+## Harry Styles
+
+## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
+
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
+
+*Published on: Sat, 20 Jul 2024 08:38:14 GMT*
+
+
+## Harry Styles
+
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
+
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
+
+*Published on: Sat, 20 Jul 2024 13:48:00 GMT*
+
+
+## Harry Styles
 
 ## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
 
@@ -797,79 +860,7 @@ Nigel Sylvester is sharing his grandmother's driveway with the world through his
 
 To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
 
-*Published on: Fri, 19 Jul 2024 16:57:20 GMT*
-
-
-## Harry Styles
-
-## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
-
-With grape power comes grape sneakers. A new Nike Book 1 has entered the chat, and it goes by "Barely Grape." I've also seen some people call the latest Book s…
-
-*Published on: Fri, 19 Jul 2024 18:39:00 GMT*
-
-
-## Harry Styles
-
-## [Nike's Dynamic Air Max Sneakers Are Running Wild](https://www.highsnobiety.com/p/nike-air-max-dn-sneakers-2024/)
-
-The best has yet to come from Nike's Air Max Dn sneakers. Hard-launched during 2024 Air Max Day , the Air Max sneaker, loaded with new cloud-like Dynamic Air, …
-
-*Published on: Fri, 19 Jul 2024 19:56:09 GMT*
-
-
-## Harry Styles
-
-## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
-
-Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
-
-*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
-
-
-## Harry Styles
-
-## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
-
-adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
-
-*Published on: Sat, 20 Jul 2024 07:00:01 GMT*
-
-
-## Harry Styles
-
-## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
-
-The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
-
-*Published on: Sat, 20 Jul 2024 08:38:14 GMT*
-
-
-## Harry Styles
-
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Sat, 20 Jul 2024 13:48:00 GMT*
-
-
-## Harry Styles
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
-
-
-## Jake Paul
-
-## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
-
-To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
-
-*Published on: Fri, 19 Jul 2024 16:57:20 GMT*
+*Published on: Sat, 20 Jul 2024 14:30:00 GMT*
 
 
 ## Jake Paul
@@ -935,13 +926,13 @@ Nigel Sylvester is sharing his grandmother's driveway with the world through his
 *Published on: Sat, 20 Jul 2024 13:49:00 GMT*
 
 
-## Jameela Jamil
+## Jake Paul
 
 ## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
 
 To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
 
-*Published on: Fri, 19 Jul 2024 16:57:20 GMT*
+*Published on: Sat, 20 Jul 2024 14:30:00 GMT*
 
 
 ## Jameela Jamil
@@ -999,6 +990,78 @@ Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has becom
 
 
 ## Jameela Jamil
+
+## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
+
+Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
+
+*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
+
+
+## Jameela Jamil
+
+## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
+
+To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
+
+*Published on: Sat, 20 Jul 2024 14:30:00 GMT*
+
+
+## Elon Musk
+
+## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
+
+With grape power comes grape sneakers. A new Nike Book 1 has entered the chat, and it goes by "Barely Grape." I've also seen some people call the latest Book s…
+
+*Published on: Fri, 19 Jul 2024 18:39:00 GMT*
+
+
+## Elon Musk
+
+## [Nike's Dynamic Air Max Sneakers Are Running Wild](https://www.highsnobiety.com/p/nike-air-max-dn-sneakers-2024/)
+
+The best has yet to come from Nike's Air Max Dn sneakers. Hard-launched during 2024 Air Max Day , the Air Max sneaker, loaded with new cloud-like Dynamic Air, …
+
+*Published on: Fri, 19 Jul 2024 19:56:09 GMT*
+
+
+## Elon Musk
+
+## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
+
+Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
+
+*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
+
+
+## Elon Musk
+
+## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
+
+adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
+
+*Published on: Sat, 20 Jul 2024 07:00:01 GMT*
+
+
+## Elon Musk
+
+## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
+
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
+
+*Published on: Sat, 20 Jul 2024 08:38:14 GMT*
+
+
+## Elon Musk
+
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
+
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
+
+*Published on: Sat, 20 Jul 2024 13:48:00 GMT*
+
+
+## Elon Musk
 
 ## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
 
@@ -1013,79 +1076,7 @@ Nigel Sylvester is sharing his grandmother's driveway with the world through his
 
 To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
 
-*Published on: Fri, 19 Jul 2024 16:57:20 GMT*
-
-
-## Elon Musk
-
-## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
-
-With grape power comes grape sneakers. A new Nike Book 1 has entered the chat, and it goes by "Barely Grape." I've also seen some people call the latest Book s…
-
-*Published on: Fri, 19 Jul 2024 18:39:00 GMT*
-
-
-## Elon Musk
-
-## [Nike's Dynamic Air Max Sneakers Are Running Wild](https://www.highsnobiety.com/p/nike-air-max-dn-sneakers-2024/)
-
-The best has yet to come from Nike's Air Max Dn sneakers. Hard-launched during 2024 Air Max Day , the Air Max sneaker, loaded with new cloud-like Dynamic Air, …
-
-*Published on: Fri, 19 Jul 2024 19:56:09 GMT*
-
-
-## Elon Musk
-
-## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
-
-Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
-
-*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
-
-
-## Elon Musk
-
-## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
-
-adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
-
-*Published on: Sat, 20 Jul 2024 07:00:01 GMT*
-
-
-## Elon Musk
-
-## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
-
-The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
-
-*Published on: Sat, 20 Jul 2024 08:38:14 GMT*
-
-
-## Elon Musk
-
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Sat, 20 Jul 2024 13:48:00 GMT*
-
-
-## Elon Musk
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
-
-
-## Gabrielle Union
-
-## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
-
-To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
-
-*Published on: Fri, 19 Jul 2024 16:57:20 GMT*
+*Published on: Sat, 20 Jul 2024 14:30:00 GMT*
 
 
 ## Gabrielle Union
@@ -1151,13 +1142,13 @@ Nigel Sylvester is sharing his grandmother's driveway with the world through his
 *Published on: Sat, 20 Jul 2024 13:49:00 GMT*
 
 
-## Giancarlo Esposito
+## Gabrielle Union
 
 ## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
 
 To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
 
-*Published on: Fri, 19 Jul 2024 16:57:20 GMT*
+*Published on: Sat, 20 Jul 2024 14:30:00 GMT*
 
 
 ## Giancarlo Esposito
@@ -1215,6 +1206,78 @@ Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has becom
 
 
 ## Giancarlo Esposito
+
+## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
+
+Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
+
+*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
+
+
+## Giancarlo Esposito
+
+## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
+
+To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
+
+*Published on: Sat, 20 Jul 2024 14:30:00 GMT*
+
+
+## Gillian Jacobs
+
+## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
+
+With grape power comes grape sneakers. A new Nike Book 1 has entered the chat, and it goes by "Barely Grape." I've also seen some people call the latest Book s…
+
+*Published on: Fri, 19 Jul 2024 18:39:00 GMT*
+
+
+## Gillian Jacobs
+
+## [Nike's Dynamic Air Max Sneakers Are Running Wild](https://www.highsnobiety.com/p/nike-air-max-dn-sneakers-2024/)
+
+The best has yet to come from Nike's Air Max Dn sneakers. Hard-launched during 2024 Air Max Day , the Air Max sneaker, loaded with new cloud-like Dynamic Air, …
+
+*Published on: Fri, 19 Jul 2024 19:56:09 GMT*
+
+
+## Gillian Jacobs
+
+## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
+
+Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
+
+*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
+
+
+## Gillian Jacobs
+
+## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
+
+adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
+
+*Published on: Sat, 20 Jul 2024 07:00:01 GMT*
+
+
+## Gillian Jacobs
+
+## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
+
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
+
+*Published on: Sat, 20 Jul 2024 08:38:14 GMT*
+
+
+## Gillian Jacobs
+
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
+
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
+
+*Published on: Sat, 20 Jul 2024 13:48:00 GMT*
+
+
+## Gillian Jacobs
 
 ## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
 
@@ -1229,79 +1292,7 @@ Nigel Sylvester is sharing his grandmother's driveway with the world through his
 
 To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
 
-*Published on: Fri, 19 Jul 2024 16:57:20 GMT*
-
-
-## Gillian Jacobs
-
-## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
-
-With grape power comes grape sneakers. A new Nike Book 1 has entered the chat, and it goes by "Barely Grape." I've also seen some people call the latest Book s…
-
-*Published on: Fri, 19 Jul 2024 18:39:00 GMT*
-
-
-## Gillian Jacobs
-
-## [Nike's Dynamic Air Max Sneakers Are Running Wild](https://www.highsnobiety.com/p/nike-air-max-dn-sneakers-2024/)
-
-The best has yet to come from Nike's Air Max Dn sneakers. Hard-launched during 2024 Air Max Day , the Air Max sneaker, loaded with new cloud-like Dynamic Air, …
-
-*Published on: Fri, 19 Jul 2024 19:56:09 GMT*
-
-
-## Gillian Jacobs
-
-## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
-
-Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
-
-*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
-
-
-## Gillian Jacobs
-
-## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
-
-adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
-
-*Published on: Sat, 20 Jul 2024 07:00:01 GMT*
-
-
-## Gillian Jacobs
-
-## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
-
-The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
-
-*Published on: Sat, 20 Jul 2024 08:38:14 GMT*
-
-
-## Gillian Jacobs
-
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Sat, 20 Jul 2024 13:48:00 GMT*
-
-
-## Gillian Jacobs
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
-
-
-## Jason Mantzoukas
-
-## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
-
-To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
-
-*Published on: Fri, 19 Jul 2024 16:57:20 GMT*
+*Published on: Sat, 20 Jul 2024 14:30:00 GMT*
 
 
 ## Jason Mantzoukas
@@ -1367,13 +1358,13 @@ Nigel Sylvester is sharing his grandmother's driveway with the world through his
 *Published on: Sat, 20 Jul 2024 13:49:00 GMT*
 
 
-## JB Smoove
+## Jason Mantzoukas
 
 ## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
 
 To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
 
-*Published on: Fri, 19 Jul 2024 16:57:20 GMT*
+*Published on: Sat, 20 Jul 2024 14:30:00 GMT*
 
 
 ## JB Smoove
@@ -1431,6 +1422,78 @@ Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has becom
 
 
 ## JB Smoove
+
+## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
+
+Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
+
+*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
+
+
+## JB Smoove
+
+## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
+
+To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
+
+*Published on: Sat, 20 Jul 2024 14:30:00 GMT*
+
+
+## Madison Pettis
+
+## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
+
+With grape power comes grape sneakers. A new Nike Book 1 has entered the chat, and it goes by "Barely Grape." I've also seen some people call the latest Book s…
+
+*Published on: Fri, 19 Jul 2024 18:39:00 GMT*
+
+
+## Madison Pettis
+
+## [Nike's Dynamic Air Max Sneakers Are Running Wild](https://www.highsnobiety.com/p/nike-air-max-dn-sneakers-2024/)
+
+The best has yet to come from Nike's Air Max Dn sneakers. Hard-launched during 2024 Air Max Day , the Air Max sneaker, loaded with new cloud-like Dynamic Air, …
+
+*Published on: Fri, 19 Jul 2024 19:56:09 GMT*
+
+
+## Madison Pettis
+
+## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
+
+Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
+
+*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
+
+
+## Madison Pettis
+
+## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
+
+adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
+
+*Published on: Sat, 20 Jul 2024 07:00:01 GMT*
+
+
+## Madison Pettis
+
+## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
+
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
+
+*Published on: Sat, 20 Jul 2024 08:38:14 GMT*
+
+
+## Madison Pettis
+
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
+
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
+
+*Published on: Sat, 20 Jul 2024 13:48:00 GMT*
+
+
+## Madison Pettis
 
 ## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
 
@@ -1445,79 +1508,7 @@ Nigel Sylvester is sharing his grandmother's driveway with the world through his
 
 To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
 
-*Published on: Fri, 19 Jul 2024 16:57:20 GMT*
-
-
-## Madison Pettis
-
-## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
-
-With grape power comes grape sneakers. A new Nike Book 1 has entered the chat, and it goes by "Barely Grape." I've also seen some people call the latest Book s…
-
-*Published on: Fri, 19 Jul 2024 18:39:00 GMT*
-
-
-## Madison Pettis
-
-## [Nike's Dynamic Air Max Sneakers Are Running Wild](https://www.highsnobiety.com/p/nike-air-max-dn-sneakers-2024/)
-
-The best has yet to come from Nike's Air Max Dn sneakers. Hard-launched during 2024 Air Max Day , the Air Max sneaker, loaded with new cloud-like Dynamic Air, …
-
-*Published on: Fri, 19 Jul 2024 19:56:09 GMT*
-
-
-## Madison Pettis
-
-## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
-
-Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
-
-*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
-
-
-## Madison Pettis
-
-## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
-
-adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
-
-*Published on: Sat, 20 Jul 2024 07:00:01 GMT*
-
-
-## Madison Pettis
-
-## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
-
-The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
-
-*Published on: Sat, 20 Jul 2024 08:38:14 GMT*
-
-
-## Madison Pettis
-
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Sat, 20 Jul 2024 13:48:00 GMT*
-
-
-## Madison Pettis
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
-
-
-## Austin Butler
-
-## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
-
-To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
-
-*Published on: Fri, 19 Jul 2024 16:57:20 GMT*
+*Published on: Sat, 20 Jul 2024 14:30:00 GMT*
 
 
 ## Austin Butler
@@ -1583,13 +1574,13 @@ Nigel Sylvester is sharing his grandmother's driveway with the world through his
 *Published on: Sat, 20 Jul 2024 13:49:00 GMT*
 
 
-## Mark Zuckerberg
+## Austin Butler
 
 ## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
 
 To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
 
-*Published on: Fri, 19 Jul 2024 16:57:20 GMT*
+*Published on: Sat, 20 Jul 2024 14:30:00 GMT*
 
 
 ## Mark Zuckerberg
@@ -1647,6 +1638,78 @@ Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has becom
 
 
 ## Mark Zuckerberg
+
+## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
+
+Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
+
+*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
+
+
+## Mark Zuckerberg
+
+## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
+
+To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
+
+*Published on: Sat, 20 Jul 2024 14:30:00 GMT*
+
+
+## Ariana Grande
+
+## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
+
+With grape power comes grape sneakers. A new Nike Book 1 has entered the chat, and it goes by "Barely Grape." I've also seen some people call the latest Book s…
+
+*Published on: Fri, 19 Jul 2024 18:39:00 GMT*
+
+
+## Ariana Grande
+
+## [Nike's Dynamic Air Max Sneakers Are Running Wild](https://www.highsnobiety.com/p/nike-air-max-dn-sneakers-2024/)
+
+The best has yet to come from Nike's Air Max Dn sneakers. Hard-launched during 2024 Air Max Day , the Air Max sneaker, loaded with new cloud-like Dynamic Air, …
+
+*Published on: Fri, 19 Jul 2024 19:56:09 GMT*
+
+
+## Ariana Grande
+
+## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
+
+Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
+
+*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
+
+
+## Ariana Grande
+
+## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
+
+adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
+
+*Published on: Sat, 20 Jul 2024 07:00:01 GMT*
+
+
+## Ariana Grande
+
+## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
+
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
+
+*Published on: Sat, 20 Jul 2024 08:38:14 GMT*
+
+
+## Ariana Grande
+
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
+
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
+
+*Published on: Sat, 20 Jul 2024 13:48:00 GMT*
+
+
+## Ariana Grande
 
 ## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
 
@@ -1661,79 +1724,7 @@ Nigel Sylvester is sharing his grandmother's driveway with the world through his
 
 To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
 
-*Published on: Fri, 19 Jul 2024 16:57:20 GMT*
-
-
-## Ariana Grande
-
-## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
-
-With grape power comes grape sneakers. A new Nike Book 1 has entered the chat, and it goes by "Barely Grape." I've also seen some people call the latest Book s…
-
-*Published on: Fri, 19 Jul 2024 18:39:00 GMT*
-
-
-## Ariana Grande
-
-## [Nike's Dynamic Air Max Sneakers Are Running Wild](https://www.highsnobiety.com/p/nike-air-max-dn-sneakers-2024/)
-
-The best has yet to come from Nike's Air Max Dn sneakers. Hard-launched during 2024 Air Max Day , the Air Max sneaker, loaded with new cloud-like Dynamic Air, …
-
-*Published on: Fri, 19 Jul 2024 19:56:09 GMT*
-
-
-## Ariana Grande
-
-## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
-
-Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
-
-*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
-
-
-## Ariana Grande
-
-## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
-
-adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
-
-*Published on: Sat, 20 Jul 2024 07:00:01 GMT*
-
-
-## Ariana Grande
-
-## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
-
-The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
-
-*Published on: Sat, 20 Jul 2024 08:38:14 GMT*
-
-
-## Ariana Grande
-
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Sat, 20 Jul 2024 13:48:00 GMT*
-
-
-## Ariana Grande
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
-
-
-## Livvy Dunne
-
-## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
-
-To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
-
-*Published on: Fri, 19 Jul 2024 16:57:20 GMT*
+*Published on: Sat, 20 Jul 2024 14:30:00 GMT*
 
 
 ## Livvy Dunne
@@ -1799,13 +1790,13 @@ Nigel Sylvester is sharing his grandmother's driveway with the world through his
 *Published on: Sat, 20 Jul 2024 13:49:00 GMT*
 
 
-## Ali Wong
+## Livvy Dunne
 
 ## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
 
 To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
 
-*Published on: Fri, 19 Jul 2024 16:57:20 GMT*
+*Published on: Sat, 20 Jul 2024 14:30:00 GMT*
 
 
 ## Ali Wong
@@ -1863,6 +1854,78 @@ Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has becom
 
 
 ## Ali Wong
+
+## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
+
+Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
+
+*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
+
+
+## Ali Wong
+
+## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
+
+To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
+
+*Published on: Sat, 20 Jul 2024 14:30:00 GMT*
+
+
+## Lizzo
+
+## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
+
+With grape power comes grape sneakers. A new Nike Book 1 has entered the chat, and it goes by "Barely Grape." I've also seen some people call the latest Book s…
+
+*Published on: Fri, 19 Jul 2024 18:39:00 GMT*
+
+
+## Lizzo
+
+## [Nike's Dynamic Air Max Sneakers Are Running Wild](https://www.highsnobiety.com/p/nike-air-max-dn-sneakers-2024/)
+
+The best has yet to come from Nike's Air Max Dn sneakers. Hard-launched during 2024 Air Max Day , the Air Max sneaker, loaded with new cloud-like Dynamic Air, …
+
+*Published on: Fri, 19 Jul 2024 19:56:09 GMT*
+
+
+## Lizzo
+
+## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
+
+Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
+
+*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
+
+
+## Lizzo
+
+## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
+
+adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
+
+*Published on: Sat, 20 Jul 2024 07:00:01 GMT*
+
+
+## Lizzo
+
+## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
+
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
+
+*Published on: Sat, 20 Jul 2024 08:38:14 GMT*
+
+
+## Lizzo
+
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
+
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
+
+*Published on: Sat, 20 Jul 2024 13:48:00 GMT*
+
+
+## Lizzo
 
 ## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
 
@@ -1877,79 +1940,7 @@ Nigel Sylvester is sharing his grandmother's driveway with the world through his
 
 To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
 
-*Published on: Fri, 19 Jul 2024 16:57:20 GMT*
-
-
-## Lizzo
-
-## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
-
-With grape power comes grape sneakers. A new Nike Book 1 has entered the chat, and it goes by "Barely Grape." I've also seen some people call the latest Book s…
-
-*Published on: Fri, 19 Jul 2024 18:39:00 GMT*
-
-
-## Lizzo
-
-## [Nike's Dynamic Air Max Sneakers Are Running Wild](https://www.highsnobiety.com/p/nike-air-max-dn-sneakers-2024/)
-
-The best has yet to come from Nike's Air Max Dn sneakers. Hard-launched during 2024 Air Max Day , the Air Max sneaker, loaded with new cloud-like Dynamic Air, …
-
-*Published on: Fri, 19 Jul 2024 19:56:09 GMT*
-
-
-## Lizzo
-
-## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
-
-Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
-
-*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
-
-
-## Lizzo
-
-## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
-
-adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
-
-*Published on: Sat, 20 Jul 2024 07:00:01 GMT*
-
-
-## Lizzo
-
-## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
-
-The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
-
-*Published on: Sat, 20 Jul 2024 08:38:14 GMT*
-
-
-## Lizzo
-
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Sat, 20 Jul 2024 13:48:00 GMT*
-
-
-## Lizzo
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
-
-
-## Alison Brie
-
-## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
-
-To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
-
-*Published on: Fri, 19 Jul 2024 16:57:20 GMT*
+*Published on: Sat, 20 Jul 2024 14:30:00 GMT*
 
 
 ## Alison Brie
@@ -2015,13 +2006,13 @@ Nigel Sylvester is sharing his grandmother's driveway with the world through his
 *Published on: Sat, 20 Jul 2024 13:49:00 GMT*
 
 
-## Lil Wayne
+## Alison Brie
 
 ## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
 
 To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
 
-*Published on: Fri, 19 Jul 2024 16:57:20 GMT*
+*Published on: Sat, 20 Jul 2024 14:30:00 GMT*
 
 
 ## Lil Wayne
@@ -2079,6 +2070,78 @@ Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has becom
 
 
 ## Lil Wayne
+
+## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
+
+Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
+
+*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
+
+
+## Lil Wayne
+
+## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
+
+To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
+
+*Published on: Sat, 20 Jul 2024 14:30:00 GMT*
+
+
+## Adele
+
+## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
+
+With grape power comes grape sneakers. A new Nike Book 1 has entered the chat, and it goes by "Barely Grape." I've also seen some people call the latest Book s…
+
+*Published on: Fri, 19 Jul 2024 18:39:00 GMT*
+
+
+## Adele
+
+## [Nike's Dynamic Air Max Sneakers Are Running Wild](https://www.highsnobiety.com/p/nike-air-max-dn-sneakers-2024/)
+
+The best has yet to come from Nike's Air Max Dn sneakers. Hard-launched during 2024 Air Max Day , the Air Max sneaker, loaded with new cloud-like Dynamic Air, …
+
+*Published on: Fri, 19 Jul 2024 19:56:09 GMT*
+
+
+## Adele
+
+## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
+
+Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
+
+*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
+
+
+## Adele
+
+## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
+
+adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
+
+*Published on: Sat, 20 Jul 2024 07:00:01 GMT*
+
+
+## Adele
+
+## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
+
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
+
+*Published on: Sat, 20 Jul 2024 08:38:14 GMT*
+
+
+## Adele
+
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
+
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
+
+*Published on: Sat, 20 Jul 2024 13:48:00 GMT*
+
+
+## Adele
 
 ## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
 
@@ -2093,79 +2156,7 @@ Nigel Sylvester is sharing his grandmother's driveway with the world through his
 
 To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
 
-*Published on: Fri, 19 Jul 2024 16:57:20 GMT*
-
-
-## Adele
-
-## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
-
-With grape power comes grape sneakers. A new Nike Book 1 has entered the chat, and it goes by "Barely Grape." I've also seen some people call the latest Book s…
-
-*Published on: Fri, 19 Jul 2024 18:39:00 GMT*
-
-
-## Adele
-
-## [Nike's Dynamic Air Max Sneakers Are Running Wild](https://www.highsnobiety.com/p/nike-air-max-dn-sneakers-2024/)
-
-The best has yet to come from Nike's Air Max Dn sneakers. Hard-launched during 2024 Air Max Day , the Air Max sneaker, loaded with new cloud-like Dynamic Air, …
-
-*Published on: Fri, 19 Jul 2024 19:56:09 GMT*
-
-
-## Adele
-
-## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
-
-Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
-
-*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
-
-
-## Adele
-
-## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
-
-adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
-
-*Published on: Sat, 20 Jul 2024 07:00:01 GMT*
-
-
-## Adele
-
-## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
-
-The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
-
-*Published on: Sat, 20 Jul 2024 08:38:14 GMT*
-
-
-## Adele
-
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Sat, 20 Jul 2024 13:48:00 GMT*
-
-
-## Adele
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
-
-
-## Lindsay Lohan
-
-## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
-
-To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
-
-*Published on: Fri, 19 Jul 2024 16:57:20 GMT*
+*Published on: Sat, 20 Jul 2024 14:30:00 GMT*
 
 
 ## Lindsay Lohan
@@ -2231,13 +2222,13 @@ Nigel Sylvester is sharing his grandmother's driveway with the world through his
 *Published on: Sat, 20 Jul 2024 13:49:00 GMT*
 
 
-## Addison Rae
+## Lindsay Lohan
 
 ## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
 
 To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
 
-*Published on: Fri, 19 Jul 2024 16:57:20 GMT*
+*Published on: Sat, 20 Jul 2024 14:30:00 GMT*
 
 
 ## Addison Rae
@@ -2295,6 +2286,78 @@ Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has becom
 
 
 ## Addison Rae
+
+## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
+
+Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
+
+*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
+
+
+## Addison Rae
+
+## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
+
+To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
+
+*Published on: Sat, 20 Jul 2024 14:30:00 GMT*
+
+
+## Latto
+
+## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
+
+With grape power comes grape sneakers. A new Nike Book 1 has entered the chat, and it goes by "Barely Grape." I've also seen some people call the latest Book s…
+
+*Published on: Fri, 19 Jul 2024 18:39:00 GMT*
+
+
+## Latto
+
+## [Nike's Dynamic Air Max Sneakers Are Running Wild](https://www.highsnobiety.com/p/nike-air-max-dn-sneakers-2024/)
+
+The best has yet to come from Nike's Air Max Dn sneakers. Hard-launched during 2024 Air Max Day , the Air Max sneaker, loaded with new cloud-like Dynamic Air, …
+
+*Published on: Fri, 19 Jul 2024 19:56:09 GMT*
+
+
+## Latto
+
+## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
+
+Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
+
+*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
+
+
+## Latto
+
+## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
+
+adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
+
+*Published on: Sat, 20 Jul 2024 07:00:01 GMT*
+
+
+## Latto
+
+## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
+
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
+
+*Published on: Sat, 20 Jul 2024 08:38:14 GMT*
+
+
+## Latto
+
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
+
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
+
+*Published on: Sat, 20 Jul 2024 13:48:00 GMT*
+
+
+## Latto
 
 ## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
 
@@ -2309,79 +2372,7 @@ Nigel Sylvester is sharing his grandmother's driveway with the world through his
 
 To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
 
-*Published on: Fri, 19 Jul 2024 16:57:20 GMT*
-
-
-## Latto
-
-## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
-
-With grape power comes grape sneakers. A new Nike Book 1 has entered the chat, and it goes by "Barely Grape." I've also seen some people call the latest Book s…
-
-*Published on: Fri, 19 Jul 2024 18:39:00 GMT*
-
-
-## Latto
-
-## [Nike's Dynamic Air Max Sneakers Are Running Wild](https://www.highsnobiety.com/p/nike-air-max-dn-sneakers-2024/)
-
-The best has yet to come from Nike's Air Max Dn sneakers. Hard-launched during 2024 Air Max Day , the Air Max sneaker, loaded with new cloud-like Dynamic Air, …
-
-*Published on: Fri, 19 Jul 2024 19:56:09 GMT*
-
-
-## Latto
-
-## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
-
-Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
-
-*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
-
-
-## Latto
-
-## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
-
-adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
-
-*Published on: Sat, 20 Jul 2024 07:00:01 GMT*
-
-
-## Latto
-
-## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
-
-The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
-
-*Published on: Sat, 20 Jul 2024 08:38:14 GMT*
-
-
-## Latto
-
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Sat, 20 Jul 2024 13:48:00 GMT*
-
-
-## Latto
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
-
-
-## Aaron Paul
-
-## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
-
-To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
-
-*Published on: Fri, 19 Jul 2024 16:57:20 GMT*
+*Published on: Sat, 20 Jul 2024 14:30:00 GMT*
 
 
 ## Aaron Paul
@@ -2447,13 +2438,13 @@ Nigel Sylvester is sharing his grandmother's driveway with the world through his
 *Published on: Sat, 20 Jul 2024 13:49:00 GMT*
 
 
-## LeBron James
+## Aaron Paul
 
 ## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
 
 To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
 
-*Published on: Fri, 19 Jul 2024 16:57:20 GMT*
+*Published on: Sat, 20 Jul 2024 14:30:00 GMT*
 
 
 ## LeBron James
@@ -2511,6 +2502,78 @@ Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has becom
 
 
 ## LeBron James
+
+## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
+
+Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
+
+*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
+
+
+## LeBron James
+
+## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
+
+To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
+
+*Published on: Sat, 20 Jul 2024 14:30:00 GMT*
+
+
+## 50 Cent
+
+## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
+
+With grape power comes grape sneakers. A new Nike Book 1 has entered the chat, and it goes by "Barely Grape." I've also seen some people call the latest Book s…
+
+*Published on: Fri, 19 Jul 2024 18:39:00 GMT*
+
+
+## 50 Cent
+
+## [Nike's Dynamic Air Max Sneakers Are Running Wild](https://www.highsnobiety.com/p/nike-air-max-dn-sneakers-2024/)
+
+The best has yet to come from Nike's Air Max Dn sneakers. Hard-launched during 2024 Air Max Day , the Air Max sneaker, loaded with new cloud-like Dynamic Air, …
+
+*Published on: Fri, 19 Jul 2024 19:56:09 GMT*
+
+
+## 50 Cent
+
+## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
+
+Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
+
+*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
+
+
+## 50 Cent
+
+## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
+
+adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
+
+*Published on: Sat, 20 Jul 2024 07:00:01 GMT*
+
+
+## 50 Cent
+
+## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
+
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
+
+*Published on: Sat, 20 Jul 2024 08:38:14 GMT*
+
+
+## 50 Cent
+
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
+
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
+
+*Published on: Sat, 20 Jul 2024 13:48:00 GMT*
+
+
+## 50 Cent
 
 ## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
 
@@ -2525,79 +2588,7 @@ Nigel Sylvester is sharing his grandmother's driveway with the world through his
 
 To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
 
-*Published on: Fri, 19 Jul 2024 16:57:20 GMT*
-
-
-## 50 Cent
-
-## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
-
-With grape power comes grape sneakers. A new Nike Book 1 has entered the chat, and it goes by "Barely Grape." I've also seen some people call the latest Book s…
-
-*Published on: Fri, 19 Jul 2024 18:39:00 GMT*
-
-
-## 50 Cent
-
-## [Nike's Dynamic Air Max Sneakers Are Running Wild](https://www.highsnobiety.com/p/nike-air-max-dn-sneakers-2024/)
-
-The best has yet to come from Nike's Air Max Dn sneakers. Hard-launched during 2024 Air Max Day , the Air Max sneaker, loaded with new cloud-like Dynamic Air, …
-
-*Published on: Fri, 19 Jul 2024 19:56:09 GMT*
-
-
-## 50 Cent
-
-## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
-
-Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
-
-*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
-
-
-## 50 Cent
-
-## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
-
-adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
-
-*Published on: Sat, 20 Jul 2024 07:00:01 GMT*
-
-
-## 50 Cent
-
-## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
-
-The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
-
-*Published on: Sat, 20 Jul 2024 08:38:14 GMT*
-
-
-## 50 Cent
-
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Sat, 20 Jul 2024 13:48:00 GMT*
-
-
-## 50 Cent
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
-
-
-## Kesha
-
-## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
-
-To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
-
-*Published on: Fri, 19 Jul 2024 16:57:20 GMT*
+*Published on: Sat, 20 Jul 2024 14:30:00 GMT*
 
 
 ## Kesha
@@ -2663,13 +2654,13 @@ Nigel Sylvester is sharing his grandmother's driveway with the world through his
 *Published on: Sat, 20 Jul 2024 13:49:00 GMT*
 
 
-## 21 Savage
+## Kesha
 
 ## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
 
 To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
 
-*Published on: Fri, 19 Jul 2024 16:57:20 GMT*
+*Published on: Sat, 20 Jul 2024 14:30:00 GMT*
 
 
 ## 21 Savage
@@ -2727,6 +2718,78 @@ Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has becom
 
 
 ## 21 Savage
+
+## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
+
+Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
+
+*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
+
+
+## 21 Savage
+
+## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
+
+To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
+
+*Published on: Sat, 20 Jul 2024 14:30:00 GMT*
+
+
+## Larry David
+
+## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
+
+With grape power comes grape sneakers. A new Nike Book 1 has entered the chat, and it goes by "Barely Grape." I've also seen some people call the latest Book s…
+
+*Published on: Fri, 19 Jul 2024 18:39:00 GMT*
+
+
+## Larry David
+
+## [Nike's Dynamic Air Max Sneakers Are Running Wild](https://www.highsnobiety.com/p/nike-air-max-dn-sneakers-2024/)
+
+The best has yet to come from Nike's Air Max Dn sneakers. Hard-launched during 2024 Air Max Day , the Air Max sneaker, loaded with new cloud-like Dynamic Air, …
+
+*Published on: Fri, 19 Jul 2024 19:56:09 GMT*
+
+
+## Larry David
+
+## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
+
+Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
+
+*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
+
+
+## Larry David
+
+## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
+
+adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
+
+*Published on: Sat, 20 Jul 2024 07:00:01 GMT*
+
+
+## Larry David
+
+## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
+
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
+
+*Published on: Sat, 20 Jul 2024 08:38:14 GMT*
+
+
+## Larry David
+
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
+
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
+
+*Published on: Sat, 20 Jul 2024 13:48:00 GMT*
+
+
+## Larry David
 
 ## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
 
@@ -2741,79 +2804,7 @@ Nigel Sylvester is sharing his grandmother's driveway with the world through his
 
 To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
 
-*Published on: Fri, 19 Jul 2024 16:57:20 GMT*
-
-
-## Larry David
-
-## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
-
-With grape power comes grape sneakers. A new Nike Book 1 has entered the chat, and it goes by "Barely Grape." I've also seen some people call the latest Book s…
-
-*Published on: Fri, 19 Jul 2024 18:39:00 GMT*
-
-
-## Larry David
-
-## [Nike's Dynamic Air Max Sneakers Are Running Wild](https://www.highsnobiety.com/p/nike-air-max-dn-sneakers-2024/)
-
-The best has yet to come from Nike's Air Max Dn sneakers. Hard-launched during 2024 Air Max Day , the Air Max sneaker, loaded with new cloud-like Dynamic Air, …
-
-*Published on: Fri, 19 Jul 2024 19:56:09 GMT*
-
-
-## Larry David
-
-## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
-
-Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
-
-*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
-
-
-## Larry David
-
-## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
-
-adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
-
-*Published on: Sat, 20 Jul 2024 07:00:01 GMT*
-
-
-## Larry David
-
-## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
-
-The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
-
-*Published on: Sat, 20 Jul 2024 08:38:14 GMT*
-
-
-## Larry David
-
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Sat, 20 Jul 2024 13:48:00 GMT*
-
-
-## Larry David
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
-
-
-## Seth Rogan
-
-## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
-
-To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
-
-*Published on: Fri, 19 Jul 2024 16:57:20 GMT*
+*Published on: Sat, 20 Jul 2024 14:30:00 GMT*
 
 
 ## Seth Rogan
@@ -2879,13 +2870,13 @@ Nigel Sylvester is sharing his grandmother's driveway with the world through his
 *Published on: Sat, 20 Jul 2024 13:49:00 GMT*
 
 
-## Simone Biles
+## Seth Rogan
 
 ## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
 
 To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
 
-*Published on: Fri, 19 Jul 2024 16:57:20 GMT*
+*Published on: Sat, 20 Jul 2024 14:30:00 GMT*
 
 
 ## Simone Biles
@@ -2943,6 +2934,78 @@ Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has becom
 
 
 ## Simone Biles
+
+## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
+
+Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
+
+*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
+
+
+## Simone Biles
+
+## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
+
+To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
+
+*Published on: Sat, 20 Jul 2024 14:30:00 GMT*
+
+
+## Pete Davidson
+
+## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
+
+With grape power comes grape sneakers. A new Nike Book 1 has entered the chat, and it goes by "Barely Grape." I've also seen some people call the latest Book s…
+
+*Published on: Fri, 19 Jul 2024 18:39:00 GMT*
+
+
+## Pete Davidson
+
+## [Nike's Dynamic Air Max Sneakers Are Running Wild](https://www.highsnobiety.com/p/nike-air-max-dn-sneakers-2024/)
+
+The best has yet to come from Nike's Air Max Dn sneakers. Hard-launched during 2024 Air Max Day , the Air Max sneaker, loaded with new cloud-like Dynamic Air, …
+
+*Published on: Fri, 19 Jul 2024 19:56:09 GMT*
+
+
+## Pete Davidson
+
+## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
+
+Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
+
+*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
+
+
+## Pete Davidson
+
+## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
+
+adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
+
+*Published on: Sat, 20 Jul 2024 07:00:01 GMT*
+
+
+## Pete Davidson
+
+## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
+
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
+
+*Published on: Sat, 20 Jul 2024 08:38:14 GMT*
+
+
+## Pete Davidson
+
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
+
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
+
+*Published on: Sat, 20 Jul 2024 13:48:00 GMT*
+
+
+## Pete Davidson
 
 ## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
 
@@ -2957,79 +3020,7 @@ Nigel Sylvester is sharing his grandmother's driveway with the world through his
 
 To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
 
-*Published on: Fri, 19 Jul 2024 16:57:20 GMT*
-
-
-## Pete Davidson
-
-## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
-
-With grape power comes grape sneakers. A new Nike Book 1 has entered the chat, and it goes by "Barely Grape." I've also seen some people call the latest Book s…
-
-*Published on: Fri, 19 Jul 2024 18:39:00 GMT*
-
-
-## Pete Davidson
-
-## [Nike's Dynamic Air Max Sneakers Are Running Wild](https://www.highsnobiety.com/p/nike-air-max-dn-sneakers-2024/)
-
-The best has yet to come from Nike's Air Max Dn sneakers. Hard-launched during 2024 Air Max Day , the Air Max sneaker, loaded with new cloud-like Dynamic Air, …
-
-*Published on: Fri, 19 Jul 2024 19:56:09 GMT*
-
-
-## Pete Davidson
-
-## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
-
-Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
-
-*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
-
-
-## Pete Davidson
-
-## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
-
-adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
-
-*Published on: Sat, 20 Jul 2024 07:00:01 GMT*
-
-
-## Pete Davidson
-
-## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
-
-The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
-
-*Published on: Sat, 20 Jul 2024 08:38:14 GMT*
-
-
-## Pete Davidson
-
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Sat, 20 Jul 2024 13:48:00 GMT*
-
-
-## Pete Davidson
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
-
-
-## Prince Harry
-
-## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
-
-To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
-
-*Published on: Fri, 19 Jul 2024 16:57:20 GMT*
+*Published on: Sat, 20 Jul 2024 14:30:00 GMT*
 
 
 ## Prince Harry
@@ -3095,13 +3086,13 @@ Nigel Sylvester is sharing his grandmother's driveway with the world through his
 *Published on: Sat, 20 Jul 2024 13:49:00 GMT*
 
 
-## Princess of Wales
+## Prince Harry
 
 ## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
 
 To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
 
-*Published on: Fri, 19 Jul 2024 16:57:20 GMT*
+*Published on: Sat, 20 Jul 2024 14:30:00 GMT*
 
 
 ## Princess of Wales
@@ -3159,6 +3150,78 @@ Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has becom
 
 
 ## Princess of Wales
+
+## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
+
+Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
+
+*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
+
+
+## Princess of Wales
+
+## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
+
+To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
+
+*Published on: Sat, 20 Jul 2024 14:30:00 GMT*
+
+
+## Rachel McAdams
+
+## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
+
+With grape power comes grape sneakers. A new Nike Book 1 has entered the chat, and it goes by "Barely Grape." I've also seen some people call the latest Book s…
+
+*Published on: Fri, 19 Jul 2024 18:39:00 GMT*
+
+
+## Rachel McAdams
+
+## [Nike's Dynamic Air Max Sneakers Are Running Wild](https://www.highsnobiety.com/p/nike-air-max-dn-sneakers-2024/)
+
+The best has yet to come from Nike's Air Max Dn sneakers. Hard-launched during 2024 Air Max Day , the Air Max sneaker, loaded with new cloud-like Dynamic Air, …
+
+*Published on: Fri, 19 Jul 2024 19:56:09 GMT*
+
+
+## Rachel McAdams
+
+## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
+
+Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
+
+*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
+
+
+## Rachel McAdams
+
+## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
+
+adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
+
+*Published on: Sat, 20 Jul 2024 07:00:01 GMT*
+
+
+## Rachel McAdams
+
+## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
+
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
+
+*Published on: Sat, 20 Jul 2024 08:38:14 GMT*
+
+
+## Rachel McAdams
+
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
+
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
+
+*Published on: Sat, 20 Jul 2024 13:48:00 GMT*
+
+
+## Rachel McAdams
 
 ## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
 
@@ -3173,79 +3236,7 @@ Nigel Sylvester is sharing his grandmother's driveway with the world through his
 
 To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
 
-*Published on: Fri, 19 Jul 2024 16:57:20 GMT*
-
-
-## Rachel McAdams
-
-## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
-
-With grape power comes grape sneakers. A new Nike Book 1 has entered the chat, and it goes by "Barely Grape." I've also seen some people call the latest Book s…
-
-*Published on: Fri, 19 Jul 2024 18:39:00 GMT*
-
-
-## Rachel McAdams
-
-## [Nike's Dynamic Air Max Sneakers Are Running Wild](https://www.highsnobiety.com/p/nike-air-max-dn-sneakers-2024/)
-
-The best has yet to come from Nike's Air Max Dn sneakers. Hard-launched during 2024 Air Max Day , the Air Max sneaker, loaded with new cloud-like Dynamic Air, …
-
-*Published on: Fri, 19 Jul 2024 19:56:09 GMT*
-
-
-## Rachel McAdams
-
-## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
-
-Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
-
-*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
-
-
-## Rachel McAdams
-
-## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
-
-adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
-
-*Published on: Sat, 20 Jul 2024 07:00:01 GMT*
-
-
-## Rachel McAdams
-
-## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
-
-The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
-
-*Published on: Sat, 20 Jul 2024 08:38:14 GMT*
-
-
-## Rachel McAdams
-
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Sat, 20 Jul 2024 13:48:00 GMT*
-
-
-## Rachel McAdams
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
-
-
-## Reneé Rapp
-
-## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
-
-To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
-
-*Published on: Fri, 19 Jul 2024 16:57:20 GMT*
+*Published on: Sat, 20 Jul 2024 14:30:00 GMT*
 
 
 ## Reneé Rapp
@@ -3311,13 +3302,13 @@ Nigel Sylvester is sharing his grandmother's driveway with the world through his
 *Published on: Sat, 20 Jul 2024 13:49:00 GMT*
 
 
-## Rick Ross
+## Reneé Rapp
 
 ## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
 
 To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
 
-*Published on: Fri, 19 Jul 2024 16:57:20 GMT*
+*Published on: Sat, 20 Jul 2024 14:30:00 GMT*
 
 
 ## Rick Ross
@@ -3375,6 +3366,78 @@ Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has becom
 
 
 ## Rick Ross
+
+## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
+
+Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
+
+*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
+
+
+## Rick Ross
+
+## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
+
+To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
+
+*Published on: Sat, 20 Jul 2024 14:30:00 GMT*
+
+
+## Sam Ashgari
+
+## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
+
+With grape power comes grape sneakers. A new Nike Book 1 has entered the chat, and it goes by "Barely Grape." I've also seen some people call the latest Book s…
+
+*Published on: Fri, 19 Jul 2024 18:39:00 GMT*
+
+
+## Sam Ashgari
+
+## [Nike's Dynamic Air Max Sneakers Are Running Wild](https://www.highsnobiety.com/p/nike-air-max-dn-sneakers-2024/)
+
+The best has yet to come from Nike's Air Max Dn sneakers. Hard-launched during 2024 Air Max Day , the Air Max sneaker, loaded with new cloud-like Dynamic Air, …
+
+*Published on: Fri, 19 Jul 2024 19:56:09 GMT*
+
+
+## Sam Ashgari
+
+## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
+
+Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
+
+*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
+
+
+## Sam Ashgari
+
+## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
+
+adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
+
+*Published on: Sat, 20 Jul 2024 07:00:01 GMT*
+
+
+## Sam Ashgari
+
+## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
+
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
+
+*Published on: Sat, 20 Jul 2024 08:38:14 GMT*
+
+
+## Sam Ashgari
+
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
+
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
+
+*Published on: Sat, 20 Jul 2024 13:48:00 GMT*
+
+
+## Sam Ashgari
 
 ## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
 
@@ -3389,79 +3452,7 @@ Nigel Sylvester is sharing his grandmother's driveway with the world through his
 
 To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
 
-*Published on: Fri, 19 Jul 2024 16:57:20 GMT*
-
-
-## Sam Ashgari
-
-## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
-
-With grape power comes grape sneakers. A new Nike Book 1 has entered the chat, and it goes by "Barely Grape." I've also seen some people call the latest Book s…
-
-*Published on: Fri, 19 Jul 2024 18:39:00 GMT*
-
-
-## Sam Ashgari
-
-## [Nike's Dynamic Air Max Sneakers Are Running Wild](https://www.highsnobiety.com/p/nike-air-max-dn-sneakers-2024/)
-
-The best has yet to come from Nike's Air Max Dn sneakers. Hard-launched during 2024 Air Max Day , the Air Max sneaker, loaded with new cloud-like Dynamic Air, …
-
-*Published on: Fri, 19 Jul 2024 19:56:09 GMT*
-
-
-## Sam Ashgari
-
-## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
-
-Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
-
-*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
-
-
-## Sam Ashgari
-
-## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
-
-adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
-
-*Published on: Sat, 20 Jul 2024 07:00:01 GMT*
-
-
-## Sam Ashgari
-
-## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
-
-The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
-
-*Published on: Sat, 20 Jul 2024 08:38:14 GMT*
-
-
-## Sam Ashgari
-
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Sat, 20 Jul 2024 13:48:00 GMT*
-
-
-## Sam Ashgari
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
-
-
-## Sandra Oh
-
-## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
-
-To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
-
-*Published on: Fri, 19 Jul 2024 16:57:20 GMT*
+*Published on: Sat, 20 Jul 2024 14:30:00 GMT*
 
 
 ## Sandra Oh
@@ -3527,13 +3518,13 @@ Nigel Sylvester is sharing his grandmother's driveway with the world through his
 *Published on: Sat, 20 Jul 2024 13:49:00 GMT*
 
 
-## Donald Trump
+## Sandra Oh
 
 ## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
 
 To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
 
-*Published on: Fri, 19 Jul 2024 16:57:20 GMT*
+*Published on: Sat, 20 Jul 2024 14:30:00 GMT*
 
 
 ## Donald Trump
@@ -3591,6 +3582,78 @@ Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has becom
 
 
 ## Donald Trump
+
+## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
+
+Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
+
+*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
+
+
+## Donald Trump
+
+## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
+
+To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
+
+*Published on: Sat, 20 Jul 2024 14:30:00 GMT*
+
+
+## Diddy
+
+## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
+
+With grape power comes grape sneakers. A new Nike Book 1 has entered the chat, and it goes by "Barely Grape." I've also seen some people call the latest Book s…
+
+*Published on: Fri, 19 Jul 2024 18:39:00 GMT*
+
+
+## Diddy
+
+## [Nike's Dynamic Air Max Sneakers Are Running Wild](https://www.highsnobiety.com/p/nike-air-max-dn-sneakers-2024/)
+
+The best has yet to come from Nike's Air Max Dn sneakers. Hard-launched during 2024 Air Max Day , the Air Max sneaker, loaded with new cloud-like Dynamic Air, …
+
+*Published on: Fri, 19 Jul 2024 19:56:09 GMT*
+
+
+## Diddy
+
+## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
+
+Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
+
+*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
+
+
+## Diddy
+
+## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
+
+adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
+
+*Published on: Sat, 20 Jul 2024 07:00:01 GMT*
+
+
+## Diddy
+
+## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
+
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
+
+*Published on: Sat, 20 Jul 2024 08:38:14 GMT*
+
+
+## Diddy
+
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
+
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
+
+*Published on: Sat, 20 Jul 2024 13:48:00 GMT*
+
+
+## Diddy
 
 ## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
 
@@ -3605,79 +3668,7 @@ Nigel Sylvester is sharing his grandmother's driveway with the world through his
 
 To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
 
-*Published on: Fri, 19 Jul 2024 16:57:20 GMT*
-
-
-## Diddy
-
-## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
-
-With grape power comes grape sneakers. A new Nike Book 1 has entered the chat, and it goes by "Barely Grape." I've also seen some people call the latest Book s…
-
-*Published on: Fri, 19 Jul 2024 18:39:00 GMT*
-
-
-## Diddy
-
-## [Nike's Dynamic Air Max Sneakers Are Running Wild](https://www.highsnobiety.com/p/nike-air-max-dn-sneakers-2024/)
-
-The best has yet to come from Nike's Air Max Dn sneakers. Hard-launched during 2024 Air Max Day , the Air Max sneaker, loaded with new cloud-like Dynamic Air, …
-
-*Published on: Fri, 19 Jul 2024 19:56:09 GMT*
-
-
-## Diddy
-
-## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
-
-Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
-
-*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
-
-
-## Diddy
-
-## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
-
-adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
-
-*Published on: Sat, 20 Jul 2024 07:00:01 GMT*
-
-
-## Diddy
-
-## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
-
-The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
-
-*Published on: Sat, 20 Jul 2024 08:38:14 GMT*
-
-
-## Diddy
-
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Sat, 20 Jul 2024 13:48:00 GMT*
-
-
-## Diddy
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
-
-
-## City Girls
-
-## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
-
-To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
-
-*Published on: Fri, 19 Jul 2024 16:57:20 GMT*
+*Published on: Sat, 20 Jul 2024 14:30:00 GMT*
 
 
 ## City Girls
@@ -3743,13 +3734,13 @@ Nigel Sylvester is sharing his grandmother's driveway with the world through his
 *Published on: Sat, 20 Jul 2024 13:49:00 GMT*
 
 
-## Chloe Bailey
+## City Girls
 
 ## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
 
 To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
 
-*Published on: Fri, 19 Jul 2024 16:57:20 GMT*
+*Published on: Sat, 20 Jul 2024 14:30:00 GMT*
 
 
 ## Chloe Bailey
@@ -3807,6 +3798,78 @@ Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has becom
 
 
 ## Chloe Bailey
+
+## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
+
+Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
+
+*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
+
+
+## Chloe Bailey
+
+## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
+
+To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
+
+*Published on: Sat, 20 Jul 2024 14:30:00 GMT*
+
+
+## Charli D Amelio
+
+## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
+
+With grape power comes grape sneakers. A new Nike Book 1 has entered the chat, and it goes by "Barely Grape." I've also seen some people call the latest Book s…
+
+*Published on: Fri, 19 Jul 2024 18:39:00 GMT*
+
+
+## Charli D Amelio
+
+## [Nike's Dynamic Air Max Sneakers Are Running Wild](https://www.highsnobiety.com/p/nike-air-max-dn-sneakers-2024/)
+
+The best has yet to come from Nike's Air Max Dn sneakers. Hard-launched during 2024 Air Max Day , the Air Max sneaker, loaded with new cloud-like Dynamic Air, …
+
+*Published on: Fri, 19 Jul 2024 19:56:09 GMT*
+
+
+## Charli D Amelio
+
+## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
+
+Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
+
+*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
+
+
+## Charli D Amelio
+
+## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
+
+adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
+
+*Published on: Sat, 20 Jul 2024 07:00:01 GMT*
+
+
+## Charli D Amelio
+
+## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
+
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
+
+*Published on: Sat, 20 Jul 2024 08:38:14 GMT*
+
+
+## Charli D Amelio
+
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
+
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
+
+*Published on: Sat, 20 Jul 2024 13:48:00 GMT*
+
+
+## Charli D Amelio
 
 ## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
 
@@ -3821,79 +3884,7 @@ Nigel Sylvester is sharing his grandmother's driveway with the world through his
 
 To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
 
-*Published on: Fri, 19 Jul 2024 16:57:20 GMT*
-
-
-## Charli D Amelio
-
-## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
-
-With grape power comes grape sneakers. A new Nike Book 1 has entered the chat, and it goes by "Barely Grape." I've also seen some people call the latest Book s…
-
-*Published on: Fri, 19 Jul 2024 18:39:00 GMT*
-
-
-## Charli D Amelio
-
-## [Nike's Dynamic Air Max Sneakers Are Running Wild](https://www.highsnobiety.com/p/nike-air-max-dn-sneakers-2024/)
-
-The best has yet to come from Nike's Air Max Dn sneakers. Hard-launched during 2024 Air Max Day , the Air Max sneaker, loaded with new cloud-like Dynamic Air, …
-
-*Published on: Fri, 19 Jul 2024 19:56:09 GMT*
-
-
-## Charli D Amelio
-
-## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
-
-Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
-
-*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
-
-
-## Charli D Amelio
-
-## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
-
-adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
-
-*Published on: Sat, 20 Jul 2024 07:00:01 GMT*
-
-
-## Charli D Amelio
-
-## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
-
-The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
-
-*Published on: Sat, 20 Jul 2024 08:38:14 GMT*
-
-
-## Charli D Amelio
-
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Sat, 20 Jul 2024 13:48:00 GMT*
-
-
-## Charli D Amelio
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
-
-
-## Cardi B
-
-## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
-
-To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
-
-*Published on: Fri, 19 Jul 2024 16:57:20 GMT*
+*Published on: Sat, 20 Jul 2024 14:30:00 GMT*
 
 
 ## Cardi B
@@ -3959,13 +3950,13 @@ Nigel Sylvester is sharing his grandmother's driveway with the world through his
 *Published on: Sat, 20 Jul 2024 13:49:00 GMT*
 
 
-## Bryan Cranston
+## Cardi B
 
 ## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
 
 To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
 
-*Published on: Fri, 19 Jul 2024 16:57:20 GMT*
+*Published on: Sat, 20 Jul 2024 14:30:00 GMT*
 
 
 ## Bryan Cranston
@@ -4023,6 +4014,78 @@ Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has becom
 
 
 ## Bryan Cranston
+
+## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
+
+Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
+
+*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
+
+
+## Bryan Cranston
+
+## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
+
+To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
+
+*Published on: Sat, 20 Jul 2024 14:30:00 GMT*
+
+
+## Brielle Biermann
+
+## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
+
+With grape power comes grape sneakers. A new Nike Book 1 has entered the chat, and it goes by "Barely Grape." I've also seen some people call the latest Book s…
+
+*Published on: Fri, 19 Jul 2024 18:39:00 GMT*
+
+
+## Brielle Biermann
+
+## [Nike's Dynamic Air Max Sneakers Are Running Wild](https://www.highsnobiety.com/p/nike-air-max-dn-sneakers-2024/)
+
+The best has yet to come from Nike's Air Max Dn sneakers. Hard-launched during 2024 Air Max Day , the Air Max sneaker, loaded with new cloud-like Dynamic Air, …
+
+*Published on: Fri, 19 Jul 2024 19:56:09 GMT*
+
+
+## Brielle Biermann
+
+## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
+
+Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
+
+*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
+
+
+## Brielle Biermann
+
+## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
+
+adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
+
+*Published on: Sat, 20 Jul 2024 07:00:01 GMT*
+
+
+## Brielle Biermann
+
+## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
+
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
+
+*Published on: Sat, 20 Jul 2024 08:38:14 GMT*
+
+
+## Brielle Biermann
+
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
+
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
+
+*Published on: Sat, 20 Jul 2024 13:48:00 GMT*
+
+
+## Brielle Biermann
 
 ## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
 
@@ -4037,79 +4100,7 @@ Nigel Sylvester is sharing his grandmother's driveway with the world through his
 
 To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
 
-*Published on: Fri, 19 Jul 2024 16:57:20 GMT*
-
-
-## Brielle Biermann
-
-## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
-
-With grape power comes grape sneakers. A new Nike Book 1 has entered the chat, and it goes by "Barely Grape." I've also seen some people call the latest Book s…
-
-*Published on: Fri, 19 Jul 2024 18:39:00 GMT*
-
-
-## Brielle Biermann
-
-## [Nike's Dynamic Air Max Sneakers Are Running Wild](https://www.highsnobiety.com/p/nike-air-max-dn-sneakers-2024/)
-
-The best has yet to come from Nike's Air Max Dn sneakers. Hard-launched during 2024 Air Max Day , the Air Max sneaker, loaded with new cloud-like Dynamic Air, …
-
-*Published on: Fri, 19 Jul 2024 19:56:09 GMT*
-
-
-## Brielle Biermann
-
-## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
-
-Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
-
-*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
-
-
-## Brielle Biermann
-
-## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
-
-adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
-
-*Published on: Sat, 20 Jul 2024 07:00:01 GMT*
-
-
-## Brielle Biermann
-
-## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
-
-The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
-
-*Published on: Sat, 20 Jul 2024 08:38:14 GMT*
-
-
-## Brielle Biermann
-
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Sat, 20 Jul 2024 13:48:00 GMT*
-
-
-## Brielle Biermann
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
-
-
-## Dua Lipa
-
-## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
-
-To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
-
-*Published on: Fri, 19 Jul 2024 16:57:20 GMT*
+*Published on: Sat, 20 Jul 2024 14:30:00 GMT*
 
 
 ## Dua Lipa
@@ -4175,13 +4166,13 @@ Nigel Sylvester is sharing his grandmother's driveway with the world through his
 *Published on: Sat, 20 Jul 2024 13:49:00 GMT*
 
 
-## Drake
+## Dua Lipa
 
 ## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
 
 To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
 
-*Published on: Fri, 19 Jul 2024 16:57:20 GMT*
+*Published on: Sat, 20 Jul 2024 14:30:00 GMT*
 
 
 ## Drake
@@ -4239,6 +4230,78 @@ Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has becom
 
 
 ## Drake
+
+## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
+
+Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
+
+*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
+
+
+## Drake
+
+## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
+
+To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
+
+*Published on: Sat, 20 Jul 2024 14:30:00 GMT*
+
+
+## Jenner
+
+## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
+
+With grape power comes grape sneakers. A new Nike Book 1 has entered the chat, and it goes by "Barely Grape." I've also seen some people call the latest Book s…
+
+*Published on: Fri, 19 Jul 2024 18:39:00 GMT*
+
+
+## Jenner
+
+## [Nike's Dynamic Air Max Sneakers Are Running Wild](https://www.highsnobiety.com/p/nike-air-max-dn-sneakers-2024/)
+
+The best has yet to come from Nike's Air Max Dn sneakers. Hard-launched during 2024 Air Max Day , the Air Max sneaker, loaded with new cloud-like Dynamic Air, …
+
+*Published on: Fri, 19 Jul 2024 19:56:09 GMT*
+
+
+## Jenner
+
+## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
+
+Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
+
+*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
+
+
+## Jenner
+
+## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
+
+adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
+
+*Published on: Sat, 20 Jul 2024 07:00:01 GMT*
+
+
+## Jenner
+
+## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
+
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
+
+*Published on: Sat, 20 Jul 2024 08:38:14 GMT*
+
+
+## Jenner
+
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
+
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
+
+*Published on: Sat, 20 Jul 2024 13:48:00 GMT*
+
+
+## Jenner
 
 ## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
 
@@ -4253,79 +4316,7 @@ Nigel Sylvester is sharing his grandmother's driveway with the world through his
 
 To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
 
-*Published on: Fri, 19 Jul 2024 16:57:20 GMT*
-
-
-## Jenner
-
-## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
-
-With grape power comes grape sneakers. A new Nike Book 1 has entered the chat, and it goes by "Barely Grape." I've also seen some people call the latest Book s…
-
-*Published on: Fri, 19 Jul 2024 18:39:00 GMT*
-
-
-## Jenner
-
-## [Nike's Dynamic Air Max Sneakers Are Running Wild](https://www.highsnobiety.com/p/nike-air-max-dn-sneakers-2024/)
-
-The best has yet to come from Nike's Air Max Dn sneakers. Hard-launched during 2024 Air Max Day , the Air Max sneaker, loaded with new cloud-like Dynamic Air, …
-
-*Published on: Fri, 19 Jul 2024 19:56:09 GMT*
-
-
-## Jenner
-
-## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
-
-Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
-
-*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
-
-
-## Jenner
-
-## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
-
-adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
-
-*Published on: Sat, 20 Jul 2024 07:00:01 GMT*
-
-
-## Jenner
-
-## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
-
-The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
-
-*Published on: Sat, 20 Jul 2024 08:38:14 GMT*
-
-
-## Jenner
-
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Sat, 20 Jul 2024 13:48:00 GMT*
-
-
-## Jenner
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
-
-
-## J. Cole
-
-## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
-
-To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
-
-*Published on: Fri, 19 Jul 2024 16:57:20 GMT*
+*Published on: Sat, 20 Jul 2024 14:30:00 GMT*
 
 
 ## J. Cole
@@ -4391,13 +4382,13 @@ Nigel Sylvester is sharing his grandmother's driveway with the world through his
 *Published on: Sat, 20 Jul 2024 13:49:00 GMT*
 
 
-## Jerrod Carmichael
+## J. Cole
 
 ## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
 
 To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
 
-*Published on: Fri, 19 Jul 2024 16:57:20 GMT*
+*Published on: Sat, 20 Jul 2024 14:30:00 GMT*
 
 
 ## Jerrod Carmichael
@@ -4455,6 +4446,78 @@ Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has becom
 
 
 ## Jerrod Carmichael
+
+## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
+
+Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
+
+*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
+
+
+## Jerrod Carmichael
+
+## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
+
+To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
+
+*Published on: Sat, 20 Jul 2024 14:30:00 GMT*
+
+
+## Jennifer Lawrence
+
+## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
+
+With grape power comes grape sneakers. A new Nike Book 1 has entered the chat, and it goes by "Barely Grape." I've also seen some people call the latest Book s…
+
+*Published on: Fri, 19 Jul 2024 18:39:00 GMT*
+
+
+## Jennifer Lawrence
+
+## [Nike's Dynamic Air Max Sneakers Are Running Wild](https://www.highsnobiety.com/p/nike-air-max-dn-sneakers-2024/)
+
+The best has yet to come from Nike's Air Max Dn sneakers. Hard-launched during 2024 Air Max Day , the Air Max sneaker, loaded with new cloud-like Dynamic Air, …
+
+*Published on: Fri, 19 Jul 2024 19:56:09 GMT*
+
+
+## Jennifer Lawrence
+
+## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
+
+Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
+
+*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
+
+
+## Jennifer Lawrence
+
+## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
+
+adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
+
+*Published on: Sat, 20 Jul 2024 07:00:01 GMT*
+
+
+## Jennifer Lawrence
+
+## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
+
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
+
+*Published on: Sat, 20 Jul 2024 08:38:14 GMT*
+
+
+## Jennifer Lawrence
+
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
+
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
+
+*Published on: Sat, 20 Jul 2024 13:48:00 GMT*
+
+
+## Jennifer Lawrence
 
 ## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
 
@@ -4469,79 +4532,7 @@ Nigel Sylvester is sharing his grandmother's driveway with the world through his
 
 To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
 
-*Published on: Fri, 19 Jul 2024 16:57:20 GMT*
-
-
-## Jennifer Lawrence
-
-## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
-
-With grape power comes grape sneakers. A new Nike Book 1 has entered the chat, and it goes by "Barely Grape." I've also seen some people call the latest Book s…
-
-*Published on: Fri, 19 Jul 2024 18:39:00 GMT*
-
-
-## Jennifer Lawrence
-
-## [Nike's Dynamic Air Max Sneakers Are Running Wild](https://www.highsnobiety.com/p/nike-air-max-dn-sneakers-2024/)
-
-The best has yet to come from Nike's Air Max Dn sneakers. Hard-launched during 2024 Air Max Day , the Air Max sneaker, loaded with new cloud-like Dynamic Air, …
-
-*Published on: Fri, 19 Jul 2024 19:56:09 GMT*
-
-
-## Jennifer Lawrence
-
-## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
-
-Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
-
-*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
-
-
-## Jennifer Lawrence
-
-## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
-
-adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
-
-*Published on: Sat, 20 Jul 2024 07:00:01 GMT*
-
-
-## Jennifer Lawrence
-
-## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
-
-The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
-
-*Published on: Sat, 20 Jul 2024 08:38:14 GMT*
-
-
-## Jennifer Lawrence
-
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Sat, 20 Jul 2024 13:48:00 GMT*
-
-
-## Jennifer Lawrence
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
-
-
-## Joe Biden
-
-## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
-
-To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
-
-*Published on: Fri, 19 Jul 2024 16:57:20 GMT*
+*Published on: Sat, 20 Jul 2024 14:30:00 GMT*
 
 
 ## Joe Biden
@@ -4607,13 +4598,13 @@ Nigel Sylvester is sharing his grandmother's driveway with the world through his
 *Published on: Sat, 20 Jul 2024 13:49:00 GMT*
 
 
-## J.K. Simmons
+## Joe Biden
 
 ## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
 
 To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
 
-*Published on: Fri, 19 Jul 2024 16:57:20 GMT*
+*Published on: Sat, 20 Jul 2024 14:30:00 GMT*
 
 
 ## J.K. Simmons
@@ -4671,6 +4662,78 @@ Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has becom
 
 
 ## J.K. Simmons
+
+## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
+
+Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
+
+*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
+
+
+## J.K. Simmons
+
+## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
+
+To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
+
+*Published on: Sat, 20 Jul 2024 14:30:00 GMT*
+
+
+## Kamala Harris
+
+## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
+
+With grape power comes grape sneakers. A new Nike Book 1 has entered the chat, and it goes by "Barely Grape." I've also seen some people call the latest Book s…
+
+*Published on: Fri, 19 Jul 2024 18:39:00 GMT*
+
+
+## Kamala Harris
+
+## [Nike's Dynamic Air Max Sneakers Are Running Wild](https://www.highsnobiety.com/p/nike-air-max-dn-sneakers-2024/)
+
+The best has yet to come from Nike's Air Max Dn sneakers. Hard-launched during 2024 Air Max Day , the Air Max sneaker, loaded with new cloud-like Dynamic Air, …
+
+*Published on: Fri, 19 Jul 2024 19:56:09 GMT*
+
+
+## Kamala Harris
+
+## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
+
+Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
+
+*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
+
+
+## Kamala Harris
+
+## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
+
+adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
+
+*Published on: Sat, 20 Jul 2024 07:00:01 GMT*
+
+
+## Kamala Harris
+
+## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
+
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
+
+*Published on: Sat, 20 Jul 2024 08:38:14 GMT*
+
+
+## Kamala Harris
+
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
+
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
+
+*Published on: Sat, 20 Jul 2024 13:48:00 GMT*
+
+
+## Kamala Harris
 
 ## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
 
@@ -4685,79 +4748,7 @@ Nigel Sylvester is sharing his grandmother's driveway with the world through his
 
 To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
 
-*Published on: Fri, 19 Jul 2024 16:57:20 GMT*
-
-
-## Kamala Harris
-
-## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
-
-With grape power comes grape sneakers. A new Nike Book 1 has entered the chat, and it goes by "Barely Grape." I've also seen some people call the latest Book s…
-
-*Published on: Fri, 19 Jul 2024 18:39:00 GMT*
-
-
-## Kamala Harris
-
-## [Nike's Dynamic Air Max Sneakers Are Running Wild](https://www.highsnobiety.com/p/nike-air-max-dn-sneakers-2024/)
-
-The best has yet to come from Nike's Air Max Dn sneakers. Hard-launched during 2024 Air Max Day , the Air Max sneaker, loaded with new cloud-like Dynamic Air, …
-
-*Published on: Fri, 19 Jul 2024 19:56:09 GMT*
-
-
-## Kamala Harris
-
-## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
-
-Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
-
-*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
-
-
-## Kamala Harris
-
-## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
-
-adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
-
-*Published on: Sat, 20 Jul 2024 07:00:01 GMT*
-
-
-## Kamala Harris
-
-## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
-
-The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
-
-*Published on: Sat, 20 Jul 2024 08:38:14 GMT*
-
-
-## Kamala Harris
-
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Sat, 20 Jul 2024 13:48:00 GMT*
-
-
-## Kamala Harris
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
-
-
-## John C Reilly
-
-## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
-
-To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
-
-*Published on: Fri, 19 Jul 2024 16:57:20 GMT*
+*Published on: Sat, 20 Jul 2024 14:30:00 GMT*
 
 
 ## John C Reilly
@@ -4823,13 +4814,13 @@ Nigel Sylvester is sharing his grandmother's driveway with the world through his
 *Published on: Sat, 20 Jul 2024 13:49:00 GMT*
 
 
-## Kardashian
+## John C Reilly
 
 ## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
 
 To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
 
-*Published on: Fri, 19 Jul 2024 16:57:20 GMT*
+*Published on: Sat, 20 Jul 2024 14:30:00 GMT*
 
 
 ## Kardashian
@@ -4887,6 +4878,78 @@ Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has becom
 
 
 ## Kardashian
+
+## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
+
+Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
+
+*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
+
+
+## Kardashian
+
+## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
+
+To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
+
+*Published on: Sat, 20 Jul 2024 14:30:00 GMT*
+
+
+## Kanye
+
+## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
+
+With grape power comes grape sneakers. A new Nike Book 1 has entered the chat, and it goes by "Barely Grape." I've also seen some people call the latest Book s…
+
+*Published on: Fri, 19 Jul 2024 18:39:00 GMT*
+
+
+## Kanye
+
+## [Nike's Dynamic Air Max Sneakers Are Running Wild](https://www.highsnobiety.com/p/nike-air-max-dn-sneakers-2024/)
+
+The best has yet to come from Nike's Air Max Dn sneakers. Hard-launched during 2024 Air Max Day , the Air Max sneaker, loaded with new cloud-like Dynamic Air, …
+
+*Published on: Fri, 19 Jul 2024 19:56:09 GMT*
+
+
+## Kanye
+
+## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
+
+Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
+
+*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
+
+
+## Kanye
+
+## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
+
+adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
+
+*Published on: Sat, 20 Jul 2024 07:00:01 GMT*
+
+
+## Kanye
+
+## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
+
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
+
+*Published on: Sat, 20 Jul 2024 08:38:14 GMT*
+
+
+## Kanye
+
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
+
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
+
+*Published on: Sat, 20 Jul 2024 13:48:00 GMT*
+
+
+## Kanye
 
 ## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
 
@@ -4901,79 +4964,7 @@ Nigel Sylvester is sharing his grandmother's driveway with the world through his
 
 To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
 
-*Published on: Fri, 19 Jul 2024 16:57:20 GMT*
-
-
-## Kanye
-
-## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
-
-With grape power comes grape sneakers. A new Nike Book 1 has entered the chat, and it goes by "Barely Grape." I've also seen some people call the latest Book s…
-
-*Published on: Fri, 19 Jul 2024 18:39:00 GMT*
-
-
-## Kanye
-
-## [Nike's Dynamic Air Max Sneakers Are Running Wild](https://www.highsnobiety.com/p/nike-air-max-dn-sneakers-2024/)
-
-The best has yet to come from Nike's Air Max Dn sneakers. Hard-launched during 2024 Air Max Day , the Air Max sneaker, loaded with new cloud-like Dynamic Air, …
-
-*Published on: Fri, 19 Jul 2024 19:56:09 GMT*
-
-
-## Kanye
-
-## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
-
-Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
-
-*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
-
-
-## Kanye
-
-## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
-
-adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
-
-*Published on: Sat, 20 Jul 2024 07:00:01 GMT*
-
-
-## Kanye
-
-## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
-
-The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
-
-*Published on: Sat, 20 Jul 2024 08:38:14 GMT*
-
-
-## Kanye
-
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Sat, 20 Jul 2024 13:48:00 GMT*
-
-
-## Kanye
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
-
-
-## Zendaya
-
-## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
-
-To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
-
-*Published on: Fri, 19 Jul 2024 16:57:20 GMT*
+*Published on: Sat, 20 Jul 2024 14:30:00 GMT*
 
 
 ## Zendaya
@@ -5039,13 +5030,13 @@ Nigel Sylvester is sharing his grandmother's driveway with the world through his
 *Published on: Sat, 20 Jul 2024 13:49:00 GMT*
 
 
-## Will Ferrell
+## Zendaya
 
 ## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
 
 To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
 
-*Published on: Fri, 19 Jul 2024 16:57:20 GMT*
+*Published on: Sat, 20 Jul 2024 14:30:00 GMT*
 
 
 ## Will Ferrell
@@ -5103,6 +5094,78 @@ Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has becom
 
 
 ## Will Ferrell
+
+## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
+
+Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
+
+*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
+
+
+## Will Ferrell
+
+## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
+
+To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
+
+*Published on: Sat, 20 Jul 2024 14:30:00 GMT*
+
+
+## Zazie Beetz
+
+## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
+
+With grape power comes grape sneakers. A new Nike Book 1 has entered the chat, and it goes by "Barely Grape." I've also seen some people call the latest Book s…
+
+*Published on: Fri, 19 Jul 2024 18:39:00 GMT*
+
+
+## Zazie Beetz
+
+## [Nike's Dynamic Air Max Sneakers Are Running Wild](https://www.highsnobiety.com/p/nike-air-max-dn-sneakers-2024/)
+
+The best has yet to come from Nike's Air Max Dn sneakers. Hard-launched during 2024 Air Max Day , the Air Max sneaker, loaded with new cloud-like Dynamic Air, …
+
+*Published on: Fri, 19 Jul 2024 19:56:09 GMT*
+
+
+## Zazie Beetz
+
+## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
+
+Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
+
+*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
+
+
+## Zazie Beetz
+
+## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
+
+adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
+
+*Published on: Sat, 20 Jul 2024 07:00:01 GMT*
+
+
+## Zazie Beetz
+
+## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
+
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
+
+*Published on: Sat, 20 Jul 2024 08:38:14 GMT*
+
+
+## Zazie Beetz
+
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
+
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
+
+*Published on: Sat, 20 Jul 2024 13:48:00 GMT*
+
+
+## Zazie Beetz
 
 ## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
 
@@ -5117,79 +5180,7 @@ Nigel Sylvester is sharing his grandmother's driveway with the world through his
 
 To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
 
-*Published on: Fri, 19 Jul 2024 16:57:20 GMT*
-
-
-## Zazie Beetz
-
-## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
-
-With grape power comes grape sneakers. A new Nike Book 1 has entered the chat, and it goes by "Barely Grape." I've also seen some people call the latest Book s…
-
-*Published on: Fri, 19 Jul 2024 18:39:00 GMT*
-
-
-## Zazie Beetz
-
-## [Nike's Dynamic Air Max Sneakers Are Running Wild](https://www.highsnobiety.com/p/nike-air-max-dn-sneakers-2024/)
-
-The best has yet to come from Nike's Air Max Dn sneakers. Hard-launched during 2024 Air Max Day , the Air Max sneaker, loaded with new cloud-like Dynamic Air, …
-
-*Published on: Fri, 19 Jul 2024 19:56:09 GMT*
-
-
-## Zazie Beetz
-
-## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
-
-Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
-
-*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
-
-
-## Zazie Beetz
-
-## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
-
-adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
-
-*Published on: Sat, 20 Jul 2024 07:00:01 GMT*
-
-
-## Zazie Beetz
-
-## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
-
-The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
-
-*Published on: Sat, 20 Jul 2024 08:38:14 GMT*
-
-
-## Zazie Beetz
-
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Sat, 20 Jul 2024 13:48:00 GMT*
-
-
-## Zazie Beetz
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
-
-
-## Bob Odenkirk
-
-## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
-
-To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
-
-*Published on: Fri, 19 Jul 2024 16:57:20 GMT*
+*Published on: Sat, 20 Jul 2024 14:30:00 GMT*
 
 
 ## Bob Odenkirk
@@ -5255,13 +5246,13 @@ Nigel Sylvester is sharing his grandmother's driveway with the world through his
 *Published on: Sat, 20 Jul 2024 13:49:00 GMT*
 
 
-## Brad Pitt
+## Bob Odenkirk
 
 ## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
 
 To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
 
-*Published on: Fri, 19 Jul 2024 16:57:20 GMT*
+*Published on: Sat, 20 Jul 2024 14:30:00 GMT*
 
 
 ## Brad Pitt
@@ -5319,6 +5310,78 @@ Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has becom
 
 
 ## Brad Pitt
+
+## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
+
+Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
+
+*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
+
+
+## Brad Pitt
+
+## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
+
+To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
+
+*Published on: Sat, 20 Jul 2024 14:30:00 GMT*
+
+
+## Beyoncé
+
+## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
+
+With grape power comes grape sneakers. A new Nike Book 1 has entered the chat, and it goes by "Barely Grape." I've also seen some people call the latest Book s…
+
+*Published on: Fri, 19 Jul 2024 18:39:00 GMT*
+
+
+## Beyoncé
+
+## [Nike's Dynamic Air Max Sneakers Are Running Wild](https://www.highsnobiety.com/p/nike-air-max-dn-sneakers-2024/)
+
+The best has yet to come from Nike's Air Max Dn sneakers. Hard-launched during 2024 Air Max Day , the Air Max sneaker, loaded with new cloud-like Dynamic Air, …
+
+*Published on: Fri, 19 Jul 2024 19:56:09 GMT*
+
+
+## Beyoncé
+
+## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
+
+Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
+
+*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
+
+
+## Beyoncé
+
+## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
+
+adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
+
+*Published on: Sat, 20 Jul 2024 07:00:01 GMT*
+
+
+## Beyoncé
+
+## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
+
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
+
+*Published on: Sat, 20 Jul 2024 08:38:14 GMT*
+
+
+## Beyoncé
+
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
+
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
+
+*Published on: Sat, 20 Jul 2024 13:48:00 GMT*
+
+
+## Beyoncé
 
 ## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
 
@@ -5333,79 +5396,7 @@ Nigel Sylvester is sharing his grandmother's driveway with the world through his
 
 To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
 
-*Published on: Fri, 19 Jul 2024 16:57:20 GMT*
-
-
-## Beyoncé
-
-## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
-
-With grape power comes grape sneakers. A new Nike Book 1 has entered the chat, and it goes by "Barely Grape." I've also seen some people call the latest Book s…
-
-*Published on: Fri, 19 Jul 2024 18:39:00 GMT*
-
-
-## Beyoncé
-
-## [Nike's Dynamic Air Max Sneakers Are Running Wild](https://www.highsnobiety.com/p/nike-air-max-dn-sneakers-2024/)
-
-The best has yet to come from Nike's Air Max Dn sneakers. Hard-launched during 2024 Air Max Day , the Air Max sneaker, loaded with new cloud-like Dynamic Air, …
-
-*Published on: Fri, 19 Jul 2024 19:56:09 GMT*
-
-
-## Beyoncé
-
-## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
-
-Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
-
-*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
-
-
-## Beyoncé
-
-## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
-
-adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
-
-*Published on: Sat, 20 Jul 2024 07:00:01 GMT*
-
-
-## Beyoncé
-
-## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
-
-The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
-
-*Published on: Sat, 20 Jul 2024 08:38:14 GMT*
-
-
-## Beyoncé
-
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Sat, 20 Jul 2024 13:48:00 GMT*
-
-
-## Beyoncé
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
-
-
-## Bia
-
-## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
-
-To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
-
-*Published on: Fri, 19 Jul 2024 16:57:20 GMT*
+*Published on: Sat, 20 Jul 2024 14:30:00 GMT*
 
 
 ## Bia
@@ -5471,13 +5462,13 @@ Nigel Sylvester is sharing his grandmother's driveway with the world through his
 *Published on: Sat, 20 Jul 2024 13:49:00 GMT*
 
 
-## Avantika
+## Bia
 
 ## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
 
 To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
 
-*Published on: Fri, 19 Jul 2024 16:57:20 GMT*
+*Published on: Sat, 20 Jul 2024 14:30:00 GMT*
 
 
 ## Avantika
@@ -5535,6 +5526,78 @@ Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has becom
 
 
 ## Avantika
+
+## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
+
+Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
+
+*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
+
+
+## Avantika
+
+## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
+
+To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
+
+*Published on: Sat, 20 Jul 2024 14:30:00 GMT*
+
+
+## Bernie Sanders
+
+## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
+
+With grape power comes grape sneakers. A new Nike Book 1 has entered the chat, and it goes by "Barely Grape." I've also seen some people call the latest Book s…
+
+*Published on: Fri, 19 Jul 2024 18:39:00 GMT*
+
+
+## Bernie Sanders
+
+## [Nike's Dynamic Air Max Sneakers Are Running Wild](https://www.highsnobiety.com/p/nike-air-max-dn-sneakers-2024/)
+
+The best has yet to come from Nike's Air Max Dn sneakers. Hard-launched during 2024 Air Max Day , the Air Max sneaker, loaded with new cloud-like Dynamic Air, …
+
+*Published on: Fri, 19 Jul 2024 19:56:09 GMT*
+
+
+## Bernie Sanders
+
+## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
+
+Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
+
+*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
+
+
+## Bernie Sanders
+
+## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
+
+adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
+
+*Published on: Sat, 20 Jul 2024 07:00:01 GMT*
+
+
+## Bernie Sanders
+
+## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
+
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
+
+*Published on: Sat, 20 Jul 2024 08:38:14 GMT*
+
+
+## Bernie Sanders
+
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
+
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
+
+*Published on: Sat, 20 Jul 2024 13:48:00 GMT*
+
+
+## Bernie Sanders
 
 ## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
 
@@ -5549,79 +5612,7 @@ Nigel Sylvester is sharing his grandmother's driveway with the world through his
 
 To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
 
-*Published on: Fri, 19 Jul 2024 16:57:20 GMT*
-
-
-## Bernie Sanders
-
-## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
-
-With grape power comes grape sneakers. A new Nike Book 1 has entered the chat, and it goes by "Barely Grape." I've also seen some people call the latest Book s…
-
-*Published on: Fri, 19 Jul 2024 18:39:00 GMT*
-
-
-## Bernie Sanders
-
-## [Nike's Dynamic Air Max Sneakers Are Running Wild](https://www.highsnobiety.com/p/nike-air-max-dn-sneakers-2024/)
-
-The best has yet to come from Nike's Air Max Dn sneakers. Hard-launched during 2024 Air Max Day , the Air Max sneaker, loaded with new cloud-like Dynamic Air, …
-
-*Published on: Fri, 19 Jul 2024 19:56:09 GMT*
-
-
-## Bernie Sanders
-
-## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
-
-Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
-
-*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
-
-
-## Bernie Sanders
-
-## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
-
-adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
-
-*Published on: Sat, 20 Jul 2024 07:00:01 GMT*
-
-
-## Bernie Sanders
-
-## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
-
-The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
-
-*Published on: Sat, 20 Jul 2024 08:38:14 GMT*
-
-
-## Bernie Sanders
-
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Sat, 20 Jul 2024 13:48:00 GMT*
-
-
-## Bernie Sanders
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
-
-
-## Big Sean
-
-## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
-
-To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
-
-*Published on: Fri, 19 Jul 2024 16:57:20 GMT*
+*Published on: Sat, 20 Jul 2024 14:30:00 GMT*
 
 
 ## Big Sean
@@ -5687,13 +5678,13 @@ Nigel Sylvester is sharing his grandmother's driveway with the world through his
 *Published on: Sat, 20 Jul 2024 13:49:00 GMT*
 
 
-## BlockBoy JB
+## Big Sean
 
 ## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
 
 To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
 
-*Published on: Fri, 19 Jul 2024 16:57:20 GMT*
+*Published on: Sat, 20 Jul 2024 14:30:00 GMT*
 
 
 ## BlockBoy JB
@@ -5751,6 +5742,78 @@ Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has becom
 
 
 ## BlockBoy JB
+
+## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
+
+Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
+
+*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
+
+
+## BlockBoy JB
+
+## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
+
+To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
+
+*Published on: Sat, 20 Jul 2024 14:30:00 GMT*
+
+
+## Biden
+
+## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
+
+With grape power comes grape sneakers. A new Nike Book 1 has entered the chat, and it goes by "Barely Grape." I've also seen some people call the latest Book s…
+
+*Published on: Fri, 19 Jul 2024 18:39:00 GMT*
+
+
+## Biden
+
+## [Nike's Dynamic Air Max Sneakers Are Running Wild](https://www.highsnobiety.com/p/nike-air-max-dn-sneakers-2024/)
+
+The best has yet to come from Nike's Air Max Dn sneakers. Hard-launched during 2024 Air Max Day , the Air Max sneaker, loaded with new cloud-like Dynamic Air, …
+
+*Published on: Fri, 19 Jul 2024 19:56:09 GMT*
+
+
+## Biden
+
+## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
+
+Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
+
+*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
+
+
+## Biden
+
+## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
+
+adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
+
+*Published on: Sat, 20 Jul 2024 07:00:01 GMT*
+
+
+## Biden
+
+## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
+
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
+
+*Published on: Sat, 20 Jul 2024 08:38:14 GMT*
+
+
+## Biden
+
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
+
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
+
+*Published on: Sat, 20 Jul 2024 13:48:00 GMT*
+
+
+## Biden
 
 ## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
 
@@ -5765,79 +5828,7 @@ Nigel Sylvester is sharing his grandmother's driveway with the world through his
 
 To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
 
-*Published on: Fri, 19 Jul 2024 16:57:20 GMT*
-
-
-## Biden
-
-## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
-
-With grape power comes grape sneakers. A new Nike Book 1 has entered the chat, and it goes by "Barely Grape." I've also seen some people call the latest Book s…
-
-*Published on: Fri, 19 Jul 2024 18:39:00 GMT*
-
-
-## Biden
-
-## [Nike's Dynamic Air Max Sneakers Are Running Wild](https://www.highsnobiety.com/p/nike-air-max-dn-sneakers-2024/)
-
-The best has yet to come from Nike's Air Max Dn sneakers. Hard-launched during 2024 Air Max Day , the Air Max sneaker, loaded with new cloud-like Dynamic Air, …
-
-*Published on: Fri, 19 Jul 2024 19:56:09 GMT*
-
-
-## Biden
-
-## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
-
-Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
-
-*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
-
-
-## Biden
-
-## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
-
-adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
-
-*Published on: Sat, 20 Jul 2024 07:00:01 GMT*
-
-
-## Biden
-
-## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
-
-The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
-
-*Published on: Sat, 20 Jul 2024 08:38:14 GMT*
-
-
-## Biden
-
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Sat, 20 Jul 2024 13:48:00 GMT*
-
-
-## Biden
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
-
-
-## Bieber
-
-## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
-
-To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
-
-*Published on: Fri, 19 Jul 2024 16:57:20 GMT*
+*Published on: Sat, 20 Jul 2024 14:30:00 GMT*
 
 
 ## Bieber
@@ -5903,13 +5894,13 @@ Nigel Sylvester is sharing his grandmother's driveway with the world through his
 *Published on: Sat, 20 Jul 2024 13:49:00 GMT*
 
 
-## Paulina Porizkov
+## Bieber
 
 ## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
 
 To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
 
-*Published on: Fri, 19 Jul 2024 16:57:20 GMT*
+*Published on: Sat, 20 Jul 2024 14:30:00 GMT*
 
 
 ## Paulina Porizkov
@@ -5967,6 +5958,78 @@ Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has becom
 
 
 ## Paulina Porizkov
+
+## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
+
+Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
+
+*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
+
+
+## Paulina Porizkov
+
+## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
+
+To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
+
+*Published on: Sat, 20 Jul 2024 14:30:00 GMT*
+
+
+## Paris Hilton
+
+## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
+
+With grape power comes grape sneakers. A new Nike Book 1 has entered the chat, and it goes by "Barely Grape." I've also seen some people call the latest Book s…
+
+*Published on: Fri, 19 Jul 2024 18:39:00 GMT*
+
+
+## Paris Hilton
+
+## [Nike's Dynamic Air Max Sneakers Are Running Wild](https://www.highsnobiety.com/p/nike-air-max-dn-sneakers-2024/)
+
+The best has yet to come from Nike's Air Max Dn sneakers. Hard-launched during 2024 Air Max Day , the Air Max sneaker, loaded with new cloud-like Dynamic Air, …
+
+*Published on: Fri, 19 Jul 2024 19:56:09 GMT*
+
+
+## Paris Hilton
+
+## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
+
+Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
+
+*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
+
+
+## Paris Hilton
+
+## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
+
+adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
+
+*Published on: Sat, 20 Jul 2024 07:00:01 GMT*
+
+
+## Paris Hilton
+
+## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
+
+The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
+
+*Published on: Sat, 20 Jul 2024 08:38:14 GMT*
+
+
+## Paris Hilton
+
+## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
+
+Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
+
+*Published on: Sat, 20 Jul 2024 13:48:00 GMT*
+
+
+## Paris Hilton
 
 ## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
 
@@ -5981,79 +6044,7 @@ Nigel Sylvester is sharing his grandmother's driveway with the world through his
 
 To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
 
-*Published on: Fri, 19 Jul 2024 16:57:20 GMT*
-
-
-## Paris Hilton
-
-## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
-
-With grape power comes grape sneakers. A new Nike Book 1 has entered the chat, and it goes by "Barely Grape." I've also seen some people call the latest Book s…
-
-*Published on: Fri, 19 Jul 2024 18:39:00 GMT*
-
-
-## Paris Hilton
-
-## [Nike's Dynamic Air Max Sneakers Are Running Wild](https://www.highsnobiety.com/p/nike-air-max-dn-sneakers-2024/)
-
-The best has yet to come from Nike's Air Max Dn sneakers. Hard-launched during 2024 Air Max Day , the Air Max sneaker, loaded with new cloud-like Dynamic Air, …
-
-*Published on: Fri, 19 Jul 2024 19:56:09 GMT*
-
-
-## Paris Hilton
-
-## [Nike's Incredible Breakdancing Shoe Breaks Into the Sneaker Game](https://www.highsnobiety.com/p/nike-jam-breakdancing-shoes-2024-where-to-buy/)
-
-Nike's first-ever breakdancing shoe is here to jam. It's also called the Nike Jam , in case you missed that "breaking" news (whew, I'm on a roll here).Anyway, …
-
-*Published on: Fri, 19 Jul 2024 21:08:24 GMT*
-
-
-## Paris Hilton
-
-## [adidas' Anthony Edwards Basketball Shoe Just Got a Makeover ](https://www.highsnobiety.com/p/adidas-ae1-ascent-low-mid-version-release/)
-
-adidas ' seize of the basketball footwear market has been nothing short of impressive . Especially their highly successful AE 1 collaboration with legend in th…
-
-*Published on: Sat, 20 Jul 2024 07:00:01 GMT*
-
-
-## Paris Hilton
-
-## [ASICS’ New Collaboration Has Big, Bold Branding](https://www.highsnobiety.com/p/asics-the-museum-visitor-release-date/)
-
-The ASICS GEL-KAYANO 14, an old-school running shoe regularly the focus of fashionable collaborations , has become the latest in a series of sneakers to cover …
-
-*Published on: Sat, 20 Jul 2024 08:38:14 GMT*
-
-
-## Paris Hilton
-
-## [The Jordan 4 "Skate Shoes" Can't Stop Looking Good ](https://www.highsnobiety.com/p/jordan-4-rm-sneaker-2024/)
-
-Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
-
-*Published on: Sat, 20 Jul 2024 13:48:00 GMT*
-
-
-## Paris Hilton
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
-
-
-## Metro Boomin
-
-## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
-
-To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
-
-*Published on: Fri, 19 Jul 2024 16:57:20 GMT*
+*Published on: Sat, 20 Jul 2024 14:30:00 GMT*
 
 
 ## Metro Boomin
@@ -6119,13 +6110,13 @@ Nigel Sylvester is sharing his grandmother's driveway with the world through his
 *Published on: Sat, 20 Jul 2024 13:49:00 GMT*
 
 
-## Meghan Markle
+## Metro Boomin
 
 ## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
 
 To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
 
-*Published on: Fri, 19 Jul 2024 16:57:20 GMT*
+*Published on: Sat, 20 Jul 2024 14:30:00 GMT*
 
 
 ## Meghan Markle
@@ -6191,13 +6182,13 @@ Nigel Sylvester is sharing his grandmother's driveway with the world through his
 *Published on: Sat, 20 Jul 2024 13:49:00 GMT*
 
 
-## Megan Thee Stallion
+## Meghan Markle
 
 ## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
 
 To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
 
-*Published on: Fri, 19 Jul 2024 16:57:20 GMT*
+*Published on: Sat, 20 Jul 2024 14:30:00 GMT*
 
 
 ## Megan Thee Stallion
@@ -6263,13 +6254,13 @@ Nigel Sylvester is sharing his grandmother's driveway with the world through his
 *Published on: Sat, 20 Jul 2024 13:49:00 GMT*
 
 
-## Maya Rudolph
+## Megan Thee Stallion
 
 ## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
 
 To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
 
-*Published on: Fri, 19 Jul 2024 16:57:20 GMT*
+*Published on: Sat, 20 Jul 2024 14:30:00 GMT*
 
 
 ## Maya Rudolph
@@ -6335,13 +6326,13 @@ Nigel Sylvester is sharing his grandmother's driveway with the world through his
 *Published on: Sat, 20 Jul 2024 13:49:00 GMT*
 
 
-## Olivia Rodrigo
+## Maya Rudolph
 
 ## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
 
 To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
 
-*Published on: Fri, 19 Jul 2024 16:57:20 GMT*
+*Published on: Sat, 20 Jul 2024 14:30:00 GMT*
 
 
 ## Olivia Rodrigo
@@ -6407,13 +6398,13 @@ Nigel Sylvester is sharing his grandmother's driveway with the world through his
 *Published on: Sat, 20 Jul 2024 13:49:00 GMT*
 
 
-## Obama
+## Olivia Rodrigo
 
 ## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
 
 To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
 
-*Published on: Fri, 19 Jul 2024 16:57:20 GMT*
+*Published on: Sat, 20 Jul 2024 14:30:00 GMT*
 
 
 ## Obama
@@ -6479,13 +6470,13 @@ Nigel Sylvester is sharing his grandmother's driveway with the world through his
 *Published on: Sat, 20 Jul 2024 13:49:00 GMT*
 
 
-## Nicki Minaj
+## Obama
 
 ## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
 
 To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
 
-*Published on: Fri, 19 Jul 2024 16:57:20 GMT*
+*Published on: Sat, 20 Jul 2024 14:30:00 GMT*
 
 
 ## Nicki Minaj
@@ -6551,13 +6542,13 @@ Nigel Sylvester is sharing his grandmother's driveway with the world through his
 *Published on: Sat, 20 Jul 2024 13:49:00 GMT*
 
 
-## MrBeast
+## Nicki Minaj
 
 ## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
 
 To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
 
-*Published on: Fri, 19 Jul 2024 16:57:20 GMT*
+*Published on: Sat, 20 Jul 2024 14:30:00 GMT*
 
 
 ## MrBeast
@@ -6621,5 +6612,14 @@ Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has becom
 Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
 
 *Published on: Sat, 20 Jul 2024 13:49:00 GMT*
+
+
+## MrBeast
+
+## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
+
+To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
+
+*Published on: Sat, 20 Jul 2024 14:30:00 GMT*
 
 
