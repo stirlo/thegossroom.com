@@ -71,6 +71,15 @@ To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration
 *Published on: Sat, 20 Jul 2024 14:30:00 GMT*
 
 
+## Tim Cook
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Sat, 20 Jul 2024 14:31:00 GMT*
+
+
 ## Taylor Swift
 
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
@@ -141,6 +150,15 @@ Nigel Sylvester is sharing his grandmother's driveway with the world through his
 To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
 
 *Published on: Sat, 20 Jul 2024 14:30:00 GMT*
+
+
+## Taylor Swift
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Sat, 20 Jul 2024 14:31:00 GMT*
 
 
 ## Tom Brady
@@ -215,6 +233,15 @@ To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration
 *Published on: Sat, 20 Jul 2024 14:30:00 GMT*
 
 
+## Tom Brady
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Sat, 20 Jul 2024 14:31:00 GMT*
+
+
 ## Tina Fey
 
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
@@ -285,6 +312,15 @@ Nigel Sylvester is sharing his grandmother's driveway with the world through his
 To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
 
 *Published on: Sat, 20 Jul 2024 14:30:00 GMT*
+
+
+## Tina Fey
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Sat, 20 Jul 2024 14:31:00 GMT*
 
 
 ## Steven Yuen
@@ -359,6 +395,15 @@ To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration
 *Published on: Sat, 20 Jul 2024 14:30:00 GMT*
 
 
+## Steven Yuen
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Sat, 20 Jul 2024 14:31:00 GMT*
+
+
 ## Sommer Ray
 
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
@@ -429,6 +474,15 @@ Nigel Sylvester is sharing his grandmother's driveway with the world through his
 To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
 
 *Published on: Sat, 20 Jul 2024 14:30:00 GMT*
+
+
+## Sommer Ray
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Sat, 20 Jul 2024 14:31:00 GMT*
 
 
 ## Sza
@@ -503,6 +557,15 @@ To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration
 *Published on: Sat, 20 Jul 2024 14:30:00 GMT*
 
 
+## Sza
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Sat, 20 Jul 2024 14:31:00 GMT*
+
+
 ## Sydney Sweeney
 
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
@@ -573,6 +636,15 @@ Nigel Sylvester is sharing his grandmother's driveway with the world through his
 To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
 
 *Published on: Sat, 20 Jul 2024 14:30:00 GMT*
+
+
+## Sydney Sweeney
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Sat, 20 Jul 2024 14:31:00 GMT*
 
 
 ## Walton Goggins
@@ -647,6 +719,15 @@ To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration
 *Published on: Sat, 20 Jul 2024 14:30:00 GMT*
 
 
+## Walton Goggins
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Sat, 20 Jul 2024 14:31:00 GMT*
+
+
 ## Tom Holland
 
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
@@ -717,6 +798,15 @@ Nigel Sylvester is sharing his grandmother's driveway with the world through his
 To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
 
 *Published on: Sat, 20 Jul 2024 14:30:00 GMT*
+
+
+## Tom Holland
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Sat, 20 Jul 2024 14:31:00 GMT*
 
 
 ## Gucci Mane
@@ -791,6 +881,15 @@ To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration
 *Published on: Sat, 20 Jul 2024 14:30:00 GMT*
 
 
+## Gucci Mane
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Sat, 20 Jul 2024 14:31:00 GMT*
+
+
 ## Harry Styles
 
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
@@ -861,6 +960,15 @@ Nigel Sylvester is sharing his grandmother's driveway with the world through his
 To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
 
 *Published on: Sat, 20 Jul 2024 14:30:00 GMT*
+
+
+## Harry Styles
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Sat, 20 Jul 2024 14:31:00 GMT*
 
 
 ## Jake Paul
@@ -935,6 +1043,15 @@ To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration
 *Published on: Sat, 20 Jul 2024 14:30:00 GMT*
 
 
+## Jake Paul
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Sat, 20 Jul 2024 14:31:00 GMT*
+
+
 ## Jameela Jamil
 
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
@@ -1005,6 +1122,15 @@ Nigel Sylvester is sharing his grandmother's driveway with the world through his
 To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
 
 *Published on: Sat, 20 Jul 2024 14:30:00 GMT*
+
+
+## Jameela Jamil
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Sat, 20 Jul 2024 14:31:00 GMT*
 
 
 ## Elon Musk
@@ -1079,6 +1205,15 @@ To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration
 *Published on: Sat, 20 Jul 2024 14:30:00 GMT*
 
 
+## Elon Musk
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Sat, 20 Jul 2024 14:31:00 GMT*
+
+
 ## Gabrielle Union
 
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
@@ -1149,6 +1284,15 @@ Nigel Sylvester is sharing his grandmother's driveway with the world through his
 To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
 
 *Published on: Sat, 20 Jul 2024 14:30:00 GMT*
+
+
+## Gabrielle Union
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Sat, 20 Jul 2024 14:31:00 GMT*
 
 
 ## Giancarlo Esposito
@@ -1223,6 +1367,15 @@ To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration
 *Published on: Sat, 20 Jul 2024 14:30:00 GMT*
 
 
+## Giancarlo Esposito
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Sat, 20 Jul 2024 14:31:00 GMT*
+
+
 ## Gillian Jacobs
 
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
@@ -1293,6 +1446,15 @@ Nigel Sylvester is sharing his grandmother's driveway with the world through his
 To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
 
 *Published on: Sat, 20 Jul 2024 14:30:00 GMT*
+
+
+## Gillian Jacobs
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Sat, 20 Jul 2024 14:31:00 GMT*
 
 
 ## Jason Mantzoukas
@@ -1367,6 +1529,15 @@ To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration
 *Published on: Sat, 20 Jul 2024 14:30:00 GMT*
 
 
+## Jason Mantzoukas
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Sat, 20 Jul 2024 14:31:00 GMT*
+
+
 ## JB Smoove
 
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
@@ -1437,6 +1608,15 @@ Nigel Sylvester is sharing his grandmother's driveway with the world through his
 To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
 
 *Published on: Sat, 20 Jul 2024 14:30:00 GMT*
+
+
+## JB Smoove
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Sat, 20 Jul 2024 14:31:00 GMT*
 
 
 ## Madison Pettis
@@ -1511,6 +1691,15 @@ To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration
 *Published on: Sat, 20 Jul 2024 14:30:00 GMT*
 
 
+## Madison Pettis
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Sat, 20 Jul 2024 14:31:00 GMT*
+
+
 ## Austin Butler
 
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
@@ -1581,6 +1770,15 @@ Nigel Sylvester is sharing his grandmother's driveway with the world through his
 To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
 
 *Published on: Sat, 20 Jul 2024 14:30:00 GMT*
+
+
+## Austin Butler
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Sat, 20 Jul 2024 14:31:00 GMT*
 
 
 ## Mark Zuckerberg
@@ -1655,6 +1853,15 @@ To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration
 *Published on: Sat, 20 Jul 2024 14:30:00 GMT*
 
 
+## Mark Zuckerberg
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Sat, 20 Jul 2024 14:31:00 GMT*
+
+
 ## Ariana Grande
 
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
@@ -1725,6 +1932,15 @@ Nigel Sylvester is sharing his grandmother's driveway with the world through his
 To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
 
 *Published on: Sat, 20 Jul 2024 14:30:00 GMT*
+
+
+## Ariana Grande
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Sat, 20 Jul 2024 14:31:00 GMT*
 
 
 ## Livvy Dunne
@@ -1799,6 +2015,15 @@ To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration
 *Published on: Sat, 20 Jul 2024 14:30:00 GMT*
 
 
+## Livvy Dunne
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Sat, 20 Jul 2024 14:31:00 GMT*
+
+
 ## Ali Wong
 
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
@@ -1869,6 +2094,15 @@ Nigel Sylvester is sharing his grandmother's driveway with the world through his
 To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
 
 *Published on: Sat, 20 Jul 2024 14:30:00 GMT*
+
+
+## Ali Wong
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Sat, 20 Jul 2024 14:31:00 GMT*
 
 
 ## Lizzo
@@ -1943,6 +2177,15 @@ To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration
 *Published on: Sat, 20 Jul 2024 14:30:00 GMT*
 
 
+## Lizzo
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Sat, 20 Jul 2024 14:31:00 GMT*
+
+
 ## Alison Brie
 
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
@@ -2013,6 +2256,15 @@ Nigel Sylvester is sharing his grandmother's driveway with the world through his
 To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
 
 *Published on: Sat, 20 Jul 2024 14:30:00 GMT*
+
+
+## Alison Brie
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Sat, 20 Jul 2024 14:31:00 GMT*
 
 
 ## Lil Wayne
@@ -2087,6 +2339,15 @@ To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration
 *Published on: Sat, 20 Jul 2024 14:30:00 GMT*
 
 
+## Lil Wayne
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Sat, 20 Jul 2024 14:31:00 GMT*
+
+
 ## Adele
 
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
@@ -2157,6 +2418,15 @@ Nigel Sylvester is sharing his grandmother's driveway with the world through his
 To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
 
 *Published on: Sat, 20 Jul 2024 14:30:00 GMT*
+
+
+## Adele
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Sat, 20 Jul 2024 14:31:00 GMT*
 
 
 ## Lindsay Lohan
@@ -2231,6 +2501,15 @@ To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration
 *Published on: Sat, 20 Jul 2024 14:30:00 GMT*
 
 
+## Lindsay Lohan
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Sat, 20 Jul 2024 14:31:00 GMT*
+
+
 ## Addison Rae
 
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
@@ -2301,6 +2580,15 @@ Nigel Sylvester is sharing his grandmother's driveway with the world through his
 To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
 
 *Published on: Sat, 20 Jul 2024 14:30:00 GMT*
+
+
+## Addison Rae
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Sat, 20 Jul 2024 14:31:00 GMT*
 
 
 ## Latto
@@ -2375,6 +2663,15 @@ To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration
 *Published on: Sat, 20 Jul 2024 14:30:00 GMT*
 
 
+## Latto
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Sat, 20 Jul 2024 14:31:00 GMT*
+
+
 ## Aaron Paul
 
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
@@ -2445,6 +2742,15 @@ Nigel Sylvester is sharing his grandmother's driveway with the world through his
 To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
 
 *Published on: Sat, 20 Jul 2024 14:30:00 GMT*
+
+
+## Aaron Paul
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Sat, 20 Jul 2024 14:31:00 GMT*
 
 
 ## LeBron James
@@ -2519,6 +2825,15 @@ To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration
 *Published on: Sat, 20 Jul 2024 14:30:00 GMT*
 
 
+## LeBron James
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Sat, 20 Jul 2024 14:31:00 GMT*
+
+
 ## 50 Cent
 
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
@@ -2589,6 +2904,15 @@ Nigel Sylvester is sharing his grandmother's driveway with the world through his
 To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
 
 *Published on: Sat, 20 Jul 2024 14:30:00 GMT*
+
+
+## 50 Cent
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Sat, 20 Jul 2024 14:31:00 GMT*
 
 
 ## Kesha
@@ -2663,6 +2987,15 @@ To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration
 *Published on: Sat, 20 Jul 2024 14:30:00 GMT*
 
 
+## Kesha
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Sat, 20 Jul 2024 14:31:00 GMT*
+
+
 ## 21 Savage
 
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
@@ -2733,6 +3066,15 @@ Nigel Sylvester is sharing his grandmother's driveway with the world through his
 To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
 
 *Published on: Sat, 20 Jul 2024 14:30:00 GMT*
+
+
+## 21 Savage
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Sat, 20 Jul 2024 14:31:00 GMT*
 
 
 ## Larry David
@@ -2807,6 +3149,15 @@ To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration
 *Published on: Sat, 20 Jul 2024 14:30:00 GMT*
 
 
+## Larry David
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Sat, 20 Jul 2024 14:31:00 GMT*
+
+
 ## Seth Rogan
 
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
@@ -2877,6 +3228,15 @@ Nigel Sylvester is sharing his grandmother's driveway with the world through his
 To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
 
 *Published on: Sat, 20 Jul 2024 14:30:00 GMT*
+
+
+## Seth Rogan
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Sat, 20 Jul 2024 14:31:00 GMT*
 
 
 ## Simone Biles
@@ -2951,6 +3311,15 @@ To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration
 *Published on: Sat, 20 Jul 2024 14:30:00 GMT*
 
 
+## Simone Biles
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Sat, 20 Jul 2024 14:31:00 GMT*
+
+
 ## Pete Davidson
 
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
@@ -3021,6 +3390,15 @@ Nigel Sylvester is sharing his grandmother's driveway with the world through his
 To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
 
 *Published on: Sat, 20 Jul 2024 14:30:00 GMT*
+
+
+## Pete Davidson
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Sat, 20 Jul 2024 14:31:00 GMT*
 
 
 ## Prince Harry
@@ -3095,6 +3473,15 @@ To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration
 *Published on: Sat, 20 Jul 2024 14:30:00 GMT*
 
 
+## Prince Harry
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Sat, 20 Jul 2024 14:31:00 GMT*
+
+
 ## Princess of Wales
 
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
@@ -3165,6 +3552,15 @@ Nigel Sylvester is sharing his grandmother's driveway with the world through his
 To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
 
 *Published on: Sat, 20 Jul 2024 14:30:00 GMT*
+
+
+## Princess of Wales
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Sat, 20 Jul 2024 14:31:00 GMT*
 
 
 ## Rachel McAdams
@@ -3239,6 +3635,15 @@ To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration
 *Published on: Sat, 20 Jul 2024 14:30:00 GMT*
 
 
+## Rachel McAdams
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Sat, 20 Jul 2024 14:31:00 GMT*
+
+
 ## Reneé Rapp
 
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
@@ -3309,6 +3714,15 @@ Nigel Sylvester is sharing his grandmother's driveway with the world through his
 To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
 
 *Published on: Sat, 20 Jul 2024 14:30:00 GMT*
+
+
+## Reneé Rapp
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Sat, 20 Jul 2024 14:31:00 GMT*
 
 
 ## Rick Ross
@@ -3383,6 +3797,15 @@ To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration
 *Published on: Sat, 20 Jul 2024 14:30:00 GMT*
 
 
+## Rick Ross
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Sat, 20 Jul 2024 14:31:00 GMT*
+
+
 ## Sam Ashgari
 
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
@@ -3453,6 +3876,15 @@ Nigel Sylvester is sharing his grandmother's driveway with the world through his
 To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
 
 *Published on: Sat, 20 Jul 2024 14:30:00 GMT*
+
+
+## Sam Ashgari
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Sat, 20 Jul 2024 14:31:00 GMT*
 
 
 ## Sandra Oh
@@ -3527,6 +3959,15 @@ To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration
 *Published on: Sat, 20 Jul 2024 14:30:00 GMT*
 
 
+## Sandra Oh
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Sat, 20 Jul 2024 14:31:00 GMT*
+
+
 ## Donald Trump
 
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
@@ -3597,6 +4038,15 @@ Nigel Sylvester is sharing his grandmother's driveway with the world through his
 To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
 
 *Published on: Sat, 20 Jul 2024 14:30:00 GMT*
+
+
+## Donald Trump
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Sat, 20 Jul 2024 14:31:00 GMT*
 
 
 ## Diddy
@@ -3671,6 +4121,15 @@ To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration
 *Published on: Sat, 20 Jul 2024 14:30:00 GMT*
 
 
+## Diddy
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Sat, 20 Jul 2024 14:31:00 GMT*
+
+
 ## City Girls
 
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
@@ -3741,6 +4200,15 @@ Nigel Sylvester is sharing his grandmother's driveway with the world through his
 To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
 
 *Published on: Sat, 20 Jul 2024 14:30:00 GMT*
+
+
+## City Girls
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Sat, 20 Jul 2024 14:31:00 GMT*
 
 
 ## Chloe Bailey
@@ -3815,6 +4283,15 @@ To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration
 *Published on: Sat, 20 Jul 2024 14:30:00 GMT*
 
 
+## Chloe Bailey
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Sat, 20 Jul 2024 14:31:00 GMT*
+
+
 ## Charli D Amelio
 
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
@@ -3885,6 +4362,15 @@ Nigel Sylvester is sharing his grandmother's driveway with the world through his
 To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
 
 *Published on: Sat, 20 Jul 2024 14:30:00 GMT*
+
+
+## Charli D Amelio
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Sat, 20 Jul 2024 14:31:00 GMT*
 
 
 ## Cardi B
@@ -3959,6 +4445,15 @@ To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration
 *Published on: Sat, 20 Jul 2024 14:30:00 GMT*
 
 
+## Cardi B
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Sat, 20 Jul 2024 14:31:00 GMT*
+
+
 ## Bryan Cranston
 
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
@@ -4029,6 +4524,15 @@ Nigel Sylvester is sharing his grandmother's driveway with the world through his
 To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
 
 *Published on: Sat, 20 Jul 2024 14:30:00 GMT*
+
+
+## Bryan Cranston
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Sat, 20 Jul 2024 14:31:00 GMT*
 
 
 ## Brielle Biermann
@@ -4103,6 +4607,15 @@ To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration
 *Published on: Sat, 20 Jul 2024 14:30:00 GMT*
 
 
+## Brielle Biermann
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Sat, 20 Jul 2024 14:31:00 GMT*
+
+
 ## Dua Lipa
 
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
@@ -4173,6 +4686,15 @@ Nigel Sylvester is sharing his grandmother's driveway with the world through his
 To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
 
 *Published on: Sat, 20 Jul 2024 14:30:00 GMT*
+
+
+## Dua Lipa
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Sat, 20 Jul 2024 14:31:00 GMT*
 
 
 ## Drake
@@ -4247,6 +4769,15 @@ To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration
 *Published on: Sat, 20 Jul 2024 14:30:00 GMT*
 
 
+## Drake
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Sat, 20 Jul 2024 14:31:00 GMT*
+
+
 ## Jenner
 
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
@@ -4317,6 +4848,15 @@ Nigel Sylvester is sharing his grandmother's driveway with the world through his
 To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
 
 *Published on: Sat, 20 Jul 2024 14:30:00 GMT*
+
+
+## Jenner
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Sat, 20 Jul 2024 14:31:00 GMT*
 
 
 ## J. Cole
@@ -4391,6 +4931,15 @@ To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration
 *Published on: Sat, 20 Jul 2024 14:30:00 GMT*
 
 
+## J. Cole
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Sat, 20 Jul 2024 14:31:00 GMT*
+
+
 ## Jerrod Carmichael
 
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
@@ -4461,6 +5010,15 @@ Nigel Sylvester is sharing his grandmother's driveway with the world through his
 To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
 
 *Published on: Sat, 20 Jul 2024 14:30:00 GMT*
+
+
+## Jerrod Carmichael
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Sat, 20 Jul 2024 14:31:00 GMT*
 
 
 ## Jennifer Lawrence
@@ -4535,6 +5093,15 @@ To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration
 *Published on: Sat, 20 Jul 2024 14:30:00 GMT*
 
 
+## Jennifer Lawrence
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Sat, 20 Jul 2024 14:31:00 GMT*
+
+
 ## Joe Biden
 
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
@@ -4605,6 +5172,15 @@ Nigel Sylvester is sharing his grandmother's driveway with the world through his
 To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
 
 *Published on: Sat, 20 Jul 2024 14:30:00 GMT*
+
+
+## Joe Biden
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Sat, 20 Jul 2024 14:31:00 GMT*
 
 
 ## J.K. Simmons
@@ -4679,6 +5255,15 @@ To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration
 *Published on: Sat, 20 Jul 2024 14:30:00 GMT*
 
 
+## J.K. Simmons
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Sat, 20 Jul 2024 14:31:00 GMT*
+
+
 ## Kamala Harris
 
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
@@ -4749,6 +5334,15 @@ Nigel Sylvester is sharing his grandmother's driveway with the world through his
 To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
 
 *Published on: Sat, 20 Jul 2024 14:30:00 GMT*
+
+
+## Kamala Harris
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Sat, 20 Jul 2024 14:31:00 GMT*
 
 
 ## John C Reilly
@@ -4823,6 +5417,15 @@ To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration
 *Published on: Sat, 20 Jul 2024 14:30:00 GMT*
 
 
+## John C Reilly
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Sat, 20 Jul 2024 14:31:00 GMT*
+
+
 ## Kardashian
 
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
@@ -4893,6 +5496,15 @@ Nigel Sylvester is sharing his grandmother's driveway with the world through his
 To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
 
 *Published on: Sat, 20 Jul 2024 14:30:00 GMT*
+
+
+## Kardashian
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Sat, 20 Jul 2024 14:31:00 GMT*
 
 
 ## Kanye
@@ -4967,6 +5579,15 @@ To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration
 *Published on: Sat, 20 Jul 2024 14:30:00 GMT*
 
 
+## Kanye
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Sat, 20 Jul 2024 14:31:00 GMT*
+
+
 ## Zendaya
 
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
@@ -5037,6 +5658,15 @@ Nigel Sylvester is sharing his grandmother's driveway with the world through his
 To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
 
 *Published on: Sat, 20 Jul 2024 14:30:00 GMT*
+
+
+## Zendaya
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Sat, 20 Jul 2024 14:31:00 GMT*
 
 
 ## Will Ferrell
@@ -5111,6 +5741,15 @@ To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration
 *Published on: Sat, 20 Jul 2024 14:30:00 GMT*
 
 
+## Will Ferrell
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Sat, 20 Jul 2024 14:31:00 GMT*
+
+
 ## Zazie Beetz
 
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
@@ -5181,6 +5820,15 @@ Nigel Sylvester is sharing his grandmother's driveway with the world through his
 To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
 
 *Published on: Sat, 20 Jul 2024 14:30:00 GMT*
+
+
+## Zazie Beetz
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Sat, 20 Jul 2024 14:31:00 GMT*
 
 
 ## Bob Odenkirk
@@ -5255,6 +5903,15 @@ To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration
 *Published on: Sat, 20 Jul 2024 14:30:00 GMT*
 
 
+## Bob Odenkirk
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Sat, 20 Jul 2024 14:31:00 GMT*
+
+
 ## Brad Pitt
 
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
@@ -5325,6 +5982,15 @@ Nigel Sylvester is sharing his grandmother's driveway with the world through his
 To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
 
 *Published on: Sat, 20 Jul 2024 14:30:00 GMT*
+
+
+## Brad Pitt
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Sat, 20 Jul 2024 14:31:00 GMT*
 
 
 ## Beyoncé
@@ -5399,6 +6065,15 @@ To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration
 *Published on: Sat, 20 Jul 2024 14:30:00 GMT*
 
 
+## Beyoncé
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Sat, 20 Jul 2024 14:31:00 GMT*
+
+
 ## Bia
 
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
@@ -5469,6 +6144,15 @@ Nigel Sylvester is sharing his grandmother's driveway with the world through his
 To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
 
 *Published on: Sat, 20 Jul 2024 14:30:00 GMT*
+
+
+## Bia
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Sat, 20 Jul 2024 14:31:00 GMT*
 
 
 ## Avantika
@@ -5543,6 +6227,15 @@ To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration
 *Published on: Sat, 20 Jul 2024 14:30:00 GMT*
 
 
+## Avantika
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Sat, 20 Jul 2024 14:31:00 GMT*
+
+
 ## Bernie Sanders
 
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
@@ -5613,6 +6306,15 @@ Nigel Sylvester is sharing his grandmother's driveway with the world through his
 To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
 
 *Published on: Sat, 20 Jul 2024 14:30:00 GMT*
+
+
+## Bernie Sanders
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Sat, 20 Jul 2024 14:31:00 GMT*
 
 
 ## Big Sean
@@ -5687,6 +6389,15 @@ To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration
 *Published on: Sat, 20 Jul 2024 14:30:00 GMT*
 
 
+## Big Sean
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Sat, 20 Jul 2024 14:31:00 GMT*
+
+
 ## BlockBoy JB
 
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
@@ -5757,6 +6468,15 @@ Nigel Sylvester is sharing his grandmother's driveway with the world through his
 To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
 
 *Published on: Sat, 20 Jul 2024 14:30:00 GMT*
+
+
+## BlockBoy JB
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Sat, 20 Jul 2024 14:31:00 GMT*
 
 
 ## Biden
@@ -5831,6 +6551,15 @@ To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration
 *Published on: Sat, 20 Jul 2024 14:30:00 GMT*
 
 
+## Biden
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Sat, 20 Jul 2024 14:31:00 GMT*
+
+
 ## Bieber
 
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
@@ -5901,6 +6630,15 @@ Nigel Sylvester is sharing his grandmother's driveway with the world through his
 To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
 
 *Published on: Sat, 20 Jul 2024 14:30:00 GMT*
+
+
+## Bieber
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Sat, 20 Jul 2024 14:31:00 GMT*
 
 
 ## Paulina Porizkov
@@ -5975,6 +6713,15 @@ To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration
 *Published on: Sat, 20 Jul 2024 14:30:00 GMT*
 
 
+## Paulina Porizkov
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Sat, 20 Jul 2024 14:31:00 GMT*
+
+
 ## Paris Hilton
 
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
@@ -6045,6 +6792,15 @@ Nigel Sylvester is sharing his grandmother's driveway with the world through his
 To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
 
 *Published on: Sat, 20 Jul 2024 14:30:00 GMT*
+
+
+## Paris Hilton
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Sat, 20 Jul 2024 14:31:00 GMT*
 
 
 ## Metro Boomin
@@ -6119,6 +6875,15 @@ To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration
 *Published on: Sat, 20 Jul 2024 14:30:00 GMT*
 
 
+## Metro Boomin
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Sat, 20 Jul 2024 14:31:00 GMT*
+
+
 ## Meghan Markle
 
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
@@ -6191,6 +6956,15 @@ To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration
 *Published on: Sat, 20 Jul 2024 14:30:00 GMT*
 
 
+## Meghan Markle
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Sat, 20 Jul 2024 14:31:00 GMT*
+
+
 ## Megan Thee Stallion
 
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
@@ -6263,6 +7037,15 @@ To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration
 *Published on: Sat, 20 Jul 2024 14:30:00 GMT*
 
 
+## Megan Thee Stallion
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Sat, 20 Jul 2024 14:31:00 GMT*
+
+
 ## Maya Rudolph
 
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
@@ -6335,6 +7118,15 @@ To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration
 *Published on: Sat, 20 Jul 2024 14:30:00 GMT*
 
 
+## Maya Rudolph
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Sat, 20 Jul 2024 14:31:00 GMT*
+
+
 ## Olivia Rodrigo
 
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
@@ -6407,6 +7199,15 @@ To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration
 *Published on: Sat, 20 Jul 2024 14:30:00 GMT*
 
 
+## Olivia Rodrigo
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Sat, 20 Jul 2024 14:31:00 GMT*
+
+
 ## Obama
 
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
@@ -6479,6 +7280,15 @@ To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration
 *Published on: Sat, 20 Jul 2024 14:30:00 GMT*
 
 
+## Obama
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Sat, 20 Jul 2024 14:31:00 GMT*
+
+
 ## Nicki Minaj
 
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
@@ -6551,6 +7361,15 @@ To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration
 *Published on: Sat, 20 Jul 2024 14:30:00 GMT*
 
 
+## Nicki Minaj
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Sat, 20 Jul 2024 14:31:00 GMT*
+
+
 ## MrBeast
 
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
@@ -6621,5 +7440,14 @@ Nigel Sylvester is sharing his grandmother's driveway with the world through his
 To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
 
 *Published on: Sat, 20 Jul 2024 14:30:00 GMT*
+
+
+## MrBeast
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Sat, 20 Jul 2024 14:31:00 GMT*
 
 
