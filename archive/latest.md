@@ -1,15 +1,6 @@
 # Latest Stories
 ## Tim Cook
 
-## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
-
-With grape power comes grape sneakers. A new Nike Book 1 has entered the chat, and it goes by "Barely Grape." I've also seen some people call the latest Book s…
-
-*Published on: Fri, 19 Jul 2024 18:39:00 GMT*
-
-
-## Tim Cook
-
 ## [Nike's Dynamic Air Max Sneakers Are Running Wild](https://www.highsnobiety.com/p/nike-air-max-dn-sneakers-2024/)
 
 The best has yet to come from Nike's Air Max Dn sneakers. Hard-launched during 2024 Air Max Day , the Air Max sneaker, loaded with new cloud-like Dynamic Air, …
@@ -80,7 +71,16 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 *Published on: Sat, 20 Jul 2024 14:31:00 GMT*
 
 
-## Taylor Swift
+## Tim Cook
+
+## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
+
+Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
+
+*Published on: Sat, 20 Jul 2024 17:05:00 GMT*
+
+
+## Tim Cook
 
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
 
@@ -161,7 +161,16 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 *Published on: Sat, 20 Jul 2024 14:31:00 GMT*
 
 
-## Tom Brady
+## Taylor Swift
+
+## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
+
+Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
+
+*Published on: Sat, 20 Jul 2024 17:05:00 GMT*
+
+
+## Taylor Swift
 
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
 
@@ -242,7 +251,16 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 *Published on: Sat, 20 Jul 2024 14:31:00 GMT*
 
 
-## Tina Fey
+## Tom Brady
+
+## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
+
+Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
+
+*Published on: Sat, 20 Jul 2024 17:05:00 GMT*
+
+
+## Tom Brady
 
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
 
@@ -323,7 +341,16 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 *Published on: Sat, 20 Jul 2024 14:31:00 GMT*
 
 
-## Steven Yuen
+## Tina Fey
+
+## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
+
+Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
+
+*Published on: Sat, 20 Jul 2024 17:05:00 GMT*
+
+
+## Tina Fey
 
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
 
@@ -404,7 +431,16 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 *Published on: Sat, 20 Jul 2024 14:31:00 GMT*
 
 
-## Sommer Ray
+## Steven Yuen
+
+## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
+
+Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
+
+*Published on: Sat, 20 Jul 2024 17:05:00 GMT*
+
+
+## Steven Yuen
 
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
 
@@ -485,7 +521,16 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 *Published on: Sat, 20 Jul 2024 14:31:00 GMT*
 
 
-## Sza
+## Sommer Ray
+
+## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
+
+Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
+
+*Published on: Sat, 20 Jul 2024 17:05:00 GMT*
+
+
+## Sommer Ray
 
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
 
@@ -566,7 +611,16 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 *Published on: Sat, 20 Jul 2024 14:31:00 GMT*
 
 
-## Sydney Sweeney
+## Sza
+
+## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
+
+Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
+
+*Published on: Sat, 20 Jul 2024 17:05:00 GMT*
+
+
+## Sza
 
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
 
@@ -647,7 +701,16 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 *Published on: Sat, 20 Jul 2024 14:31:00 GMT*
 
 
-## Walton Goggins
+## Sydney Sweeney
+
+## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
+
+Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
+
+*Published on: Sat, 20 Jul 2024 17:05:00 GMT*
+
+
+## Sydney Sweeney
 
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
 
@@ -728,7 +791,16 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 *Published on: Sat, 20 Jul 2024 14:31:00 GMT*
 
 
-## Tom Holland
+## Walton Goggins
+
+## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
+
+Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
+
+*Published on: Sat, 20 Jul 2024 17:05:00 GMT*
+
+
+## Walton Goggins
 
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
 
@@ -809,7 +881,16 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 *Published on: Sat, 20 Jul 2024 14:31:00 GMT*
 
 
-## Gucci Mane
+## Tom Holland
+
+## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
+
+Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
+
+*Published on: Sat, 20 Jul 2024 17:05:00 GMT*
+
+
+## Tom Holland
 
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
 
@@ -890,7 +971,16 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 *Published on: Sat, 20 Jul 2024 14:31:00 GMT*
 
 
-## Harry Styles
+## Gucci Mane
+
+## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
+
+Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
+
+*Published on: Sat, 20 Jul 2024 17:05:00 GMT*
+
+
+## Gucci Mane
 
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
 
@@ -971,7 +1061,16 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 *Published on: Sat, 20 Jul 2024 14:31:00 GMT*
 
 
-## Jake Paul
+## Harry Styles
+
+## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
+
+Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
+
+*Published on: Sat, 20 Jul 2024 17:05:00 GMT*
+
+
+## Harry Styles
 
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
 
@@ -1052,7 +1151,16 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 *Published on: Sat, 20 Jul 2024 14:31:00 GMT*
 
 
-## Jameela Jamil
+## Jake Paul
+
+## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
+
+Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
+
+*Published on: Sat, 20 Jul 2024 17:05:00 GMT*
+
+
+## Jake Paul
 
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
 
@@ -1133,7 +1241,16 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 *Published on: Sat, 20 Jul 2024 14:31:00 GMT*
 
 
-## Elon Musk
+## Jameela Jamil
+
+## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
+
+Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
+
+*Published on: Sat, 20 Jul 2024 17:05:00 GMT*
+
+
+## Jameela Jamil
 
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
 
@@ -1214,7 +1331,16 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 *Published on: Sat, 20 Jul 2024 14:31:00 GMT*
 
 
-## Gabrielle Union
+## Elon Musk
+
+## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
+
+Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
+
+*Published on: Sat, 20 Jul 2024 17:05:00 GMT*
+
+
+## Elon Musk
 
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
 
@@ -1295,7 +1421,16 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 *Published on: Sat, 20 Jul 2024 14:31:00 GMT*
 
 
-## Giancarlo Esposito
+## Gabrielle Union
+
+## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
+
+Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
+
+*Published on: Sat, 20 Jul 2024 17:05:00 GMT*
+
+
+## Gabrielle Union
 
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
 
@@ -1376,7 +1511,16 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 *Published on: Sat, 20 Jul 2024 14:31:00 GMT*
 
 
-## Gillian Jacobs
+## Giancarlo Esposito
+
+## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
+
+Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
+
+*Published on: Sat, 20 Jul 2024 17:05:00 GMT*
+
+
+## Giancarlo Esposito
 
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
 
@@ -1457,7 +1601,16 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 *Published on: Sat, 20 Jul 2024 14:31:00 GMT*
 
 
-## Jason Mantzoukas
+## Gillian Jacobs
+
+## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
+
+Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
+
+*Published on: Sat, 20 Jul 2024 17:05:00 GMT*
+
+
+## Gillian Jacobs
 
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
 
@@ -1538,7 +1691,16 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 *Published on: Sat, 20 Jul 2024 14:31:00 GMT*
 
 
-## JB Smoove
+## Jason Mantzoukas
+
+## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
+
+Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
+
+*Published on: Sat, 20 Jul 2024 17:05:00 GMT*
+
+
+## Jason Mantzoukas
 
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
 
@@ -1619,7 +1781,16 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 *Published on: Sat, 20 Jul 2024 14:31:00 GMT*
 
 
-## Madison Pettis
+## JB Smoove
+
+## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
+
+Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
+
+*Published on: Sat, 20 Jul 2024 17:05:00 GMT*
+
+
+## JB Smoove
 
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
 
@@ -1700,7 +1871,16 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 *Published on: Sat, 20 Jul 2024 14:31:00 GMT*
 
 
-## Austin Butler
+## Madison Pettis
+
+## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
+
+Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
+
+*Published on: Sat, 20 Jul 2024 17:05:00 GMT*
+
+
+## Madison Pettis
 
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
 
@@ -1781,7 +1961,16 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 *Published on: Sat, 20 Jul 2024 14:31:00 GMT*
 
 
-## Mark Zuckerberg
+## Austin Butler
+
+## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
+
+Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
+
+*Published on: Sat, 20 Jul 2024 17:05:00 GMT*
+
+
+## Austin Butler
 
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
 
@@ -1862,7 +2051,16 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 *Published on: Sat, 20 Jul 2024 14:31:00 GMT*
 
 
-## Ariana Grande
+## Mark Zuckerberg
+
+## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
+
+Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
+
+*Published on: Sat, 20 Jul 2024 17:05:00 GMT*
+
+
+## Mark Zuckerberg
 
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
 
@@ -1943,7 +2141,16 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 *Published on: Sat, 20 Jul 2024 14:31:00 GMT*
 
 
-## Livvy Dunne
+## Ariana Grande
+
+## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
+
+Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
+
+*Published on: Sat, 20 Jul 2024 17:05:00 GMT*
+
+
+## Ariana Grande
 
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
 
@@ -2024,7 +2231,16 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 *Published on: Sat, 20 Jul 2024 14:31:00 GMT*
 
 
-## Ali Wong
+## Livvy Dunne
+
+## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
+
+Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
+
+*Published on: Sat, 20 Jul 2024 17:05:00 GMT*
+
+
+## Livvy Dunne
 
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
 
@@ -2105,7 +2321,16 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 *Published on: Sat, 20 Jul 2024 14:31:00 GMT*
 
 
-## Lizzo
+## Ali Wong
+
+## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
+
+Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
+
+*Published on: Sat, 20 Jul 2024 17:05:00 GMT*
+
+
+## Ali Wong
 
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
 
@@ -2186,7 +2411,16 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 *Published on: Sat, 20 Jul 2024 14:31:00 GMT*
 
 
-## Alison Brie
+## Lizzo
+
+## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
+
+Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
+
+*Published on: Sat, 20 Jul 2024 17:05:00 GMT*
+
+
+## Lizzo
 
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
 
@@ -2267,7 +2501,16 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 *Published on: Sat, 20 Jul 2024 14:31:00 GMT*
 
 
-## Lil Wayne
+## Alison Brie
+
+## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
+
+Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
+
+*Published on: Sat, 20 Jul 2024 17:05:00 GMT*
+
+
+## Alison Brie
 
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
 
@@ -2348,7 +2591,16 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 *Published on: Sat, 20 Jul 2024 14:31:00 GMT*
 
 
-## Adele
+## Lil Wayne
+
+## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
+
+Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
+
+*Published on: Sat, 20 Jul 2024 17:05:00 GMT*
+
+
+## Lil Wayne
 
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
 
@@ -2429,7 +2681,16 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 *Published on: Sat, 20 Jul 2024 14:31:00 GMT*
 
 
-## Lindsay Lohan
+## Adele
+
+## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
+
+Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
+
+*Published on: Sat, 20 Jul 2024 17:05:00 GMT*
+
+
+## Adele
 
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
 
@@ -2510,7 +2771,16 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 *Published on: Sat, 20 Jul 2024 14:31:00 GMT*
 
 
-## Addison Rae
+## Lindsay Lohan
+
+## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
+
+Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
+
+*Published on: Sat, 20 Jul 2024 17:05:00 GMT*
+
+
+## Lindsay Lohan
 
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
 
@@ -2591,7 +2861,16 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 *Published on: Sat, 20 Jul 2024 14:31:00 GMT*
 
 
-## Latto
+## Addison Rae
+
+## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
+
+Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
+
+*Published on: Sat, 20 Jul 2024 17:05:00 GMT*
+
+
+## Addison Rae
 
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
 
@@ -2672,7 +2951,16 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 *Published on: Sat, 20 Jul 2024 14:31:00 GMT*
 
 
-## Aaron Paul
+## Latto
+
+## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
+
+Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
+
+*Published on: Sat, 20 Jul 2024 17:05:00 GMT*
+
+
+## Latto
 
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
 
@@ -2753,7 +3041,16 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 *Published on: Sat, 20 Jul 2024 14:31:00 GMT*
 
 
-## LeBron James
+## Aaron Paul
+
+## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
+
+Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
+
+*Published on: Sat, 20 Jul 2024 17:05:00 GMT*
+
+
+## Aaron Paul
 
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
 
@@ -2834,7 +3131,16 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 *Published on: Sat, 20 Jul 2024 14:31:00 GMT*
 
 
-## 50 Cent
+## LeBron James
+
+## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
+
+Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
+
+*Published on: Sat, 20 Jul 2024 17:05:00 GMT*
+
+
+## LeBron James
 
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
 
@@ -2915,7 +3221,16 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 *Published on: Sat, 20 Jul 2024 14:31:00 GMT*
 
 
-## Kesha
+## 50 Cent
+
+## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
+
+Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
+
+*Published on: Sat, 20 Jul 2024 17:05:00 GMT*
+
+
+## 50 Cent
 
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
 
@@ -2996,7 +3311,16 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 *Published on: Sat, 20 Jul 2024 14:31:00 GMT*
 
 
-## 21 Savage
+## Kesha
+
+## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
+
+Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
+
+*Published on: Sat, 20 Jul 2024 17:05:00 GMT*
+
+
+## Kesha
 
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
 
@@ -3077,7 +3401,16 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 *Published on: Sat, 20 Jul 2024 14:31:00 GMT*
 
 
-## Larry David
+## 21 Savage
+
+## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
+
+Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
+
+*Published on: Sat, 20 Jul 2024 17:05:00 GMT*
+
+
+## 21 Savage
 
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
 
@@ -3158,7 +3491,16 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 *Published on: Sat, 20 Jul 2024 14:31:00 GMT*
 
 
-## Seth Rogan
+## Larry David
+
+## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
+
+Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
+
+*Published on: Sat, 20 Jul 2024 17:05:00 GMT*
+
+
+## Larry David
 
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
 
@@ -3239,7 +3581,16 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 *Published on: Sat, 20 Jul 2024 14:31:00 GMT*
 
 
-## Simone Biles
+## Seth Rogan
+
+## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
+
+Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
+
+*Published on: Sat, 20 Jul 2024 17:05:00 GMT*
+
+
+## Seth Rogan
 
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
 
@@ -3320,7 +3671,16 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 *Published on: Sat, 20 Jul 2024 14:31:00 GMT*
 
 
-## Pete Davidson
+## Simone Biles
+
+## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
+
+Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
+
+*Published on: Sat, 20 Jul 2024 17:05:00 GMT*
+
+
+## Simone Biles
 
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
 
@@ -3401,7 +3761,16 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 *Published on: Sat, 20 Jul 2024 14:31:00 GMT*
 
 
-## Prince Harry
+## Pete Davidson
+
+## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
+
+Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
+
+*Published on: Sat, 20 Jul 2024 17:05:00 GMT*
+
+
+## Pete Davidson
 
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
 
@@ -3482,7 +3851,16 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 *Published on: Sat, 20 Jul 2024 14:31:00 GMT*
 
 
-## Princess of Wales
+## Prince Harry
+
+## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
+
+Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
+
+*Published on: Sat, 20 Jul 2024 17:05:00 GMT*
+
+
+## Prince Harry
 
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
 
@@ -3563,7 +3941,16 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 *Published on: Sat, 20 Jul 2024 14:31:00 GMT*
 
 
-## Rachel McAdams
+## Princess of Wales
+
+## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
+
+Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
+
+*Published on: Sat, 20 Jul 2024 17:05:00 GMT*
+
+
+## Princess of Wales
 
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
 
@@ -3644,7 +4031,16 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 *Published on: Sat, 20 Jul 2024 14:31:00 GMT*
 
 
-## Reneé Rapp
+## Rachel McAdams
+
+## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
+
+Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
+
+*Published on: Sat, 20 Jul 2024 17:05:00 GMT*
+
+
+## Rachel McAdams
 
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
 
@@ -3725,7 +4121,16 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 *Published on: Sat, 20 Jul 2024 14:31:00 GMT*
 
 
-## Rick Ross
+## Reneé Rapp
+
+## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
+
+Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
+
+*Published on: Sat, 20 Jul 2024 17:05:00 GMT*
+
+
+## Reneé Rapp
 
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
 
@@ -3806,7 +4211,16 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 *Published on: Sat, 20 Jul 2024 14:31:00 GMT*
 
 
-## Sam Ashgari
+## Rick Ross
+
+## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
+
+Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
+
+*Published on: Sat, 20 Jul 2024 17:05:00 GMT*
+
+
+## Rick Ross
 
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
 
@@ -3887,7 +4301,16 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 *Published on: Sat, 20 Jul 2024 14:31:00 GMT*
 
 
-## Sandra Oh
+## Sam Ashgari
+
+## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
+
+Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
+
+*Published on: Sat, 20 Jul 2024 17:05:00 GMT*
+
+
+## Sam Ashgari
 
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
 
@@ -3968,7 +4391,16 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 *Published on: Sat, 20 Jul 2024 14:31:00 GMT*
 
 
-## Donald Trump
+## Sandra Oh
+
+## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
+
+Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
+
+*Published on: Sat, 20 Jul 2024 17:05:00 GMT*
+
+
+## Sandra Oh
 
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
 
@@ -4049,7 +4481,16 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 *Published on: Sat, 20 Jul 2024 14:31:00 GMT*
 
 
-## Diddy
+## Donald Trump
+
+## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
+
+Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
+
+*Published on: Sat, 20 Jul 2024 17:05:00 GMT*
+
+
+## Donald Trump
 
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
 
@@ -4130,7 +4571,16 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 *Published on: Sat, 20 Jul 2024 14:31:00 GMT*
 
 
-## City Girls
+## Diddy
+
+## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
+
+Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
+
+*Published on: Sat, 20 Jul 2024 17:05:00 GMT*
+
+
+## Diddy
 
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
 
@@ -4211,7 +4661,16 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 *Published on: Sat, 20 Jul 2024 14:31:00 GMT*
 
 
-## Chloe Bailey
+## City Girls
+
+## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
+
+Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
+
+*Published on: Sat, 20 Jul 2024 17:05:00 GMT*
+
+
+## City Girls
 
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
 
@@ -4292,7 +4751,16 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 *Published on: Sat, 20 Jul 2024 14:31:00 GMT*
 
 
-## Charli D Amelio
+## Chloe Bailey
+
+## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
+
+Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
+
+*Published on: Sat, 20 Jul 2024 17:05:00 GMT*
+
+
+## Chloe Bailey
 
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
 
@@ -4373,7 +4841,16 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 *Published on: Sat, 20 Jul 2024 14:31:00 GMT*
 
 
-## Cardi B
+## Charli D Amelio
+
+## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
+
+Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
+
+*Published on: Sat, 20 Jul 2024 17:05:00 GMT*
+
+
+## Charli D Amelio
 
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
 
@@ -4454,7 +4931,16 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 *Published on: Sat, 20 Jul 2024 14:31:00 GMT*
 
 
-## Bryan Cranston
+## Cardi B
+
+## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
+
+Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
+
+*Published on: Sat, 20 Jul 2024 17:05:00 GMT*
+
+
+## Cardi B
 
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
 
@@ -4535,7 +5021,16 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 *Published on: Sat, 20 Jul 2024 14:31:00 GMT*
 
 
-## Brielle Biermann
+## Bryan Cranston
+
+## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
+
+Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
+
+*Published on: Sat, 20 Jul 2024 17:05:00 GMT*
+
+
+## Bryan Cranston
 
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
 
@@ -4616,7 +5111,16 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 *Published on: Sat, 20 Jul 2024 14:31:00 GMT*
 
 
-## Dua Lipa
+## Brielle Biermann
+
+## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
+
+Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
+
+*Published on: Sat, 20 Jul 2024 17:05:00 GMT*
+
+
+## Brielle Biermann
 
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
 
@@ -4697,7 +5201,16 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 *Published on: Sat, 20 Jul 2024 14:31:00 GMT*
 
 
-## Drake
+## Dua Lipa
+
+## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
+
+Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
+
+*Published on: Sat, 20 Jul 2024 17:05:00 GMT*
+
+
+## Dua Lipa
 
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
 
@@ -4778,7 +5291,16 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 *Published on: Sat, 20 Jul 2024 14:31:00 GMT*
 
 
-## Jenner
+## Drake
+
+## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
+
+Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
+
+*Published on: Sat, 20 Jul 2024 17:05:00 GMT*
+
+
+## Drake
 
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
 
@@ -4859,7 +5381,16 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 *Published on: Sat, 20 Jul 2024 14:31:00 GMT*
 
 
-## J. Cole
+## Jenner
+
+## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
+
+Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
+
+*Published on: Sat, 20 Jul 2024 17:05:00 GMT*
+
+
+## Jenner
 
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
 
@@ -4940,7 +5471,16 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 *Published on: Sat, 20 Jul 2024 14:31:00 GMT*
 
 
-## Jerrod Carmichael
+## J. Cole
+
+## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
+
+Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
+
+*Published on: Sat, 20 Jul 2024 17:05:00 GMT*
+
+
+## J. Cole
 
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
 
@@ -5021,7 +5561,16 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 *Published on: Sat, 20 Jul 2024 14:31:00 GMT*
 
 
-## Jennifer Lawrence
+## Jerrod Carmichael
+
+## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
+
+Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
+
+*Published on: Sat, 20 Jul 2024 17:05:00 GMT*
+
+
+## Jerrod Carmichael
 
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
 
@@ -5102,7 +5651,16 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 *Published on: Sat, 20 Jul 2024 14:31:00 GMT*
 
 
-## Joe Biden
+## Jennifer Lawrence
+
+## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
+
+Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
+
+*Published on: Sat, 20 Jul 2024 17:05:00 GMT*
+
+
+## Jennifer Lawrence
 
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
 
@@ -5183,7 +5741,16 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 *Published on: Sat, 20 Jul 2024 14:31:00 GMT*
 
 
-## J.K. Simmons
+## Joe Biden
+
+## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
+
+Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
+
+*Published on: Sat, 20 Jul 2024 17:05:00 GMT*
+
+
+## Joe Biden
 
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
 
@@ -5264,7 +5831,16 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 *Published on: Sat, 20 Jul 2024 14:31:00 GMT*
 
 
-## Kamala Harris
+## J.K. Simmons
+
+## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
+
+Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
+
+*Published on: Sat, 20 Jul 2024 17:05:00 GMT*
+
+
+## J.K. Simmons
 
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
 
@@ -5345,7 +5921,16 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 *Published on: Sat, 20 Jul 2024 14:31:00 GMT*
 
 
-## John C Reilly
+## Kamala Harris
+
+## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
+
+Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
+
+*Published on: Sat, 20 Jul 2024 17:05:00 GMT*
+
+
+## Kamala Harris
 
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
 
@@ -5426,7 +6011,16 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 *Published on: Sat, 20 Jul 2024 14:31:00 GMT*
 
 
-## Kardashian
+## John C Reilly
+
+## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
+
+Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
+
+*Published on: Sat, 20 Jul 2024 17:05:00 GMT*
+
+
+## John C Reilly
 
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
 
@@ -5507,7 +6101,16 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 *Published on: Sat, 20 Jul 2024 14:31:00 GMT*
 
 
-## Kanye
+## Kardashian
+
+## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
+
+Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
+
+*Published on: Sat, 20 Jul 2024 17:05:00 GMT*
+
+
+## Kardashian
 
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
 
@@ -5588,7 +6191,16 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 *Published on: Sat, 20 Jul 2024 14:31:00 GMT*
 
 
-## Zendaya
+## Kanye
+
+## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
+
+Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
+
+*Published on: Sat, 20 Jul 2024 17:05:00 GMT*
+
+
+## Kanye
 
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
 
@@ -5669,7 +6281,16 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 *Published on: Sat, 20 Jul 2024 14:31:00 GMT*
 
 
-## Will Ferrell
+## Zendaya
+
+## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
+
+Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
+
+*Published on: Sat, 20 Jul 2024 17:05:00 GMT*
+
+
+## Zendaya
 
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
 
@@ -5750,7 +6371,16 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 *Published on: Sat, 20 Jul 2024 14:31:00 GMT*
 
 
-## Zazie Beetz
+## Will Ferrell
+
+## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
+
+Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
+
+*Published on: Sat, 20 Jul 2024 17:05:00 GMT*
+
+
+## Will Ferrell
 
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
 
@@ -5831,7 +6461,16 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 *Published on: Sat, 20 Jul 2024 14:31:00 GMT*
 
 
-## Bob Odenkirk
+## Zazie Beetz
+
+## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
+
+Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
+
+*Published on: Sat, 20 Jul 2024 17:05:00 GMT*
+
+
+## Zazie Beetz
 
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
 
@@ -5912,7 +6551,16 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 *Published on: Sat, 20 Jul 2024 14:31:00 GMT*
 
 
-## Brad Pitt
+## Bob Odenkirk
+
+## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
+
+Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
+
+*Published on: Sat, 20 Jul 2024 17:05:00 GMT*
+
+
+## Bob Odenkirk
 
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
 
@@ -5993,7 +6641,16 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 *Published on: Sat, 20 Jul 2024 14:31:00 GMT*
 
 
-## Beyoncé
+## Brad Pitt
+
+## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
+
+Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
+
+*Published on: Sat, 20 Jul 2024 17:05:00 GMT*
+
+
+## Brad Pitt
 
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
 
@@ -6074,7 +6731,16 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 *Published on: Sat, 20 Jul 2024 14:31:00 GMT*
 
 
-## Bia
+## Beyoncé
+
+## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
+
+Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
+
+*Published on: Sat, 20 Jul 2024 17:05:00 GMT*
+
+
+## Beyoncé
 
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
 
@@ -6155,7 +6821,16 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 *Published on: Sat, 20 Jul 2024 14:31:00 GMT*
 
 
-## Avantika
+## Bia
+
+## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
+
+Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
+
+*Published on: Sat, 20 Jul 2024 17:05:00 GMT*
+
+
+## Bia
 
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
 
@@ -6236,7 +6911,16 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 *Published on: Sat, 20 Jul 2024 14:31:00 GMT*
 
 
-## Bernie Sanders
+## Avantika
+
+## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
+
+Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
+
+*Published on: Sat, 20 Jul 2024 17:05:00 GMT*
+
+
+## Avantika
 
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
 
@@ -6317,7 +7001,16 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 *Published on: Sat, 20 Jul 2024 14:31:00 GMT*
 
 
-## Big Sean
+## Bernie Sanders
+
+## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
+
+Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
+
+*Published on: Sat, 20 Jul 2024 17:05:00 GMT*
+
+
+## Bernie Sanders
 
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
 
@@ -6398,7 +7091,16 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 *Published on: Sat, 20 Jul 2024 14:31:00 GMT*
 
 
-## BlockBoy JB
+## Big Sean
+
+## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
+
+Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
+
+*Published on: Sat, 20 Jul 2024 17:05:00 GMT*
+
+
+## Big Sean
 
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
 
@@ -6479,7 +7181,16 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 *Published on: Sat, 20 Jul 2024 14:31:00 GMT*
 
 
-## Biden
+## BlockBoy JB
+
+## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
+
+Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
+
+*Published on: Sat, 20 Jul 2024 17:05:00 GMT*
+
+
+## BlockBoy JB
 
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
 
@@ -6560,7 +7271,16 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 *Published on: Sat, 20 Jul 2024 14:31:00 GMT*
 
 
-## Bieber
+## Biden
+
+## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
+
+Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
+
+*Published on: Sat, 20 Jul 2024 17:05:00 GMT*
+
+
+## Biden
 
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
 
@@ -6641,7 +7361,16 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 *Published on: Sat, 20 Jul 2024 14:31:00 GMT*
 
 
-## Paulina Porizkov
+## Bieber
+
+## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
+
+Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
+
+*Published on: Sat, 20 Jul 2024 17:05:00 GMT*
+
+
+## Bieber
 
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
 
@@ -6722,7 +7451,16 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 *Published on: Sat, 20 Jul 2024 14:31:00 GMT*
 
 
-## Paris Hilton
+## Paulina Porizkov
+
+## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
+
+Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
+
+*Published on: Sat, 20 Jul 2024 17:05:00 GMT*
+
+
+## Paulina Porizkov
 
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
 
@@ -6803,7 +7541,16 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 *Published on: Sat, 20 Jul 2024 14:31:00 GMT*
 
 
-## Metro Boomin
+## Paris Hilton
+
+## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
+
+Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
+
+*Published on: Sat, 20 Jul 2024 17:05:00 GMT*
+
+
+## Paris Hilton
 
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
 
@@ -6884,7 +7631,16 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 *Published on: Sat, 20 Jul 2024 14:31:00 GMT*
 
 
-## Meghan Markle
+## Metro Boomin
+
+## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
+
+Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
+
+*Published on: Sat, 20 Jul 2024 17:05:00 GMT*
+
+
+## Metro Boomin
 
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
 
@@ -6965,7 +7721,16 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 *Published on: Sat, 20 Jul 2024 14:31:00 GMT*
 
 
-## Megan Thee Stallion
+## Meghan Markle
+
+## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
+
+Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
+
+*Published on: Sat, 20 Jul 2024 17:05:00 GMT*
+
+
+## Meghan Markle
 
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
 
@@ -7046,7 +7811,16 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 *Published on: Sat, 20 Jul 2024 14:31:00 GMT*
 
 
-## Maya Rudolph
+## Megan Thee Stallion
+
+## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
+
+Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
+
+*Published on: Sat, 20 Jul 2024 17:05:00 GMT*
+
+
+## Megan Thee Stallion
 
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
 
@@ -7127,7 +7901,16 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 *Published on: Sat, 20 Jul 2024 14:31:00 GMT*
 
 
-## Olivia Rodrigo
+## Maya Rudolph
+
+## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
+
+Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
+
+*Published on: Sat, 20 Jul 2024 17:05:00 GMT*
+
+
+## Maya Rudolph
 
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
 
@@ -7208,7 +7991,16 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 *Published on: Sat, 20 Jul 2024 14:31:00 GMT*
 
 
-## Obama
+## Olivia Rodrigo
+
+## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
+
+Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
+
+*Published on: Sat, 20 Jul 2024 17:05:00 GMT*
+
+
+## Olivia Rodrigo
 
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
 
@@ -7289,7 +8081,16 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 *Published on: Sat, 20 Jul 2024 14:31:00 GMT*
 
 
-## Nicki Minaj
+## Obama
+
+## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
+
+Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
+
+*Published on: Sat, 20 Jul 2024 17:05:00 GMT*
+
+
+## Obama
 
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
 
@@ -7370,7 +8171,16 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 *Published on: Sat, 20 Jul 2024 14:31:00 GMT*
 
 
-## MrBeast
+## Nicki Minaj
+
+## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
+
+Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
+
+*Published on: Sat, 20 Jul 2024 17:05:00 GMT*
+
+
+## Nicki Minaj
 
 ## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
 
@@ -7449,5 +8259,23 @@ To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration
 On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
 *Published on: Sat, 20 Jul 2024 14:31:00 GMT*
+
+
+## MrBeast
+
+## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
+
+Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
+
+*Published on: Sat, 20 Jul 2024 17:05:00 GMT*
+
+
+## MrBeast
+
+## [Nike's Book 1 Sneaker Is Now Even More Delicious](https://www.highsnobiety.com/p/nike-book-1-sneakers-grape-2024/)
+
+With grape power comes grape sneakers. A new Nike Book 1 has entered the chat, and it goes by "Barely Grape." I've also seen some people call the latest Book s…
+
+*Published on: Fri, 19 Jul 2024 18:39:00 GMT*
 
 
