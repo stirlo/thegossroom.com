@@ -10,15 +10,6 @@ Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has becom
 
 ## Tim Cook
 
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
-
-
-## Tim Cook
-
 ## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
 
 To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
@@ -46,11 +37,11 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Tim Cook
 
-## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
+## [Gorp Is Still Gold, In NIKE's New ACG Drop](https://www.highsnobiety.com/p/new-nike-acg-drop/)
 
-In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
+We will never tire of gorpcore, and the new Nike ACG release is a case-in-point as to why. The sports gear behemoth's sub-line has quietly amassed a cult follo…
 
-*Published on: Sat, 20 Jul 2024 19:47:38 GMT*
+*Published on: Sun, 21 Jul 2024 10:00:00 GMT*
 
 
 ## Taylor Swift
@@ -60,15 +51,6 @@ In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo sho
 Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
 *Published on: Sat, 20 Jul 2024 13:48:00 GMT*
-
-
-## Taylor Swift
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
 
 
 ## Taylor Swift
@@ -100,11 +82,11 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Taylor Swift
 
-## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
+## [Gorp Is Still Gold, In NIKE's New ACG Drop](https://www.highsnobiety.com/p/new-nike-acg-drop/)
 
-In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
+We will never tire of gorpcore, and the new Nike ACG release is a case-in-point as to why. The sports gear behemoth's sub-line has quietly amassed a cult follo…
 
-*Published on: Sat, 20 Jul 2024 19:47:38 GMT*
+*Published on: Sun, 21 Jul 2024 10:00:00 GMT*
 
 
 ## Tom Brady
@@ -114,15 +96,6 @@ In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo sho
 Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
 *Published on: Sat, 20 Jul 2024 13:48:00 GMT*
-
-
-## Tom Brady
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
 
 
 ## Tom Brady
@@ -154,11 +127,11 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Tom Brady
 
-## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
+## [Gorp Is Still Gold, In NIKE's New ACG Drop](https://www.highsnobiety.com/p/new-nike-acg-drop/)
 
-In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
+We will never tire of gorpcore, and the new Nike ACG release is a case-in-point as to why. The sports gear behemoth's sub-line has quietly amassed a cult follo…
 
-*Published on: Sat, 20 Jul 2024 19:47:38 GMT*
+*Published on: Sun, 21 Jul 2024 10:00:00 GMT*
 
 
 ## Tina Fey
@@ -168,15 +141,6 @@ In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo sho
 Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
 *Published on: Sat, 20 Jul 2024 13:48:00 GMT*
-
-
-## Tina Fey
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
 
 
 ## Tina Fey
@@ -208,11 +172,11 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Tina Fey
 
-## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
+## [Gorp Is Still Gold, In NIKE's New ACG Drop](https://www.highsnobiety.com/p/new-nike-acg-drop/)
 
-In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
+We will never tire of gorpcore, and the new Nike ACG release is a case-in-point as to why. The sports gear behemoth's sub-line has quietly amassed a cult follo…
 
-*Published on: Sat, 20 Jul 2024 19:47:38 GMT*
+*Published on: Sun, 21 Jul 2024 10:00:00 GMT*
 
 
 ## Steven Yuen
@@ -222,15 +186,6 @@ In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo sho
 Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
 *Published on: Sat, 20 Jul 2024 13:48:00 GMT*
-
-
-## Steven Yuen
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
 
 
 ## Steven Yuen
@@ -262,11 +217,11 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Steven Yuen
 
-## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
+## [Gorp Is Still Gold, In NIKE's New ACG Drop](https://www.highsnobiety.com/p/new-nike-acg-drop/)
 
-In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
+We will never tire of gorpcore, and the new Nike ACG release is a case-in-point as to why. The sports gear behemoth's sub-line has quietly amassed a cult follo…
 
-*Published on: Sat, 20 Jul 2024 19:47:38 GMT*
+*Published on: Sun, 21 Jul 2024 10:00:00 GMT*
 
 
 ## Sommer Ray
@@ -276,15 +231,6 @@ In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo sho
 Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
 *Published on: Sat, 20 Jul 2024 13:48:00 GMT*
-
-
-## Sommer Ray
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
 
 
 ## Sommer Ray
@@ -316,11 +262,11 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Sommer Ray
 
-## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
+## [Gorp Is Still Gold, In NIKE's New ACG Drop](https://www.highsnobiety.com/p/new-nike-acg-drop/)
 
-In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
+We will never tire of gorpcore, and the new Nike ACG release is a case-in-point as to why. The sports gear behemoth's sub-line has quietly amassed a cult follo…
 
-*Published on: Sat, 20 Jul 2024 19:47:38 GMT*
+*Published on: Sun, 21 Jul 2024 10:00:00 GMT*
 
 
 ## Sza
@@ -330,15 +276,6 @@ In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo sho
 Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
 *Published on: Sat, 20 Jul 2024 13:48:00 GMT*
-
-
-## Sza
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
 
 
 ## Sza
@@ -370,11 +307,11 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Sza
 
-## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
+## [Gorp Is Still Gold, In NIKE's New ACG Drop](https://www.highsnobiety.com/p/new-nike-acg-drop/)
 
-In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
+We will never tire of gorpcore, and the new Nike ACG release is a case-in-point as to why. The sports gear behemoth's sub-line has quietly amassed a cult follo…
 
-*Published on: Sat, 20 Jul 2024 19:47:38 GMT*
+*Published on: Sun, 21 Jul 2024 10:00:00 GMT*
 
 
 ## Sydney Sweeney
@@ -384,15 +321,6 @@ In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo sho
 Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
 *Published on: Sat, 20 Jul 2024 13:48:00 GMT*
-
-
-## Sydney Sweeney
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
 
 
 ## Sydney Sweeney
@@ -424,11 +352,11 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Sydney Sweeney
 
-## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
+## [Gorp Is Still Gold, In NIKE's New ACG Drop](https://www.highsnobiety.com/p/new-nike-acg-drop/)
 
-In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
+We will never tire of gorpcore, and the new Nike ACG release is a case-in-point as to why. The sports gear behemoth's sub-line has quietly amassed a cult follo…
 
-*Published on: Sat, 20 Jul 2024 19:47:38 GMT*
+*Published on: Sun, 21 Jul 2024 10:00:00 GMT*
 
 
 ## Walton Goggins
@@ -438,15 +366,6 @@ In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo sho
 Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
 *Published on: Sat, 20 Jul 2024 13:48:00 GMT*
-
-
-## Walton Goggins
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
 
 
 ## Walton Goggins
@@ -478,11 +397,11 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Walton Goggins
 
-## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
+## [Gorp Is Still Gold, In NIKE's New ACG Drop](https://www.highsnobiety.com/p/new-nike-acg-drop/)
 
-In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
+We will never tire of gorpcore, and the new Nike ACG release is a case-in-point as to why. The sports gear behemoth's sub-line has quietly amassed a cult follo…
 
-*Published on: Sat, 20 Jul 2024 19:47:38 GMT*
+*Published on: Sun, 21 Jul 2024 10:00:00 GMT*
 
 
 ## Tom Holland
@@ -492,15 +411,6 @@ In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo sho
 Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
 *Published on: Sat, 20 Jul 2024 13:48:00 GMT*
-
-
-## Tom Holland
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
 
 
 ## Tom Holland
@@ -532,11 +442,11 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Tom Holland
 
-## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
+## [Gorp Is Still Gold, In NIKE's New ACG Drop](https://www.highsnobiety.com/p/new-nike-acg-drop/)
 
-In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
+We will never tire of gorpcore, and the new Nike ACG release is a case-in-point as to why. The sports gear behemoth's sub-line has quietly amassed a cult follo…
 
-*Published on: Sat, 20 Jul 2024 19:47:38 GMT*
+*Published on: Sun, 21 Jul 2024 10:00:00 GMT*
 
 
 ## Gucci Mane
@@ -546,15 +456,6 @@ In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo sho
 Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
 *Published on: Sat, 20 Jul 2024 13:48:00 GMT*
-
-
-## Gucci Mane
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
 
 
 ## Gucci Mane
@@ -586,11 +487,11 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Gucci Mane
 
-## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
+## [Gorp Is Still Gold, In NIKE's New ACG Drop](https://www.highsnobiety.com/p/new-nike-acg-drop/)
 
-In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
+We will never tire of gorpcore, and the new Nike ACG release is a case-in-point as to why. The sports gear behemoth's sub-line has quietly amassed a cult follo…
 
-*Published on: Sat, 20 Jul 2024 19:47:38 GMT*
+*Published on: Sun, 21 Jul 2024 10:00:00 GMT*
 
 
 ## Harry Styles
@@ -600,15 +501,6 @@ In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo sho
 Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
 *Published on: Sat, 20 Jul 2024 13:48:00 GMT*
-
-
-## Harry Styles
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
 
 
 ## Harry Styles
@@ -640,11 +532,11 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Harry Styles
 
-## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
+## [Gorp Is Still Gold, In NIKE's New ACG Drop](https://www.highsnobiety.com/p/new-nike-acg-drop/)
 
-In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
+We will never tire of gorpcore, and the new Nike ACG release is a case-in-point as to why. The sports gear behemoth's sub-line has quietly amassed a cult follo…
 
-*Published on: Sat, 20 Jul 2024 19:47:38 GMT*
+*Published on: Sun, 21 Jul 2024 10:00:00 GMT*
 
 
 ## Jake Paul
@@ -654,15 +546,6 @@ In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo sho
 Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
 *Published on: Sat, 20 Jul 2024 13:48:00 GMT*
-
-
-## Jake Paul
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
 
 
 ## Jake Paul
@@ -694,11 +577,11 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Jake Paul
 
-## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
+## [Gorp Is Still Gold, In NIKE's New ACG Drop](https://www.highsnobiety.com/p/new-nike-acg-drop/)
 
-In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
+We will never tire of gorpcore, and the new Nike ACG release is a case-in-point as to why. The sports gear behemoth's sub-line has quietly amassed a cult follo…
 
-*Published on: Sat, 20 Jul 2024 19:47:38 GMT*
+*Published on: Sun, 21 Jul 2024 10:00:00 GMT*
 
 
 ## Jameela Jamil
@@ -708,15 +591,6 @@ In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo sho
 Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
 *Published on: Sat, 20 Jul 2024 13:48:00 GMT*
-
-
-## Jameela Jamil
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
 
 
 ## Jameela Jamil
@@ -748,11 +622,11 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Jameela Jamil
 
-## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
+## [Gorp Is Still Gold, In NIKE's New ACG Drop](https://www.highsnobiety.com/p/new-nike-acg-drop/)
 
-In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
+We will never tire of gorpcore, and the new Nike ACG release is a case-in-point as to why. The sports gear behemoth's sub-line has quietly amassed a cult follo…
 
-*Published on: Sat, 20 Jul 2024 19:47:38 GMT*
+*Published on: Sun, 21 Jul 2024 10:00:00 GMT*
 
 
 ## Elon Musk
@@ -762,15 +636,6 @@ In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo sho
 Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
 *Published on: Sat, 20 Jul 2024 13:48:00 GMT*
-
-
-## Elon Musk
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
 
 
 ## Elon Musk
@@ -802,11 +667,11 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Elon Musk
 
-## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
+## [Gorp Is Still Gold, In NIKE's New ACG Drop](https://www.highsnobiety.com/p/new-nike-acg-drop/)
 
-In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
+We will never tire of gorpcore, and the new Nike ACG release is a case-in-point as to why. The sports gear behemoth's sub-line has quietly amassed a cult follo…
 
-*Published on: Sat, 20 Jul 2024 19:47:38 GMT*
+*Published on: Sun, 21 Jul 2024 10:00:00 GMT*
 
 
 ## Gabrielle Union
@@ -816,15 +681,6 @@ In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo sho
 Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
 *Published on: Sat, 20 Jul 2024 13:48:00 GMT*
-
-
-## Gabrielle Union
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
 
 
 ## Gabrielle Union
@@ -856,11 +712,11 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Gabrielle Union
 
-## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
+## [Gorp Is Still Gold, In NIKE's New ACG Drop](https://www.highsnobiety.com/p/new-nike-acg-drop/)
 
-In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
+We will never tire of gorpcore, and the new Nike ACG release is a case-in-point as to why. The sports gear behemoth's sub-line has quietly amassed a cult follo…
 
-*Published on: Sat, 20 Jul 2024 19:47:38 GMT*
+*Published on: Sun, 21 Jul 2024 10:00:00 GMT*
 
 
 ## Giancarlo Esposito
@@ -870,15 +726,6 @@ In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo sho
 Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
 *Published on: Sat, 20 Jul 2024 13:48:00 GMT*
-
-
-## Giancarlo Esposito
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
 
 
 ## Giancarlo Esposito
@@ -910,11 +757,11 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Giancarlo Esposito
 
-## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
+## [Gorp Is Still Gold, In NIKE's New ACG Drop](https://www.highsnobiety.com/p/new-nike-acg-drop/)
 
-In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
+We will never tire of gorpcore, and the new Nike ACG release is a case-in-point as to why. The sports gear behemoth's sub-line has quietly amassed a cult follo…
 
-*Published on: Sat, 20 Jul 2024 19:47:38 GMT*
+*Published on: Sun, 21 Jul 2024 10:00:00 GMT*
 
 
 ## Gillian Jacobs
@@ -924,15 +771,6 @@ In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo sho
 Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
 *Published on: Sat, 20 Jul 2024 13:48:00 GMT*
-
-
-## Gillian Jacobs
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
 
 
 ## Gillian Jacobs
@@ -964,11 +802,11 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Gillian Jacobs
 
-## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
+## [Gorp Is Still Gold, In NIKE's New ACG Drop](https://www.highsnobiety.com/p/new-nike-acg-drop/)
 
-In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
+We will never tire of gorpcore, and the new Nike ACG release is a case-in-point as to why. The sports gear behemoth's sub-line has quietly amassed a cult follo…
 
-*Published on: Sat, 20 Jul 2024 19:47:38 GMT*
+*Published on: Sun, 21 Jul 2024 10:00:00 GMT*
 
 
 ## Jason Mantzoukas
@@ -978,15 +816,6 @@ In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo sho
 Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
 *Published on: Sat, 20 Jul 2024 13:48:00 GMT*
-
-
-## Jason Mantzoukas
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
 
 
 ## Jason Mantzoukas
@@ -1018,11 +847,11 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Jason Mantzoukas
 
-## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
+## [Gorp Is Still Gold, In NIKE's New ACG Drop](https://www.highsnobiety.com/p/new-nike-acg-drop/)
 
-In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
+We will never tire of gorpcore, and the new Nike ACG release is a case-in-point as to why. The sports gear behemoth's sub-line has quietly amassed a cult follo…
 
-*Published on: Sat, 20 Jul 2024 19:47:38 GMT*
+*Published on: Sun, 21 Jul 2024 10:00:00 GMT*
 
 
 ## JB Smoove
@@ -1032,15 +861,6 @@ In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo sho
 Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
 *Published on: Sat, 20 Jul 2024 13:48:00 GMT*
-
-
-## JB Smoove
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
 
 
 ## JB Smoove
@@ -1072,11 +892,11 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## JB Smoove
 
-## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
+## [Gorp Is Still Gold, In NIKE's New ACG Drop](https://www.highsnobiety.com/p/new-nike-acg-drop/)
 
-In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
+We will never tire of gorpcore, and the new Nike ACG release is a case-in-point as to why. The sports gear behemoth's sub-line has quietly amassed a cult follo…
 
-*Published on: Sat, 20 Jul 2024 19:47:38 GMT*
+*Published on: Sun, 21 Jul 2024 10:00:00 GMT*
 
 
 ## Madison Pettis
@@ -1086,15 +906,6 @@ In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo sho
 Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
 *Published on: Sat, 20 Jul 2024 13:48:00 GMT*
-
-
-## Madison Pettis
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
 
 
 ## Madison Pettis
@@ -1126,11 +937,11 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Madison Pettis
 
-## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
+## [Gorp Is Still Gold, In NIKE's New ACG Drop](https://www.highsnobiety.com/p/new-nike-acg-drop/)
 
-In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
+We will never tire of gorpcore, and the new Nike ACG release is a case-in-point as to why. The sports gear behemoth's sub-line has quietly amassed a cult follo…
 
-*Published on: Sat, 20 Jul 2024 19:47:38 GMT*
+*Published on: Sun, 21 Jul 2024 10:00:00 GMT*
 
 
 ## Austin Butler
@@ -1140,15 +951,6 @@ In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo sho
 Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
 *Published on: Sat, 20 Jul 2024 13:48:00 GMT*
-
-
-## Austin Butler
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
 
 
 ## Austin Butler
@@ -1180,11 +982,11 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Austin Butler
 
-## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
+## [Gorp Is Still Gold, In NIKE's New ACG Drop](https://www.highsnobiety.com/p/new-nike-acg-drop/)
 
-In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
+We will never tire of gorpcore, and the new Nike ACG release is a case-in-point as to why. The sports gear behemoth's sub-line has quietly amassed a cult follo…
 
-*Published on: Sat, 20 Jul 2024 19:47:38 GMT*
+*Published on: Sun, 21 Jul 2024 10:00:00 GMT*
 
 
 ## Mark Zuckerberg
@@ -1194,15 +996,6 @@ In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo sho
 Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
 *Published on: Sat, 20 Jul 2024 13:48:00 GMT*
-
-
-## Mark Zuckerberg
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
 
 
 ## Mark Zuckerberg
@@ -1234,11 +1027,11 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Mark Zuckerberg
 
-## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
+## [Gorp Is Still Gold, In NIKE's New ACG Drop](https://www.highsnobiety.com/p/new-nike-acg-drop/)
 
-In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
+We will never tire of gorpcore, and the new Nike ACG release is a case-in-point as to why. The sports gear behemoth's sub-line has quietly amassed a cult follo…
 
-*Published on: Sat, 20 Jul 2024 19:47:38 GMT*
+*Published on: Sun, 21 Jul 2024 10:00:00 GMT*
 
 
 ## Ariana Grande
@@ -1248,15 +1041,6 @@ In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo sho
 Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
 *Published on: Sat, 20 Jul 2024 13:48:00 GMT*
-
-
-## Ariana Grande
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
 
 
 ## Ariana Grande
@@ -1288,11 +1072,11 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Ariana Grande
 
-## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
+## [Gorp Is Still Gold, In NIKE's New ACG Drop](https://www.highsnobiety.com/p/new-nike-acg-drop/)
 
-In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
+We will never tire of gorpcore, and the new Nike ACG release is a case-in-point as to why. The sports gear behemoth's sub-line has quietly amassed a cult follo…
 
-*Published on: Sat, 20 Jul 2024 19:47:38 GMT*
+*Published on: Sun, 21 Jul 2024 10:00:00 GMT*
 
 
 ## Livvy Dunne
@@ -1302,15 +1086,6 @@ In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo sho
 Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
 *Published on: Sat, 20 Jul 2024 13:48:00 GMT*
-
-
-## Livvy Dunne
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
 
 
 ## Livvy Dunne
@@ -1342,11 +1117,11 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Livvy Dunne
 
-## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
+## [Gorp Is Still Gold, In NIKE's New ACG Drop](https://www.highsnobiety.com/p/new-nike-acg-drop/)
 
-In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
+We will never tire of gorpcore, and the new Nike ACG release is a case-in-point as to why. The sports gear behemoth's sub-line has quietly amassed a cult follo…
 
-*Published on: Sat, 20 Jul 2024 19:47:38 GMT*
+*Published on: Sun, 21 Jul 2024 10:00:00 GMT*
 
 
 ## Ali Wong
@@ -1356,15 +1131,6 @@ In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo sho
 Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
 *Published on: Sat, 20 Jul 2024 13:48:00 GMT*
-
-
-## Ali Wong
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
 
 
 ## Ali Wong
@@ -1396,11 +1162,11 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Ali Wong
 
-## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
+## [Gorp Is Still Gold, In NIKE's New ACG Drop](https://www.highsnobiety.com/p/new-nike-acg-drop/)
 
-In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
+We will never tire of gorpcore, and the new Nike ACG release is a case-in-point as to why. The sports gear behemoth's sub-line has quietly amassed a cult follo…
 
-*Published on: Sat, 20 Jul 2024 19:47:38 GMT*
+*Published on: Sun, 21 Jul 2024 10:00:00 GMT*
 
 
 ## Lizzo
@@ -1410,15 +1176,6 @@ In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo sho
 Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
 *Published on: Sat, 20 Jul 2024 13:48:00 GMT*
-
-
-## Lizzo
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
 
 
 ## Lizzo
@@ -1450,11 +1207,11 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Lizzo
 
-## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
+## [Gorp Is Still Gold, In NIKE's New ACG Drop](https://www.highsnobiety.com/p/new-nike-acg-drop/)
 
-In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
+We will never tire of gorpcore, and the new Nike ACG release is a case-in-point as to why. The sports gear behemoth's sub-line has quietly amassed a cult follo…
 
-*Published on: Sat, 20 Jul 2024 19:47:38 GMT*
+*Published on: Sun, 21 Jul 2024 10:00:00 GMT*
 
 
 ## Alison Brie
@@ -1464,15 +1221,6 @@ In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo sho
 Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
 *Published on: Sat, 20 Jul 2024 13:48:00 GMT*
-
-
-## Alison Brie
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
 
 
 ## Alison Brie
@@ -1504,11 +1252,11 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Alison Brie
 
-## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
+## [Gorp Is Still Gold, In NIKE's New ACG Drop](https://www.highsnobiety.com/p/new-nike-acg-drop/)
 
-In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
+We will never tire of gorpcore, and the new Nike ACG release is a case-in-point as to why. The sports gear behemoth's sub-line has quietly amassed a cult follo…
 
-*Published on: Sat, 20 Jul 2024 19:47:38 GMT*
+*Published on: Sun, 21 Jul 2024 10:00:00 GMT*
 
 
 ## Lil Wayne
@@ -1518,15 +1266,6 @@ In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo sho
 Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
 *Published on: Sat, 20 Jul 2024 13:48:00 GMT*
-
-
-## Lil Wayne
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
 
 
 ## Lil Wayne
@@ -1558,11 +1297,11 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Lil Wayne
 
-## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
+## [Gorp Is Still Gold, In NIKE's New ACG Drop](https://www.highsnobiety.com/p/new-nike-acg-drop/)
 
-In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
+We will never tire of gorpcore, and the new Nike ACG release is a case-in-point as to why. The sports gear behemoth's sub-line has quietly amassed a cult follo…
 
-*Published on: Sat, 20 Jul 2024 19:47:38 GMT*
+*Published on: Sun, 21 Jul 2024 10:00:00 GMT*
 
 
 ## Adele
@@ -1572,15 +1311,6 @@ In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo sho
 Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
 *Published on: Sat, 20 Jul 2024 13:48:00 GMT*
-
-
-## Adele
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
 
 
 ## Adele
@@ -1612,11 +1342,11 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Adele
 
-## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
+## [Gorp Is Still Gold, In NIKE's New ACG Drop](https://www.highsnobiety.com/p/new-nike-acg-drop/)
 
-In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
+We will never tire of gorpcore, and the new Nike ACG release is a case-in-point as to why. The sports gear behemoth's sub-line has quietly amassed a cult follo…
 
-*Published on: Sat, 20 Jul 2024 19:47:38 GMT*
+*Published on: Sun, 21 Jul 2024 10:00:00 GMT*
 
 
 ## Lindsay Lohan
@@ -1626,15 +1356,6 @@ In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo sho
 Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
 *Published on: Sat, 20 Jul 2024 13:48:00 GMT*
-
-
-## Lindsay Lohan
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
 
 
 ## Lindsay Lohan
@@ -1666,11 +1387,11 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Lindsay Lohan
 
-## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
+## [Gorp Is Still Gold, In NIKE's New ACG Drop](https://www.highsnobiety.com/p/new-nike-acg-drop/)
 
-In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
+We will never tire of gorpcore, and the new Nike ACG release is a case-in-point as to why. The sports gear behemoth's sub-line has quietly amassed a cult follo…
 
-*Published on: Sat, 20 Jul 2024 19:47:38 GMT*
+*Published on: Sun, 21 Jul 2024 10:00:00 GMT*
 
 
 ## Addison Rae
@@ -1680,15 +1401,6 @@ In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo sho
 Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
 *Published on: Sat, 20 Jul 2024 13:48:00 GMT*
-
-
-## Addison Rae
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
 
 
 ## Addison Rae
@@ -1720,11 +1432,11 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Addison Rae
 
-## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
+## [Gorp Is Still Gold, In NIKE's New ACG Drop](https://www.highsnobiety.com/p/new-nike-acg-drop/)
 
-In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
+We will never tire of gorpcore, and the new Nike ACG release is a case-in-point as to why. The sports gear behemoth's sub-line has quietly amassed a cult follo…
 
-*Published on: Sat, 20 Jul 2024 19:47:38 GMT*
+*Published on: Sun, 21 Jul 2024 10:00:00 GMT*
 
 
 ## Latto
@@ -1734,15 +1446,6 @@ In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo sho
 Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
 *Published on: Sat, 20 Jul 2024 13:48:00 GMT*
-
-
-## Latto
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
 
 
 ## Latto
@@ -1774,11 +1477,11 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Latto
 
-## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
+## [Gorp Is Still Gold, In NIKE's New ACG Drop](https://www.highsnobiety.com/p/new-nike-acg-drop/)
 
-In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
+We will never tire of gorpcore, and the new Nike ACG release is a case-in-point as to why. The sports gear behemoth's sub-line has quietly amassed a cult follo…
 
-*Published on: Sat, 20 Jul 2024 19:47:38 GMT*
+*Published on: Sun, 21 Jul 2024 10:00:00 GMT*
 
 
 ## Aaron Paul
@@ -1788,15 +1491,6 @@ In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo sho
 Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
 *Published on: Sat, 20 Jul 2024 13:48:00 GMT*
-
-
-## Aaron Paul
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
 
 
 ## Aaron Paul
@@ -1828,11 +1522,11 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Aaron Paul
 
-## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
+## [Gorp Is Still Gold, In NIKE's New ACG Drop](https://www.highsnobiety.com/p/new-nike-acg-drop/)
 
-In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
+We will never tire of gorpcore, and the new Nike ACG release is a case-in-point as to why. The sports gear behemoth's sub-line has quietly amassed a cult follo…
 
-*Published on: Sat, 20 Jul 2024 19:47:38 GMT*
+*Published on: Sun, 21 Jul 2024 10:00:00 GMT*
 
 
 ## LeBron James
@@ -1842,15 +1536,6 @@ In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo sho
 Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
 *Published on: Sat, 20 Jul 2024 13:48:00 GMT*
-
-
-## LeBron James
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
 
 
 ## LeBron James
@@ -1882,11 +1567,11 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## LeBron James
 
-## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
+## [Gorp Is Still Gold, In NIKE's New ACG Drop](https://www.highsnobiety.com/p/new-nike-acg-drop/)
 
-In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
+We will never tire of gorpcore, and the new Nike ACG release is a case-in-point as to why. The sports gear behemoth's sub-line has quietly amassed a cult follo…
 
-*Published on: Sat, 20 Jul 2024 19:47:38 GMT*
+*Published on: Sun, 21 Jul 2024 10:00:00 GMT*
 
 
 ## 50 Cent
@@ -1896,15 +1581,6 @@ In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo sho
 Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
 *Published on: Sat, 20 Jul 2024 13:48:00 GMT*
-
-
-## 50 Cent
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
 
 
 ## 50 Cent
@@ -1936,11 +1612,11 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## 50 Cent
 
-## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
+## [Gorp Is Still Gold, In NIKE's New ACG Drop](https://www.highsnobiety.com/p/new-nike-acg-drop/)
 
-In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
+We will never tire of gorpcore, and the new Nike ACG release is a case-in-point as to why. The sports gear behemoth's sub-line has quietly amassed a cult follo…
 
-*Published on: Sat, 20 Jul 2024 19:47:38 GMT*
+*Published on: Sun, 21 Jul 2024 10:00:00 GMT*
 
 
 ## Kesha
@@ -1950,15 +1626,6 @@ In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo sho
 Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
 *Published on: Sat, 20 Jul 2024 13:48:00 GMT*
-
-
-## Kesha
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
 
 
 ## Kesha
@@ -1990,11 +1657,11 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Kesha
 
-## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
+## [Gorp Is Still Gold, In NIKE's New ACG Drop](https://www.highsnobiety.com/p/new-nike-acg-drop/)
 
-In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
+We will never tire of gorpcore, and the new Nike ACG release is a case-in-point as to why. The sports gear behemoth's sub-line has quietly amassed a cult follo…
 
-*Published on: Sat, 20 Jul 2024 19:47:38 GMT*
+*Published on: Sun, 21 Jul 2024 10:00:00 GMT*
 
 
 ## 21 Savage
@@ -2004,15 +1671,6 @@ In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo sho
 Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
 *Published on: Sat, 20 Jul 2024 13:48:00 GMT*
-
-
-## 21 Savage
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
 
 
 ## 21 Savage
@@ -2044,11 +1702,11 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## 21 Savage
 
-## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
+## [Gorp Is Still Gold, In NIKE's New ACG Drop](https://www.highsnobiety.com/p/new-nike-acg-drop/)
 
-In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
+We will never tire of gorpcore, and the new Nike ACG release is a case-in-point as to why. The sports gear behemoth's sub-line has quietly amassed a cult follo…
 
-*Published on: Sat, 20 Jul 2024 19:47:38 GMT*
+*Published on: Sun, 21 Jul 2024 10:00:00 GMT*
 
 
 ## Larry David
@@ -2058,15 +1716,6 @@ In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo sho
 Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
 *Published on: Sat, 20 Jul 2024 13:48:00 GMT*
-
-
-## Larry David
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
 
 
 ## Larry David
@@ -2098,11 +1747,11 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Larry David
 
-## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
+## [Gorp Is Still Gold, In NIKE's New ACG Drop](https://www.highsnobiety.com/p/new-nike-acg-drop/)
 
-In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
+We will never tire of gorpcore, and the new Nike ACG release is a case-in-point as to why. The sports gear behemoth's sub-line has quietly amassed a cult follo…
 
-*Published on: Sat, 20 Jul 2024 19:47:38 GMT*
+*Published on: Sun, 21 Jul 2024 10:00:00 GMT*
 
 
 ## Seth Rogan
@@ -2112,15 +1761,6 @@ In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo sho
 Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
 *Published on: Sat, 20 Jul 2024 13:48:00 GMT*
-
-
-## Seth Rogan
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
 
 
 ## Seth Rogan
@@ -2152,11 +1792,11 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Seth Rogan
 
-## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
+## [Gorp Is Still Gold, In NIKE's New ACG Drop](https://www.highsnobiety.com/p/new-nike-acg-drop/)
 
-In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
+We will never tire of gorpcore, and the new Nike ACG release is a case-in-point as to why. The sports gear behemoth's sub-line has quietly amassed a cult follo…
 
-*Published on: Sat, 20 Jul 2024 19:47:38 GMT*
+*Published on: Sun, 21 Jul 2024 10:00:00 GMT*
 
 
 ## Simone Biles
@@ -2166,15 +1806,6 @@ In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo sho
 Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
 *Published on: Sat, 20 Jul 2024 13:48:00 GMT*
-
-
-## Simone Biles
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
 
 
 ## Simone Biles
@@ -2206,11 +1837,11 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Simone Biles
 
-## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
+## [Gorp Is Still Gold, In NIKE's New ACG Drop](https://www.highsnobiety.com/p/new-nike-acg-drop/)
 
-In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
+We will never tire of gorpcore, and the new Nike ACG release is a case-in-point as to why. The sports gear behemoth's sub-line has quietly amassed a cult follo…
 
-*Published on: Sat, 20 Jul 2024 19:47:38 GMT*
+*Published on: Sun, 21 Jul 2024 10:00:00 GMT*
 
 
 ## Pete Davidson
@@ -2220,15 +1851,6 @@ In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo sho
 Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
 *Published on: Sat, 20 Jul 2024 13:48:00 GMT*
-
-
-## Pete Davidson
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
 
 
 ## Pete Davidson
@@ -2260,11 +1882,11 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Pete Davidson
 
-## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
+## [Gorp Is Still Gold, In NIKE's New ACG Drop](https://www.highsnobiety.com/p/new-nike-acg-drop/)
 
-In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
+We will never tire of gorpcore, and the new Nike ACG release is a case-in-point as to why. The sports gear behemoth's sub-line has quietly amassed a cult follo…
 
-*Published on: Sat, 20 Jul 2024 19:47:38 GMT*
+*Published on: Sun, 21 Jul 2024 10:00:00 GMT*
 
 
 ## Prince Harry
@@ -2274,15 +1896,6 @@ In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo sho
 Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
 *Published on: Sat, 20 Jul 2024 13:48:00 GMT*
-
-
-## Prince Harry
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
 
 
 ## Prince Harry
@@ -2314,11 +1927,11 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Prince Harry
 
-## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
+## [Gorp Is Still Gold, In NIKE's New ACG Drop](https://www.highsnobiety.com/p/new-nike-acg-drop/)
 
-In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
+We will never tire of gorpcore, and the new Nike ACG release is a case-in-point as to why. The sports gear behemoth's sub-line has quietly amassed a cult follo…
 
-*Published on: Sat, 20 Jul 2024 19:47:38 GMT*
+*Published on: Sun, 21 Jul 2024 10:00:00 GMT*
 
 
 ## Princess of Wales
@@ -2328,15 +1941,6 @@ In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo sho
 Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
 *Published on: Sat, 20 Jul 2024 13:48:00 GMT*
-
-
-## Princess of Wales
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
 
 
 ## Princess of Wales
@@ -2368,11 +1972,11 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Princess of Wales
 
-## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
+## [Gorp Is Still Gold, In NIKE's New ACG Drop](https://www.highsnobiety.com/p/new-nike-acg-drop/)
 
-In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
+We will never tire of gorpcore, and the new Nike ACG release is a case-in-point as to why. The sports gear behemoth's sub-line has quietly amassed a cult follo…
 
-*Published on: Sat, 20 Jul 2024 19:47:38 GMT*
+*Published on: Sun, 21 Jul 2024 10:00:00 GMT*
 
 
 ## Rachel McAdams
@@ -2382,15 +1986,6 @@ In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo sho
 Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
 *Published on: Sat, 20 Jul 2024 13:48:00 GMT*
-
-
-## Rachel McAdams
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
 
 
 ## Rachel McAdams
@@ -2422,11 +2017,11 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Rachel McAdams
 
-## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
+## [Gorp Is Still Gold, In NIKE's New ACG Drop](https://www.highsnobiety.com/p/new-nike-acg-drop/)
 
-In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
+We will never tire of gorpcore, and the new Nike ACG release is a case-in-point as to why. The sports gear behemoth's sub-line has quietly amassed a cult follo…
 
-*Published on: Sat, 20 Jul 2024 19:47:38 GMT*
+*Published on: Sun, 21 Jul 2024 10:00:00 GMT*
 
 
 ## Reneé Rapp
@@ -2436,15 +2031,6 @@ In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo sho
 Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
 *Published on: Sat, 20 Jul 2024 13:48:00 GMT*
-
-
-## Reneé Rapp
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
 
 
 ## Reneé Rapp
@@ -2476,11 +2062,11 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Reneé Rapp
 
-## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
+## [Gorp Is Still Gold, In NIKE's New ACG Drop](https://www.highsnobiety.com/p/new-nike-acg-drop/)
 
-In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
+We will never tire of gorpcore, and the new Nike ACG release is a case-in-point as to why. The sports gear behemoth's sub-line has quietly amassed a cult follo…
 
-*Published on: Sat, 20 Jul 2024 19:47:38 GMT*
+*Published on: Sun, 21 Jul 2024 10:00:00 GMT*
 
 
 ## Rick Ross
@@ -2490,15 +2076,6 @@ In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo sho
 Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
 *Published on: Sat, 20 Jul 2024 13:48:00 GMT*
-
-
-## Rick Ross
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
 
 
 ## Rick Ross
@@ -2530,11 +2107,11 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Rick Ross
 
-## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
+## [Gorp Is Still Gold, In NIKE's New ACG Drop](https://www.highsnobiety.com/p/new-nike-acg-drop/)
 
-In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
+We will never tire of gorpcore, and the new Nike ACG release is a case-in-point as to why. The sports gear behemoth's sub-line has quietly amassed a cult follo…
 
-*Published on: Sat, 20 Jul 2024 19:47:38 GMT*
+*Published on: Sun, 21 Jul 2024 10:00:00 GMT*
 
 
 ## Sam Ashgari
@@ -2544,15 +2121,6 @@ In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo sho
 Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
 *Published on: Sat, 20 Jul 2024 13:48:00 GMT*
-
-
-## Sam Ashgari
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
 
 
 ## Sam Ashgari
@@ -2584,11 +2152,11 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Sam Ashgari
 
-## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
+## [Gorp Is Still Gold, In NIKE's New ACG Drop](https://www.highsnobiety.com/p/new-nike-acg-drop/)
 
-In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
+We will never tire of gorpcore, and the new Nike ACG release is a case-in-point as to why. The sports gear behemoth's sub-line has quietly amassed a cult follo…
 
-*Published on: Sat, 20 Jul 2024 19:47:38 GMT*
+*Published on: Sun, 21 Jul 2024 10:00:00 GMT*
 
 
 ## Sandra Oh
@@ -2598,15 +2166,6 @@ In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo sho
 Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
 *Published on: Sat, 20 Jul 2024 13:48:00 GMT*
-
-
-## Sandra Oh
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
 
 
 ## Sandra Oh
@@ -2638,11 +2197,11 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Sandra Oh
 
-## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
+## [Gorp Is Still Gold, In NIKE's New ACG Drop](https://www.highsnobiety.com/p/new-nike-acg-drop/)
 
-In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
+We will never tire of gorpcore, and the new Nike ACG release is a case-in-point as to why. The sports gear behemoth's sub-line has quietly amassed a cult follo…
 
-*Published on: Sat, 20 Jul 2024 19:47:38 GMT*
+*Published on: Sun, 21 Jul 2024 10:00:00 GMT*
 
 
 ## Donald Trump
@@ -2652,15 +2211,6 @@ In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo sho
 Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
 *Published on: Sat, 20 Jul 2024 13:48:00 GMT*
-
-
-## Donald Trump
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
 
 
 ## Donald Trump
@@ -2692,11 +2242,11 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Donald Trump
 
-## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
+## [Gorp Is Still Gold, In NIKE's New ACG Drop](https://www.highsnobiety.com/p/new-nike-acg-drop/)
 
-In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
+We will never tire of gorpcore, and the new Nike ACG release is a case-in-point as to why. The sports gear behemoth's sub-line has quietly amassed a cult follo…
 
-*Published on: Sat, 20 Jul 2024 19:47:38 GMT*
+*Published on: Sun, 21 Jul 2024 10:00:00 GMT*
 
 
 ## Diddy
@@ -2706,15 +2256,6 @@ In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo sho
 Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
 *Published on: Sat, 20 Jul 2024 13:48:00 GMT*
-
-
-## Diddy
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
 
 
 ## Diddy
@@ -2746,11 +2287,11 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Diddy
 
-## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
+## [Gorp Is Still Gold, In NIKE's New ACG Drop](https://www.highsnobiety.com/p/new-nike-acg-drop/)
 
-In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
+We will never tire of gorpcore, and the new Nike ACG release is a case-in-point as to why. The sports gear behemoth's sub-line has quietly amassed a cult follo…
 
-*Published on: Sat, 20 Jul 2024 19:47:38 GMT*
+*Published on: Sun, 21 Jul 2024 10:00:00 GMT*
 
 
 ## City Girls
@@ -2760,15 +2301,6 @@ In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo sho
 Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
 *Published on: Sat, 20 Jul 2024 13:48:00 GMT*
-
-
-## City Girls
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
 
 
 ## City Girls
@@ -2800,11 +2332,11 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## City Girls
 
-## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
+## [Gorp Is Still Gold, In NIKE's New ACG Drop](https://www.highsnobiety.com/p/new-nike-acg-drop/)
 
-In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
+We will never tire of gorpcore, and the new Nike ACG release is a case-in-point as to why. The sports gear behemoth's sub-line has quietly amassed a cult follo…
 
-*Published on: Sat, 20 Jul 2024 19:47:38 GMT*
+*Published on: Sun, 21 Jul 2024 10:00:00 GMT*
 
 
 ## Chloe Bailey
@@ -2814,15 +2346,6 @@ In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo sho
 Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
 *Published on: Sat, 20 Jul 2024 13:48:00 GMT*
-
-
-## Chloe Bailey
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
 
 
 ## Chloe Bailey
@@ -2854,11 +2377,11 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Chloe Bailey
 
-## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
+## [Gorp Is Still Gold, In NIKE's New ACG Drop](https://www.highsnobiety.com/p/new-nike-acg-drop/)
 
-In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
+We will never tire of gorpcore, and the new Nike ACG release is a case-in-point as to why. The sports gear behemoth's sub-line has quietly amassed a cult follo…
 
-*Published on: Sat, 20 Jul 2024 19:47:38 GMT*
+*Published on: Sun, 21 Jul 2024 10:00:00 GMT*
 
 
 ## Charli D Amelio
@@ -2868,15 +2391,6 @@ In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo sho
 Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
 *Published on: Sat, 20 Jul 2024 13:48:00 GMT*
-
-
-## Charli D Amelio
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
 
 
 ## Charli D Amelio
@@ -2908,11 +2422,11 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Charli D Amelio
 
-## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
+## [Gorp Is Still Gold, In NIKE's New ACG Drop](https://www.highsnobiety.com/p/new-nike-acg-drop/)
 
-In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
+We will never tire of gorpcore, and the new Nike ACG release is a case-in-point as to why. The sports gear behemoth's sub-line has quietly amassed a cult follo…
 
-*Published on: Sat, 20 Jul 2024 19:47:38 GMT*
+*Published on: Sun, 21 Jul 2024 10:00:00 GMT*
 
 
 ## Cardi B
@@ -2922,15 +2436,6 @@ In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo sho
 Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
 *Published on: Sat, 20 Jul 2024 13:48:00 GMT*
-
-
-## Cardi B
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
 
 
 ## Cardi B
@@ -2962,11 +2467,11 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Cardi B
 
-## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
+## [Gorp Is Still Gold, In NIKE's New ACG Drop](https://www.highsnobiety.com/p/new-nike-acg-drop/)
 
-In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
+We will never tire of gorpcore, and the new Nike ACG release is a case-in-point as to why. The sports gear behemoth's sub-line has quietly amassed a cult follo…
 
-*Published on: Sat, 20 Jul 2024 19:47:38 GMT*
+*Published on: Sun, 21 Jul 2024 10:00:00 GMT*
 
 
 ## Bryan Cranston
@@ -2976,15 +2481,6 @@ In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo sho
 Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
 *Published on: Sat, 20 Jul 2024 13:48:00 GMT*
-
-
-## Bryan Cranston
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
 
 
 ## Bryan Cranston
@@ -3016,11 +2512,11 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Bryan Cranston
 
-## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
+## [Gorp Is Still Gold, In NIKE's New ACG Drop](https://www.highsnobiety.com/p/new-nike-acg-drop/)
 
-In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
+We will never tire of gorpcore, and the new Nike ACG release is a case-in-point as to why. The sports gear behemoth's sub-line has quietly amassed a cult follo…
 
-*Published on: Sat, 20 Jul 2024 19:47:38 GMT*
+*Published on: Sun, 21 Jul 2024 10:00:00 GMT*
 
 
 ## Brielle Biermann
@@ -3030,15 +2526,6 @@ In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo sho
 Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
 *Published on: Sat, 20 Jul 2024 13:48:00 GMT*
-
-
-## Brielle Biermann
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
 
 
 ## Brielle Biermann
@@ -3070,11 +2557,11 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Brielle Biermann
 
-## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
+## [Gorp Is Still Gold, In NIKE's New ACG Drop](https://www.highsnobiety.com/p/new-nike-acg-drop/)
 
-In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
+We will never tire of gorpcore, and the new Nike ACG release is a case-in-point as to why. The sports gear behemoth's sub-line has quietly amassed a cult follo…
 
-*Published on: Sat, 20 Jul 2024 19:47:38 GMT*
+*Published on: Sun, 21 Jul 2024 10:00:00 GMT*
 
 
 ## Dua Lipa
@@ -3084,15 +2571,6 @@ In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo sho
 Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
 *Published on: Sat, 20 Jul 2024 13:48:00 GMT*
-
-
-## Dua Lipa
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
 
 
 ## Dua Lipa
@@ -3124,11 +2602,11 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Dua Lipa
 
-## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
+## [Gorp Is Still Gold, In NIKE's New ACG Drop](https://www.highsnobiety.com/p/new-nike-acg-drop/)
 
-In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
+We will never tire of gorpcore, and the new Nike ACG release is a case-in-point as to why. The sports gear behemoth's sub-line has quietly amassed a cult follo…
 
-*Published on: Sat, 20 Jul 2024 19:47:38 GMT*
+*Published on: Sun, 21 Jul 2024 10:00:00 GMT*
 
 
 ## Drake
@@ -3138,15 +2616,6 @@ In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo sho
 Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
 *Published on: Sat, 20 Jul 2024 13:48:00 GMT*
-
-
-## Drake
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
 
 
 ## Drake
@@ -3178,11 +2647,11 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Drake
 
-## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
+## [Gorp Is Still Gold, In NIKE's New ACG Drop](https://www.highsnobiety.com/p/new-nike-acg-drop/)
 
-In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
+We will never tire of gorpcore, and the new Nike ACG release is a case-in-point as to why. The sports gear behemoth's sub-line has quietly amassed a cult follo…
 
-*Published on: Sat, 20 Jul 2024 19:47:38 GMT*
+*Published on: Sun, 21 Jul 2024 10:00:00 GMT*
 
 
 ## Jenner
@@ -3192,15 +2661,6 @@ In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo sho
 Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
 *Published on: Sat, 20 Jul 2024 13:48:00 GMT*
-
-
-## Jenner
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
 
 
 ## Jenner
@@ -3232,11 +2692,11 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Jenner
 
-## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
+## [Gorp Is Still Gold, In NIKE's New ACG Drop](https://www.highsnobiety.com/p/new-nike-acg-drop/)
 
-In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
+We will never tire of gorpcore, and the new Nike ACG release is a case-in-point as to why. The sports gear behemoth's sub-line has quietly amassed a cult follo…
 
-*Published on: Sat, 20 Jul 2024 19:47:38 GMT*
+*Published on: Sun, 21 Jul 2024 10:00:00 GMT*
 
 
 ## J. Cole
@@ -3246,15 +2706,6 @@ In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo sho
 Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
 *Published on: Sat, 20 Jul 2024 13:48:00 GMT*
-
-
-## J. Cole
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
 
 
 ## J. Cole
@@ -3286,11 +2737,11 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## J. Cole
 
-## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
+## [Gorp Is Still Gold, In NIKE's New ACG Drop](https://www.highsnobiety.com/p/new-nike-acg-drop/)
 
-In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
+We will never tire of gorpcore, and the new Nike ACG release is a case-in-point as to why. The sports gear behemoth's sub-line has quietly amassed a cult follo…
 
-*Published on: Sat, 20 Jul 2024 19:47:38 GMT*
+*Published on: Sun, 21 Jul 2024 10:00:00 GMT*
 
 
 ## Jerrod Carmichael
@@ -3300,15 +2751,6 @@ In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo sho
 Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
 *Published on: Sat, 20 Jul 2024 13:48:00 GMT*
-
-
-## Jerrod Carmichael
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
 
 
 ## Jerrod Carmichael
@@ -3340,11 +2782,11 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Jerrod Carmichael
 
-## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
+## [Gorp Is Still Gold, In NIKE's New ACG Drop](https://www.highsnobiety.com/p/new-nike-acg-drop/)
 
-In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
+We will never tire of gorpcore, and the new Nike ACG release is a case-in-point as to why. The sports gear behemoth's sub-line has quietly amassed a cult follo…
 
-*Published on: Sat, 20 Jul 2024 19:47:38 GMT*
+*Published on: Sun, 21 Jul 2024 10:00:00 GMT*
 
 
 ## Jennifer Lawrence
@@ -3354,15 +2796,6 @@ In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo sho
 Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
 *Published on: Sat, 20 Jul 2024 13:48:00 GMT*
-
-
-## Jennifer Lawrence
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
 
 
 ## Jennifer Lawrence
@@ -3394,11 +2827,11 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Jennifer Lawrence
 
-## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
+## [Gorp Is Still Gold, In NIKE's New ACG Drop](https://www.highsnobiety.com/p/new-nike-acg-drop/)
 
-In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
+We will never tire of gorpcore, and the new Nike ACG release is a case-in-point as to why. The sports gear behemoth's sub-line has quietly amassed a cult follo…
 
-*Published on: Sat, 20 Jul 2024 19:47:38 GMT*
+*Published on: Sun, 21 Jul 2024 10:00:00 GMT*
 
 
 ## Joe Biden
@@ -3408,15 +2841,6 @@ In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo sho
 Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
 *Published on: Sat, 20 Jul 2024 13:48:00 GMT*
-
-
-## Joe Biden
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
 
 
 ## Joe Biden
@@ -3448,11 +2872,11 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Joe Biden
 
-## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
+## [Gorp Is Still Gold, In NIKE's New ACG Drop](https://www.highsnobiety.com/p/new-nike-acg-drop/)
 
-In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
+We will never tire of gorpcore, and the new Nike ACG release is a case-in-point as to why. The sports gear behemoth's sub-line has quietly amassed a cult follo…
 
-*Published on: Sat, 20 Jul 2024 19:47:38 GMT*
+*Published on: Sun, 21 Jul 2024 10:00:00 GMT*
 
 
 ## J.K. Simmons
@@ -3462,15 +2886,6 @@ In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo sho
 Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
 *Published on: Sat, 20 Jul 2024 13:48:00 GMT*
-
-
-## J.K. Simmons
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
 
 
 ## J.K. Simmons
@@ -3502,11 +2917,11 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## J.K. Simmons
 
-## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
+## [Gorp Is Still Gold, In NIKE's New ACG Drop](https://www.highsnobiety.com/p/new-nike-acg-drop/)
 
-In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
+We will never tire of gorpcore, and the new Nike ACG release is a case-in-point as to why. The sports gear behemoth's sub-line has quietly amassed a cult follo…
 
-*Published on: Sat, 20 Jul 2024 19:47:38 GMT*
+*Published on: Sun, 21 Jul 2024 10:00:00 GMT*
 
 
 ## Kamala Harris
@@ -3516,15 +2931,6 @@ In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo sho
 Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
 *Published on: Sat, 20 Jul 2024 13:48:00 GMT*
-
-
-## Kamala Harris
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
 
 
 ## Kamala Harris
@@ -3556,11 +2962,11 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Kamala Harris
 
-## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
+## [Gorp Is Still Gold, In NIKE's New ACG Drop](https://www.highsnobiety.com/p/new-nike-acg-drop/)
 
-In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
+We will never tire of gorpcore, and the new Nike ACG release is a case-in-point as to why. The sports gear behemoth's sub-line has quietly amassed a cult follo…
 
-*Published on: Sat, 20 Jul 2024 19:47:38 GMT*
+*Published on: Sun, 21 Jul 2024 10:00:00 GMT*
 
 
 ## John C Reilly
@@ -3570,15 +2976,6 @@ In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo sho
 Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
 *Published on: Sat, 20 Jul 2024 13:48:00 GMT*
-
-
-## John C Reilly
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
 
 
 ## John C Reilly
@@ -3610,11 +3007,11 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## John C Reilly
 
-## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
+## [Gorp Is Still Gold, In NIKE's New ACG Drop](https://www.highsnobiety.com/p/new-nike-acg-drop/)
 
-In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
+We will never tire of gorpcore, and the new Nike ACG release is a case-in-point as to why. The sports gear behemoth's sub-line has quietly amassed a cult follo…
 
-*Published on: Sat, 20 Jul 2024 19:47:38 GMT*
+*Published on: Sun, 21 Jul 2024 10:00:00 GMT*
 
 
 ## Kardashian
@@ -3624,15 +3021,6 @@ In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo sho
 Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
 *Published on: Sat, 20 Jul 2024 13:48:00 GMT*
-
-
-## Kardashian
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
 
 
 ## Kardashian
@@ -3664,11 +3052,11 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Kardashian
 
-## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
+## [Gorp Is Still Gold, In NIKE's New ACG Drop](https://www.highsnobiety.com/p/new-nike-acg-drop/)
 
-In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
+We will never tire of gorpcore, and the new Nike ACG release is a case-in-point as to why. The sports gear behemoth's sub-line has quietly amassed a cult follo…
 
-*Published on: Sat, 20 Jul 2024 19:47:38 GMT*
+*Published on: Sun, 21 Jul 2024 10:00:00 GMT*
 
 
 ## Kanye
@@ -3678,15 +3066,6 @@ In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo sho
 Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
 *Published on: Sat, 20 Jul 2024 13:48:00 GMT*
-
-
-## Kanye
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
 
 
 ## Kanye
@@ -3718,11 +3097,11 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Kanye
 
-## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
+## [Gorp Is Still Gold, In NIKE's New ACG Drop](https://www.highsnobiety.com/p/new-nike-acg-drop/)
 
-In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
+We will never tire of gorpcore, and the new Nike ACG release is a case-in-point as to why. The sports gear behemoth's sub-line has quietly amassed a cult follo…
 
-*Published on: Sat, 20 Jul 2024 19:47:38 GMT*
+*Published on: Sun, 21 Jul 2024 10:00:00 GMT*
 
 
 ## Zendaya
@@ -3732,15 +3111,6 @@ In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo sho
 Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
 *Published on: Sat, 20 Jul 2024 13:48:00 GMT*
-
-
-## Zendaya
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
 
 
 ## Zendaya
@@ -3772,11 +3142,11 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Zendaya
 
-## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
+## [Gorp Is Still Gold, In NIKE's New ACG Drop](https://www.highsnobiety.com/p/new-nike-acg-drop/)
 
-In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
+We will never tire of gorpcore, and the new Nike ACG release is a case-in-point as to why. The sports gear behemoth's sub-line has quietly amassed a cult follo…
 
-*Published on: Sat, 20 Jul 2024 19:47:38 GMT*
+*Published on: Sun, 21 Jul 2024 10:00:00 GMT*
 
 
 ## Will Ferrell
@@ -3786,15 +3156,6 @@ In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo sho
 Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
 *Published on: Sat, 20 Jul 2024 13:48:00 GMT*
-
-
-## Will Ferrell
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
 
 
 ## Will Ferrell
@@ -3826,11 +3187,11 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Will Ferrell
 
-## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
+## [Gorp Is Still Gold, In NIKE's New ACG Drop](https://www.highsnobiety.com/p/new-nike-acg-drop/)
 
-In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
+We will never tire of gorpcore, and the new Nike ACG release is a case-in-point as to why. The sports gear behemoth's sub-line has quietly amassed a cult follo…
 
-*Published on: Sat, 20 Jul 2024 19:47:38 GMT*
+*Published on: Sun, 21 Jul 2024 10:00:00 GMT*
 
 
 ## Zazie Beetz
@@ -3840,15 +3201,6 @@ In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo sho
 Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
 *Published on: Sat, 20 Jul 2024 13:48:00 GMT*
-
-
-## Zazie Beetz
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
 
 
 ## Zazie Beetz
@@ -3880,11 +3232,11 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Zazie Beetz
 
-## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
+## [Gorp Is Still Gold, In NIKE's New ACG Drop](https://www.highsnobiety.com/p/new-nike-acg-drop/)
 
-In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
+We will never tire of gorpcore, and the new Nike ACG release is a case-in-point as to why. The sports gear behemoth's sub-line has quietly amassed a cult follo…
 
-*Published on: Sat, 20 Jul 2024 19:47:38 GMT*
+*Published on: Sun, 21 Jul 2024 10:00:00 GMT*
 
 
 ## Bob Odenkirk
@@ -3894,15 +3246,6 @@ In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo sho
 Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
 *Published on: Sat, 20 Jul 2024 13:48:00 GMT*
-
-
-## Bob Odenkirk
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
 
 
 ## Bob Odenkirk
@@ -3934,11 +3277,11 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Bob Odenkirk
 
-## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
+## [Gorp Is Still Gold, In NIKE's New ACG Drop](https://www.highsnobiety.com/p/new-nike-acg-drop/)
 
-In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
+We will never tire of gorpcore, and the new Nike ACG release is a case-in-point as to why. The sports gear behemoth's sub-line has quietly amassed a cult follo…
 
-*Published on: Sat, 20 Jul 2024 19:47:38 GMT*
+*Published on: Sun, 21 Jul 2024 10:00:00 GMT*
 
 
 ## Brad Pitt
@@ -3948,15 +3291,6 @@ In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo sho
 Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
 *Published on: Sat, 20 Jul 2024 13:48:00 GMT*
-
-
-## Brad Pitt
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
 
 
 ## Brad Pitt
@@ -3988,11 +3322,11 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Brad Pitt
 
-## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
+## [Gorp Is Still Gold, In NIKE's New ACG Drop](https://www.highsnobiety.com/p/new-nike-acg-drop/)
 
-In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
+We will never tire of gorpcore, and the new Nike ACG release is a case-in-point as to why. The sports gear behemoth's sub-line has quietly amassed a cult follo…
 
-*Published on: Sat, 20 Jul 2024 19:47:38 GMT*
+*Published on: Sun, 21 Jul 2024 10:00:00 GMT*
 
 
 ## Beyoncé
@@ -4002,15 +3336,6 @@ In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo sho
 Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
 *Published on: Sat, 20 Jul 2024 13:48:00 GMT*
-
-
-## Beyoncé
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
 
 
 ## Beyoncé
@@ -4042,11 +3367,11 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Beyoncé
 
-## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
+## [Gorp Is Still Gold, In NIKE's New ACG Drop](https://www.highsnobiety.com/p/new-nike-acg-drop/)
 
-In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
+We will never tire of gorpcore, and the new Nike ACG release is a case-in-point as to why. The sports gear behemoth's sub-line has quietly amassed a cult follo…
 
-*Published on: Sat, 20 Jul 2024 19:47:38 GMT*
+*Published on: Sun, 21 Jul 2024 10:00:00 GMT*
 
 
 ## Bia
@@ -4056,15 +3381,6 @@ In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo sho
 Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
 *Published on: Sat, 20 Jul 2024 13:48:00 GMT*
-
-
-## Bia
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
 
 
 ## Bia
@@ -4096,11 +3412,11 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Bia
 
-## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
+## [Gorp Is Still Gold, In NIKE's New ACG Drop](https://www.highsnobiety.com/p/new-nike-acg-drop/)
 
-In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
+We will never tire of gorpcore, and the new Nike ACG release is a case-in-point as to why. The sports gear behemoth's sub-line has quietly amassed a cult follo…
 
-*Published on: Sat, 20 Jul 2024 19:47:38 GMT*
+*Published on: Sun, 21 Jul 2024 10:00:00 GMT*
 
 
 ## Avantika
@@ -4110,15 +3426,6 @@ In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo sho
 Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
 *Published on: Sat, 20 Jul 2024 13:48:00 GMT*
-
-
-## Avantika
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
 
 
 ## Avantika
@@ -4150,11 +3457,11 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Avantika
 
-## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
+## [Gorp Is Still Gold, In NIKE's New ACG Drop](https://www.highsnobiety.com/p/new-nike-acg-drop/)
 
-In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
+We will never tire of gorpcore, and the new Nike ACG release is a case-in-point as to why. The sports gear behemoth's sub-line has quietly amassed a cult follo…
 
-*Published on: Sat, 20 Jul 2024 19:47:38 GMT*
+*Published on: Sun, 21 Jul 2024 10:00:00 GMT*
 
 
 ## Bernie Sanders
@@ -4164,15 +3471,6 @@ In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo sho
 Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
 *Published on: Sat, 20 Jul 2024 13:48:00 GMT*
-
-
-## Bernie Sanders
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
 
 
 ## Bernie Sanders
@@ -4204,11 +3502,11 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Bernie Sanders
 
-## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
+## [Gorp Is Still Gold, In NIKE's New ACG Drop](https://www.highsnobiety.com/p/new-nike-acg-drop/)
 
-In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
+We will never tire of gorpcore, and the new Nike ACG release is a case-in-point as to why. The sports gear behemoth's sub-line has quietly amassed a cult follo…
 
-*Published on: Sat, 20 Jul 2024 19:47:38 GMT*
+*Published on: Sun, 21 Jul 2024 10:00:00 GMT*
 
 
 ## Big Sean
@@ -4218,15 +3516,6 @@ In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo sho
 Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
 *Published on: Sat, 20 Jul 2024 13:48:00 GMT*
-
-
-## Big Sean
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
 
 
 ## Big Sean
@@ -4258,11 +3547,11 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Big Sean
 
-## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
+## [Gorp Is Still Gold, In NIKE's New ACG Drop](https://www.highsnobiety.com/p/new-nike-acg-drop/)
 
-In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
+We will never tire of gorpcore, and the new Nike ACG release is a case-in-point as to why. The sports gear behemoth's sub-line has quietly amassed a cult follo…
 
-*Published on: Sat, 20 Jul 2024 19:47:38 GMT*
+*Published on: Sun, 21 Jul 2024 10:00:00 GMT*
 
 
 ## BlockBoy JB
@@ -4272,15 +3561,6 @@ In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo sho
 Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
 *Published on: Sat, 20 Jul 2024 13:48:00 GMT*
-
-
-## BlockBoy JB
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
 
 
 ## BlockBoy JB
@@ -4312,11 +3592,11 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## BlockBoy JB
 
-## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
+## [Gorp Is Still Gold, In NIKE's New ACG Drop](https://www.highsnobiety.com/p/new-nike-acg-drop/)
 
-In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
+We will never tire of gorpcore, and the new Nike ACG release is a case-in-point as to why. The sports gear behemoth's sub-line has quietly amassed a cult follo…
 
-*Published on: Sat, 20 Jul 2024 19:47:38 GMT*
+*Published on: Sun, 21 Jul 2024 10:00:00 GMT*
 
 
 ## Biden
@@ -4326,15 +3606,6 @@ In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo sho
 Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
 *Published on: Sat, 20 Jul 2024 13:48:00 GMT*
-
-
-## Biden
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
 
 
 ## Biden
@@ -4366,11 +3637,11 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Biden
 
-## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
+## [Gorp Is Still Gold, In NIKE's New ACG Drop](https://www.highsnobiety.com/p/new-nike-acg-drop/)
 
-In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
+We will never tire of gorpcore, and the new Nike ACG release is a case-in-point as to why. The sports gear behemoth's sub-line has quietly amassed a cult follo…
 
-*Published on: Sat, 20 Jul 2024 19:47:38 GMT*
+*Published on: Sun, 21 Jul 2024 10:00:00 GMT*
 
 
 ## Bieber
@@ -4380,15 +3651,6 @@ In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo sho
 Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
 *Published on: Sat, 20 Jul 2024 13:48:00 GMT*
-
-
-## Bieber
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
 
 
 ## Bieber
@@ -4420,11 +3682,11 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Bieber
 
-## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
+## [Gorp Is Still Gold, In NIKE's New ACG Drop](https://www.highsnobiety.com/p/new-nike-acg-drop/)
 
-In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
+We will never tire of gorpcore, and the new Nike ACG release is a case-in-point as to why. The sports gear behemoth's sub-line has quietly amassed a cult follo…
 
-*Published on: Sat, 20 Jul 2024 19:47:38 GMT*
+*Published on: Sun, 21 Jul 2024 10:00:00 GMT*
 
 
 ## Paulina Porizkov
@@ -4434,15 +3696,6 @@ In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo sho
 Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
 *Published on: Sat, 20 Jul 2024 13:48:00 GMT*
-
-
-## Paulina Porizkov
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
 
 
 ## Paulina Porizkov
@@ -4474,11 +3727,11 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Paulina Porizkov
 
-## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
+## [Gorp Is Still Gold, In NIKE's New ACG Drop](https://www.highsnobiety.com/p/new-nike-acg-drop/)
 
-In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
+We will never tire of gorpcore, and the new Nike ACG release is a case-in-point as to why. The sports gear behemoth's sub-line has quietly amassed a cult follo…
 
-*Published on: Sat, 20 Jul 2024 19:47:38 GMT*
+*Published on: Sun, 21 Jul 2024 10:00:00 GMT*
 
 
 ## Paris Hilton
@@ -4488,15 +3741,6 @@ In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo sho
 Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
 *Published on: Sat, 20 Jul 2024 13:48:00 GMT*
-
-
-## Paris Hilton
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
 
 
 ## Paris Hilton
@@ -4528,11 +3772,11 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Paris Hilton
 
-## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
+## [Gorp Is Still Gold, In NIKE's New ACG Drop](https://www.highsnobiety.com/p/new-nike-acg-drop/)
 
-In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
+We will never tire of gorpcore, and the new Nike ACG release is a case-in-point as to why. The sports gear behemoth's sub-line has quietly amassed a cult follo…
 
-*Published on: Sat, 20 Jul 2024 19:47:38 GMT*
+*Published on: Sun, 21 Jul 2024 10:00:00 GMT*
 
 
 ## Metro Boomin
@@ -4542,15 +3786,6 @@ In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo sho
 Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
 *Published on: Sat, 20 Jul 2024 13:48:00 GMT*
-
-
-## Metro Boomin
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
 
 
 ## Metro Boomin
@@ -4582,11 +3817,11 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Metro Boomin
 
-## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
+## [Gorp Is Still Gold, In NIKE's New ACG Drop](https://www.highsnobiety.com/p/new-nike-acg-drop/)
 
-In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
+We will never tire of gorpcore, and the new Nike ACG release is a case-in-point as to why. The sports gear behemoth's sub-line has quietly amassed a cult follo…
 
-*Published on: Sat, 20 Jul 2024 19:47:38 GMT*
+*Published on: Sun, 21 Jul 2024 10:00:00 GMT*
 
 
 ## Meghan Markle
@@ -4596,15 +3831,6 @@ In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo sho
 Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
 *Published on: Sat, 20 Jul 2024 13:48:00 GMT*
-
-
-## Meghan Markle
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
 
 
 ## Meghan Markle
@@ -4636,11 +3862,11 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Meghan Markle
 
-## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
+## [Gorp Is Still Gold, In NIKE's New ACG Drop](https://www.highsnobiety.com/p/new-nike-acg-drop/)
 
-In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
+We will never tire of gorpcore, and the new Nike ACG release is a case-in-point as to why. The sports gear behemoth's sub-line has quietly amassed a cult follo…
 
-*Published on: Sat, 20 Jul 2024 19:47:38 GMT*
+*Published on: Sun, 21 Jul 2024 10:00:00 GMT*
 
 
 ## Megan Thee Stallion
@@ -4650,15 +3876,6 @@ In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo sho
 Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
 *Published on: Sat, 20 Jul 2024 13:48:00 GMT*
-
-
-## Megan Thee Stallion
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
 
 
 ## Megan Thee Stallion
@@ -4690,11 +3907,11 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Megan Thee Stallion
 
-## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
+## [Gorp Is Still Gold, In NIKE's New ACG Drop](https://www.highsnobiety.com/p/new-nike-acg-drop/)
 
-In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
+We will never tire of gorpcore, and the new Nike ACG release is a case-in-point as to why. The sports gear behemoth's sub-line has quietly amassed a cult follo…
 
-*Published on: Sat, 20 Jul 2024 19:47:38 GMT*
+*Published on: Sun, 21 Jul 2024 10:00:00 GMT*
 
 
 ## Maya Rudolph
@@ -4704,15 +3921,6 @@ In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo sho
 Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
 *Published on: Sat, 20 Jul 2024 13:48:00 GMT*
-
-
-## Maya Rudolph
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
 
 
 ## Maya Rudolph
@@ -4744,11 +3952,11 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Maya Rudolph
 
-## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
+## [Gorp Is Still Gold, In NIKE's New ACG Drop](https://www.highsnobiety.com/p/new-nike-acg-drop/)
 
-In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
+We will never tire of gorpcore, and the new Nike ACG release is a case-in-point as to why. The sports gear behemoth's sub-line has quietly amassed a cult follo…
 
-*Published on: Sat, 20 Jul 2024 19:47:38 GMT*
+*Published on: Sun, 21 Jul 2024 10:00:00 GMT*
 
 
 ## Olivia Rodrigo
@@ -4758,15 +3966,6 @@ In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo sho
 Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
 *Published on: Sat, 20 Jul 2024 13:48:00 GMT*
-
-
-## Olivia Rodrigo
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
 
 
 ## Olivia Rodrigo
@@ -4798,11 +3997,11 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Olivia Rodrigo
 
-## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
+## [Gorp Is Still Gold, In NIKE's New ACG Drop](https://www.highsnobiety.com/p/new-nike-acg-drop/)
 
-In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
+We will never tire of gorpcore, and the new Nike ACG release is a case-in-point as to why. The sports gear behemoth's sub-line has quietly amassed a cult follo…
 
-*Published on: Sat, 20 Jul 2024 19:47:38 GMT*
+*Published on: Sun, 21 Jul 2024 10:00:00 GMT*
 
 
 ## Obama
@@ -4812,15 +4011,6 @@ In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo sho
 Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
 *Published on: Sat, 20 Jul 2024 13:48:00 GMT*
-
-
-## Obama
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
 
 
 ## Obama
@@ -4852,11 +4042,11 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Obama
 
-## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
+## [Gorp Is Still Gold, In NIKE's New ACG Drop](https://www.highsnobiety.com/p/new-nike-acg-drop/)
 
-In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
+We will never tire of gorpcore, and the new Nike ACG release is a case-in-point as to why. The sports gear behemoth's sub-line has quietly amassed a cult follo…
 
-*Published on: Sat, 20 Jul 2024 19:47:38 GMT*
+*Published on: Sun, 21 Jul 2024 10:00:00 GMT*
 
 
 ## Nicki Minaj
@@ -4866,15 +4056,6 @@ In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo sho
 Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
 *Published on: Sat, 20 Jul 2024 13:48:00 GMT*
-
-
-## Nicki Minaj
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
 
 
 ## Nicki Minaj
@@ -4906,11 +4087,11 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## Nicki Minaj
 
-## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
+## [Gorp Is Still Gold, In NIKE's New ACG Drop](https://www.highsnobiety.com/p/new-nike-acg-drop/)
 
-In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
+We will never tire of gorpcore, and the new Nike ACG release is a case-in-point as to why. The sports gear behemoth's sub-line has quietly amassed a cult follo…
 
-*Published on: Sat, 20 Jul 2024 19:47:38 GMT*
+*Published on: Sun, 21 Jul 2024 10:00:00 GMT*
 
 
 ## MrBeast
@@ -4920,15 +4101,6 @@ In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo sho
 Nike's Jordan 4 RM, with its divisively chunky and skater-ready look , has become one of Jordan Brand's most talked-about sneakers of the entirety of 2024, spa…
 
 *Published on: Sat, 20 Jul 2024 13:48:00 GMT*
-
-
-## MrBeast
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sat, 20 Jul 2024 13:49:00 GMT*
 
 
 ## MrBeast
@@ -4960,10 +4132,10 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 
 ## MrBeast
 
-## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
+## [Gorp Is Still Gold, In NIKE's New ACG Drop](https://www.highsnobiety.com/p/new-nike-acg-drop/)
 
-In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
+We will never tire of gorpcore, and the new Nike ACG release is a case-in-point as to why. The sports gear behemoth's sub-line has quietly amassed a cult follo…
 
-*Published on: Sat, 20 Jul 2024 19:47:38 GMT*
+*Published on: Sun, 21 Jul 2024 10:00:00 GMT*
 
 
