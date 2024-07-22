@@ -1,15 +1,6 @@
 # Latest Stories
 ## Tim Cook
 
-## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
-
-Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
-
-*Published on: Mon, 22 Jul 2024 08:00:42 GMT*
-
-
-## Tim Cook
-
 ## [New Balance's Ordinary Dad Shoes Are Getting Extraordinary Colorways (Finally)](https://www.highsnobiety.com/p/new-balance-725-sneakers-2024/)
 
 New Balance's 725 sneaker is one of the brand's more straightforward dad shoes. It is backed by a devoted fanbase that champions its chunky Y2K charm, maximum …
@@ -82,20 +73,11 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## Tim Cook
 
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
-*Published on: Sun, 21 Jul 2024 14:11:00 GMT*
-
-
-## Tim Cook
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
+*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
 
 
 ## Tim Cook
@@ -107,13 +89,22 @@ We're off to see the Wizard, the wonderful Wizard of Oz...Nike Dunks?Nike SB has
 *Published on: Sun, 21 Jul 2024 15:52:00 GMT*
 
 
-## Taylor Swift
+## Tim Cook
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
 
 Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
 
 *Published on: Mon, 22 Jul 2024 08:00:42 GMT*
+
+
+## Tim Cook
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
 ## Taylor Swift
@@ -190,11 +181,29 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## Taylor Swift
 
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
-*Published on: Sun, 21 Jul 2024 14:11:00 GMT*
+*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+
+
+## Taylor Swift
+
+## [Nike's Dropping a...Wonderful "Wizard of Oz" Skate Shoe?](https://www.highsnobiety.com/p/wizard-of-oz-nike-sb-dunks-2024/)
+
+We're off to see the Wizard, the wonderful Wizard of Oz...Nike Dunks?Nike SB has been quite busy this year, readying more skate-fied Nike classics and dishing …
+
+*Published on: Sun, 21 Jul 2024 15:52:00 GMT*
+
+
+## Taylor Swift
+
+## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
+
+Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
+
+*Published on: Mon, 22 Jul 2024 08:00:42 GMT*
 
 
 ## Taylor Swift
@@ -206,7 +215,88 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 *Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
-## Taylor Swift
+## Tom Brady
+
+## [New Balance's Ordinary Dad Shoes Are Getting Extraordinary Colorways (Finally)](https://www.highsnobiety.com/p/new-balance-725-sneakers-2024/)
+
+New Balance's 725 sneaker is one of the brand's more straightforward dad shoes. It is backed by a devoted fanbase that champions its chunky Y2K charm, maximum …
+
+*Published on: Mon, 22 Jul 2024 08:34:37 GMT*
+
+
+## Tom Brady
+
+## [Nike's Admirable Gramps Sneaker Is a Legend Reborn ](https://www.highsnobiety.com/p/nike-ld-1000-sneakers-2024-where-to-buy/)
+
+It's been a big year for revivals, especially those plucked from Nike's archives. With the Swoosh dipping further and further back in its oldest shoes, it was …
+
+*Published on: Mon, 22 Jul 2024 09:00:49 GMT*
+
+
+## Tom Brady
+
+## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
+
+Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
+
+*Published on: Mon, 22 Jul 2024 09:05:00 GMT*
+
+
+## Tom Brady
+
+## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
+
+In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
+
+*Published on: Mon, 22 Jul 2024 09:11:00 GMT*
+
+
+## Tom Brady
+
+## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
+
+To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
+
+*Published on: Mon, 22 Jul 2024 09:15:00 GMT*
+
+
+## Tom Brady
+
+## [Crocs' Effortless Mule Went From Minimalist to Colorfully Maxed-Out ](https://www.highsnobiety.com/p/sns-crocs-clog-collab-2024/)
+
+In celebration of its 25th anniversary, Sneakersnstuff has linked with Crocs for a first-ever collaboration involving the effortless Dylan clog .The label ulti…
+
+*Published on: Mon, 22 Jul 2024 09:16:07 GMT*
+
+
+## Tom Brady
+
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
+
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
+
+*Published on: Mon, 22 Jul 2024 09:30:00 GMT*
+
+
+## Tom Brady
+
+## [Nike SB Is Making Olympic Skateboarding Stylish (Again)](https://www.highsnobiety.com/p/nike-sb-2024-olympic-uniforms-japan-usa/)
+
+Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. The sport’s first time competing in the Olympics, Nike SB jumped on the opportun…
+
+*Published on: Mon, 22 Jul 2024 11:20:34 GMT*
+
+
+## Tom Brady
+
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
+
+*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+
+
+## Tom Brady
 
 ## [Nike's Dropping a...Wonderful "Wizard of Oz" Skate Shoe?](https://www.highsnobiety.com/p/wizard-of-oz-nike-sb-dunks-2024/)
 
@@ -226,110 +316,11 @@ Let's get straight to the point here: Reebok is cooking right now.Earlier this w
 
 ## Tom Brady
 
-## [New Balance's Ordinary Dad Shoes Are Getting Extraordinary Colorways (Finally)](https://www.highsnobiety.com/p/new-balance-725-sneakers-2024/)
-
-New Balance's 725 sneaker is one of the brand's more straightforward dad shoes. It is backed by a devoted fanbase that champions its chunky Y2K charm, maximum …
-
-*Published on: Mon, 22 Jul 2024 08:34:37 GMT*
-
-
-## Tom Brady
-
-## [Nike's Admirable Gramps Sneaker Is a Legend Reborn ](https://www.highsnobiety.com/p/nike-ld-1000-sneakers-2024-where-to-buy/)
-
-It's been a big year for revivals, especially those plucked from Nike's archives. With the Swoosh dipping further and further back in its oldest shoes, it was …
-
-*Published on: Mon, 22 Jul 2024 09:00:49 GMT*
-
-
-## Tom Brady
-
-## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
-
-Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
-
-*Published on: Mon, 22 Jul 2024 09:05:00 GMT*
-
-
-## Tom Brady
-
-## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
-
-In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
-
-*Published on: Mon, 22 Jul 2024 09:11:00 GMT*
-
-
-## Tom Brady
-
-## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
-
-To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
-
-*Published on: Mon, 22 Jul 2024 09:15:00 GMT*
-
-
-## Tom Brady
-
-## [Crocs' Effortless Mule Went From Minimalist to Colorfully Maxed-Out ](https://www.highsnobiety.com/p/sns-crocs-clog-collab-2024/)
-
-In celebration of its 25th anniversary, Sneakersnstuff has linked with Crocs for a first-ever collaboration involving the effortless Dylan clog .The label ulti…
-
-*Published on: Mon, 22 Jul 2024 09:16:07 GMT*
-
-
-## Tom Brady
-
-## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
-
-Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
-
-*Published on: Mon, 22 Jul 2024 09:30:00 GMT*
-
-
-## Tom Brady
-
-## [Nike SB Is Making Olympic Skateboarding Stylish (Again)](https://www.highsnobiety.com/p/nike-sb-2024-olympic-uniforms-japan-usa/)
-
-Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. The sport’s first time competing in the Olympics, Nike SB jumped on the opportun…
-
-*Published on: Mon, 22 Jul 2024 11:20:34 GMT*
-
-
-## Tom Brady
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sun, 21 Jul 2024 14:11:00 GMT*
-
-
-## Tom Brady
-
 ## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
 On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
 *Published on: Sun, 21 Jul 2024 20:31:00 GMT*
-
-
-## Tom Brady
-
-## [Nike's Dropping a...Wonderful "Wizard of Oz" Skate Shoe?](https://www.highsnobiety.com/p/wizard-of-oz-nike-sb-dunks-2024/)
-
-We're off to see the Wizard, the wonderful Wizard of Oz...Nike Dunks?Nike SB has been quite busy this year, readying more skate-fied Nike classics and dishing …
-
-*Published on: Sun, 21 Jul 2024 15:52:00 GMT*
-
-
-## Tina Fey
-
-## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
-
-Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
-
-*Published on: Mon, 22 Jul 2024 08:00:42 GMT*
 
 
 ## Tina Fey
@@ -406,20 +397,11 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## Tina Fey
 
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
-*Published on: Sun, 21 Jul 2024 14:11:00 GMT*
-
-
-## Tina Fey
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
+*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
 
 
 ## Tina Fey
@@ -431,13 +413,22 @@ We're off to see the Wizard, the wonderful Wizard of Oz...Nike Dunks?Nike SB has
 *Published on: Sun, 21 Jul 2024 15:52:00 GMT*
 
 
-## Steven Yuen
+## Tina Fey
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
 
 Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
 
 *Published on: Mon, 22 Jul 2024 08:00:42 GMT*
+
+
+## Tina Fey
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
 ## Steven Yuen
@@ -514,11 +505,29 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## Steven Yuen
 
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
-*Published on: Sun, 21 Jul 2024 14:11:00 GMT*
+*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+
+
+## Steven Yuen
+
+## [Nike's Dropping a...Wonderful "Wizard of Oz" Skate Shoe?](https://www.highsnobiety.com/p/wizard-of-oz-nike-sb-dunks-2024/)
+
+We're off to see the Wizard, the wonderful Wizard of Oz...Nike Dunks?Nike SB has been quite busy this year, readying more skate-fied Nike classics and dishing …
+
+*Published on: Sun, 21 Jul 2024 15:52:00 GMT*
+
+
+## Steven Yuen
+
+## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
+
+Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
+
+*Published on: Mon, 22 Jul 2024 08:00:42 GMT*
 
 
 ## Steven Yuen
@@ -530,7 +539,88 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 *Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
-## Steven Yuen
+## Sommer Ray
+
+## [New Balance's Ordinary Dad Shoes Are Getting Extraordinary Colorways (Finally)](https://www.highsnobiety.com/p/new-balance-725-sneakers-2024/)
+
+New Balance's 725 sneaker is one of the brand's more straightforward dad shoes. It is backed by a devoted fanbase that champions its chunky Y2K charm, maximum …
+
+*Published on: Mon, 22 Jul 2024 08:34:37 GMT*
+
+
+## Sommer Ray
+
+## [Nike's Admirable Gramps Sneaker Is a Legend Reborn ](https://www.highsnobiety.com/p/nike-ld-1000-sneakers-2024-where-to-buy/)
+
+It's been a big year for revivals, especially those plucked from Nike's archives. With the Swoosh dipping further and further back in its oldest shoes, it was …
+
+*Published on: Mon, 22 Jul 2024 09:00:49 GMT*
+
+
+## Sommer Ray
+
+## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
+
+Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
+
+*Published on: Mon, 22 Jul 2024 09:05:00 GMT*
+
+
+## Sommer Ray
+
+## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
+
+In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
+
+*Published on: Mon, 22 Jul 2024 09:11:00 GMT*
+
+
+## Sommer Ray
+
+## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
+
+To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
+
+*Published on: Mon, 22 Jul 2024 09:15:00 GMT*
+
+
+## Sommer Ray
+
+## [Crocs' Effortless Mule Went From Minimalist to Colorfully Maxed-Out ](https://www.highsnobiety.com/p/sns-crocs-clog-collab-2024/)
+
+In celebration of its 25th anniversary, Sneakersnstuff has linked with Crocs for a first-ever collaboration involving the effortless Dylan clog .The label ulti…
+
+*Published on: Mon, 22 Jul 2024 09:16:07 GMT*
+
+
+## Sommer Ray
+
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
+
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
+
+*Published on: Mon, 22 Jul 2024 09:30:00 GMT*
+
+
+## Sommer Ray
+
+## [Nike SB Is Making Olympic Skateboarding Stylish (Again)](https://www.highsnobiety.com/p/nike-sb-2024-olympic-uniforms-japan-usa/)
+
+Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. The sport’s first time competing in the Olympics, Nike SB jumped on the opportun…
+
+*Published on: Mon, 22 Jul 2024 11:20:34 GMT*
+
+
+## Sommer Ray
+
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
+
+*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+
+
+## Sommer Ray
 
 ## [Nike's Dropping a...Wonderful "Wizard of Oz" Skate Shoe?](https://www.highsnobiety.com/p/wizard-of-oz-nike-sb-dunks-2024/)
 
@@ -550,110 +640,11 @@ Let's get straight to the point here: Reebok is cooking right now.Earlier this w
 
 ## Sommer Ray
 
-## [New Balance's Ordinary Dad Shoes Are Getting Extraordinary Colorways (Finally)](https://www.highsnobiety.com/p/new-balance-725-sneakers-2024/)
-
-New Balance's 725 sneaker is one of the brand's more straightforward dad shoes. It is backed by a devoted fanbase that champions its chunky Y2K charm, maximum …
-
-*Published on: Mon, 22 Jul 2024 08:34:37 GMT*
-
-
-## Sommer Ray
-
-## [Nike's Admirable Gramps Sneaker Is a Legend Reborn ](https://www.highsnobiety.com/p/nike-ld-1000-sneakers-2024-where-to-buy/)
-
-It's been a big year for revivals, especially those plucked from Nike's archives. With the Swoosh dipping further and further back in its oldest shoes, it was …
-
-*Published on: Mon, 22 Jul 2024 09:00:49 GMT*
-
-
-## Sommer Ray
-
-## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
-
-Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
-
-*Published on: Mon, 22 Jul 2024 09:05:00 GMT*
-
-
-## Sommer Ray
-
-## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
-
-In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
-
-*Published on: Mon, 22 Jul 2024 09:11:00 GMT*
-
-
-## Sommer Ray
-
-## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
-
-To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
-
-*Published on: Mon, 22 Jul 2024 09:15:00 GMT*
-
-
-## Sommer Ray
-
-## [Crocs' Effortless Mule Went From Minimalist to Colorfully Maxed-Out ](https://www.highsnobiety.com/p/sns-crocs-clog-collab-2024/)
-
-In celebration of its 25th anniversary, Sneakersnstuff has linked with Crocs for a first-ever collaboration involving the effortless Dylan clog .The label ulti…
-
-*Published on: Mon, 22 Jul 2024 09:16:07 GMT*
-
-
-## Sommer Ray
-
-## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
-
-Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
-
-*Published on: Mon, 22 Jul 2024 09:30:00 GMT*
-
-
-## Sommer Ray
-
-## [Nike SB Is Making Olympic Skateboarding Stylish (Again)](https://www.highsnobiety.com/p/nike-sb-2024-olympic-uniforms-japan-usa/)
-
-Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. The sport’s first time competing in the Olympics, Nike SB jumped on the opportun…
-
-*Published on: Mon, 22 Jul 2024 11:20:34 GMT*
-
-
-## Sommer Ray
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sun, 21 Jul 2024 14:11:00 GMT*
-
-
-## Sommer Ray
-
 ## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
 On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
 *Published on: Sun, 21 Jul 2024 20:31:00 GMT*
-
-
-## Sommer Ray
-
-## [Nike's Dropping a...Wonderful "Wizard of Oz" Skate Shoe?](https://www.highsnobiety.com/p/wizard-of-oz-nike-sb-dunks-2024/)
-
-We're off to see the Wizard, the wonderful Wizard of Oz...Nike Dunks?Nike SB has been quite busy this year, readying more skate-fied Nike classics and dishing …
-
-*Published on: Sun, 21 Jul 2024 15:52:00 GMT*
-
-
-## Sza
-
-## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
-
-Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
-
-*Published on: Mon, 22 Jul 2024 08:00:42 GMT*
 
 
 ## Sza
@@ -730,20 +721,11 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## Sza
 
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
-*Published on: Sun, 21 Jul 2024 14:11:00 GMT*
-
-
-## Sza
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
+*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
 
 
 ## Sza
@@ -755,13 +737,22 @@ We're off to see the Wizard, the wonderful Wizard of Oz...Nike Dunks?Nike SB has
 *Published on: Sun, 21 Jul 2024 15:52:00 GMT*
 
 
-## Sydney Sweeney
+## Sza
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
 
 Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
 
 *Published on: Mon, 22 Jul 2024 08:00:42 GMT*
+
+
+## Sza
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
 ## Sydney Sweeney
@@ -838,11 +829,29 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## Sydney Sweeney
 
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
-*Published on: Sun, 21 Jul 2024 14:11:00 GMT*
+*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+
+
+## Sydney Sweeney
+
+## [Nike's Dropping a...Wonderful "Wizard of Oz" Skate Shoe?](https://www.highsnobiety.com/p/wizard-of-oz-nike-sb-dunks-2024/)
+
+We're off to see the Wizard, the wonderful Wizard of Oz...Nike Dunks?Nike SB has been quite busy this year, readying more skate-fied Nike classics and dishing …
+
+*Published on: Sun, 21 Jul 2024 15:52:00 GMT*
+
+
+## Sydney Sweeney
+
+## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
+
+Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
+
+*Published on: Mon, 22 Jul 2024 08:00:42 GMT*
 
 
 ## Sydney Sweeney
@@ -854,7 +863,88 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 *Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
-## Sydney Sweeney
+## Walton Goggins
+
+## [New Balance's Ordinary Dad Shoes Are Getting Extraordinary Colorways (Finally)](https://www.highsnobiety.com/p/new-balance-725-sneakers-2024/)
+
+New Balance's 725 sneaker is one of the brand's more straightforward dad shoes. It is backed by a devoted fanbase that champions its chunky Y2K charm, maximum …
+
+*Published on: Mon, 22 Jul 2024 08:34:37 GMT*
+
+
+## Walton Goggins
+
+## [Nike's Admirable Gramps Sneaker Is a Legend Reborn ](https://www.highsnobiety.com/p/nike-ld-1000-sneakers-2024-where-to-buy/)
+
+It's been a big year for revivals, especially those plucked from Nike's archives. With the Swoosh dipping further and further back in its oldest shoes, it was …
+
+*Published on: Mon, 22 Jul 2024 09:00:49 GMT*
+
+
+## Walton Goggins
+
+## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
+
+Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
+
+*Published on: Mon, 22 Jul 2024 09:05:00 GMT*
+
+
+## Walton Goggins
+
+## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
+
+In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
+
+*Published on: Mon, 22 Jul 2024 09:11:00 GMT*
+
+
+## Walton Goggins
+
+## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
+
+To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
+
+*Published on: Mon, 22 Jul 2024 09:15:00 GMT*
+
+
+## Walton Goggins
+
+## [Crocs' Effortless Mule Went From Minimalist to Colorfully Maxed-Out ](https://www.highsnobiety.com/p/sns-crocs-clog-collab-2024/)
+
+In celebration of its 25th anniversary, Sneakersnstuff has linked with Crocs for a first-ever collaboration involving the effortless Dylan clog .The label ulti…
+
+*Published on: Mon, 22 Jul 2024 09:16:07 GMT*
+
+
+## Walton Goggins
+
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
+
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
+
+*Published on: Mon, 22 Jul 2024 09:30:00 GMT*
+
+
+## Walton Goggins
+
+## [Nike SB Is Making Olympic Skateboarding Stylish (Again)](https://www.highsnobiety.com/p/nike-sb-2024-olympic-uniforms-japan-usa/)
+
+Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. The sport’s first time competing in the Olympics, Nike SB jumped on the opportun…
+
+*Published on: Mon, 22 Jul 2024 11:20:34 GMT*
+
+
+## Walton Goggins
+
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
+
+*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+
+
+## Walton Goggins
 
 ## [Nike's Dropping a...Wonderful "Wizard of Oz" Skate Shoe?](https://www.highsnobiety.com/p/wizard-of-oz-nike-sb-dunks-2024/)
 
@@ -874,110 +964,11 @@ Let's get straight to the point here: Reebok is cooking right now.Earlier this w
 
 ## Walton Goggins
 
-## [New Balance's Ordinary Dad Shoes Are Getting Extraordinary Colorways (Finally)](https://www.highsnobiety.com/p/new-balance-725-sneakers-2024/)
-
-New Balance's 725 sneaker is one of the brand's more straightforward dad shoes. It is backed by a devoted fanbase that champions its chunky Y2K charm, maximum …
-
-*Published on: Mon, 22 Jul 2024 08:34:37 GMT*
-
-
-## Walton Goggins
-
-## [Nike's Admirable Gramps Sneaker Is a Legend Reborn ](https://www.highsnobiety.com/p/nike-ld-1000-sneakers-2024-where-to-buy/)
-
-It's been a big year for revivals, especially those plucked from Nike's archives. With the Swoosh dipping further and further back in its oldest shoes, it was …
-
-*Published on: Mon, 22 Jul 2024 09:00:49 GMT*
-
-
-## Walton Goggins
-
-## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
-
-Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
-
-*Published on: Mon, 22 Jul 2024 09:05:00 GMT*
-
-
-## Walton Goggins
-
-## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
-
-In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
-
-*Published on: Mon, 22 Jul 2024 09:11:00 GMT*
-
-
-## Walton Goggins
-
-## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
-
-To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
-
-*Published on: Mon, 22 Jul 2024 09:15:00 GMT*
-
-
-## Walton Goggins
-
-## [Crocs' Effortless Mule Went From Minimalist to Colorfully Maxed-Out ](https://www.highsnobiety.com/p/sns-crocs-clog-collab-2024/)
-
-In celebration of its 25th anniversary, Sneakersnstuff has linked with Crocs for a first-ever collaboration involving the effortless Dylan clog .The label ulti…
-
-*Published on: Mon, 22 Jul 2024 09:16:07 GMT*
-
-
-## Walton Goggins
-
-## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
-
-Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
-
-*Published on: Mon, 22 Jul 2024 09:30:00 GMT*
-
-
-## Walton Goggins
-
-## [Nike SB Is Making Olympic Skateboarding Stylish (Again)](https://www.highsnobiety.com/p/nike-sb-2024-olympic-uniforms-japan-usa/)
-
-Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. The sport’s first time competing in the Olympics, Nike SB jumped on the opportun…
-
-*Published on: Mon, 22 Jul 2024 11:20:34 GMT*
-
-
-## Walton Goggins
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sun, 21 Jul 2024 14:11:00 GMT*
-
-
-## Walton Goggins
-
 ## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
 On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
 *Published on: Sun, 21 Jul 2024 20:31:00 GMT*
-
-
-## Walton Goggins
-
-## [Nike's Dropping a...Wonderful "Wizard of Oz" Skate Shoe?](https://www.highsnobiety.com/p/wizard-of-oz-nike-sb-dunks-2024/)
-
-We're off to see the Wizard, the wonderful Wizard of Oz...Nike Dunks?Nike SB has been quite busy this year, readying more skate-fied Nike classics and dishing …
-
-*Published on: Sun, 21 Jul 2024 15:52:00 GMT*
-
-
-## Tom Holland
-
-## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
-
-Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
-
-*Published on: Mon, 22 Jul 2024 08:00:42 GMT*
 
 
 ## Tom Holland
@@ -1054,20 +1045,11 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## Tom Holland
 
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
-*Published on: Sun, 21 Jul 2024 14:11:00 GMT*
-
-
-## Tom Holland
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
+*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
 
 
 ## Tom Holland
@@ -1079,13 +1061,22 @@ We're off to see the Wizard, the wonderful Wizard of Oz...Nike Dunks?Nike SB has
 *Published on: Sun, 21 Jul 2024 15:52:00 GMT*
 
 
-## Gucci Mane
+## Tom Holland
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
 
 Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
 
 *Published on: Mon, 22 Jul 2024 08:00:42 GMT*
+
+
+## Tom Holland
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
 ## Gucci Mane
@@ -1162,11 +1153,29 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## Gucci Mane
 
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
-*Published on: Sun, 21 Jul 2024 14:11:00 GMT*
+*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+
+
+## Gucci Mane
+
+## [Nike's Dropping a...Wonderful "Wizard of Oz" Skate Shoe?](https://www.highsnobiety.com/p/wizard-of-oz-nike-sb-dunks-2024/)
+
+We're off to see the Wizard, the wonderful Wizard of Oz...Nike Dunks?Nike SB has been quite busy this year, readying more skate-fied Nike classics and dishing …
+
+*Published on: Sun, 21 Jul 2024 15:52:00 GMT*
+
+
+## Gucci Mane
+
+## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
+
+Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
+
+*Published on: Mon, 22 Jul 2024 08:00:42 GMT*
 
 
 ## Gucci Mane
@@ -1178,7 +1187,88 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 *Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
-## Gucci Mane
+## Harry Styles
+
+## [New Balance's Ordinary Dad Shoes Are Getting Extraordinary Colorways (Finally)](https://www.highsnobiety.com/p/new-balance-725-sneakers-2024/)
+
+New Balance's 725 sneaker is one of the brand's more straightforward dad shoes. It is backed by a devoted fanbase that champions its chunky Y2K charm, maximum …
+
+*Published on: Mon, 22 Jul 2024 08:34:37 GMT*
+
+
+## Harry Styles
+
+## [Nike's Admirable Gramps Sneaker Is a Legend Reborn ](https://www.highsnobiety.com/p/nike-ld-1000-sneakers-2024-where-to-buy/)
+
+It's been a big year for revivals, especially those plucked from Nike's archives. With the Swoosh dipping further and further back in its oldest shoes, it was …
+
+*Published on: Mon, 22 Jul 2024 09:00:49 GMT*
+
+
+## Harry Styles
+
+## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
+
+Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
+
+*Published on: Mon, 22 Jul 2024 09:05:00 GMT*
+
+
+## Harry Styles
+
+## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
+
+In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
+
+*Published on: Mon, 22 Jul 2024 09:11:00 GMT*
+
+
+## Harry Styles
+
+## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
+
+To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
+
+*Published on: Mon, 22 Jul 2024 09:15:00 GMT*
+
+
+## Harry Styles
+
+## [Crocs' Effortless Mule Went From Minimalist to Colorfully Maxed-Out ](https://www.highsnobiety.com/p/sns-crocs-clog-collab-2024/)
+
+In celebration of its 25th anniversary, Sneakersnstuff has linked with Crocs for a first-ever collaboration involving the effortless Dylan clog .The label ulti…
+
+*Published on: Mon, 22 Jul 2024 09:16:07 GMT*
+
+
+## Harry Styles
+
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
+
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
+
+*Published on: Mon, 22 Jul 2024 09:30:00 GMT*
+
+
+## Harry Styles
+
+## [Nike SB Is Making Olympic Skateboarding Stylish (Again)](https://www.highsnobiety.com/p/nike-sb-2024-olympic-uniforms-japan-usa/)
+
+Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. The sport’s first time competing in the Olympics, Nike SB jumped on the opportun…
+
+*Published on: Mon, 22 Jul 2024 11:20:34 GMT*
+
+
+## Harry Styles
+
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
+
+*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+
+
+## Harry Styles
 
 ## [Nike's Dropping a...Wonderful "Wizard of Oz" Skate Shoe?](https://www.highsnobiety.com/p/wizard-of-oz-nike-sb-dunks-2024/)
 
@@ -1198,110 +1288,11 @@ Let's get straight to the point here: Reebok is cooking right now.Earlier this w
 
 ## Harry Styles
 
-## [New Balance's Ordinary Dad Shoes Are Getting Extraordinary Colorways (Finally)](https://www.highsnobiety.com/p/new-balance-725-sneakers-2024/)
-
-New Balance's 725 sneaker is one of the brand's more straightforward dad shoes. It is backed by a devoted fanbase that champions its chunky Y2K charm, maximum …
-
-*Published on: Mon, 22 Jul 2024 08:34:37 GMT*
-
-
-## Harry Styles
-
-## [Nike's Admirable Gramps Sneaker Is a Legend Reborn ](https://www.highsnobiety.com/p/nike-ld-1000-sneakers-2024-where-to-buy/)
-
-It's been a big year for revivals, especially those plucked from Nike's archives. With the Swoosh dipping further and further back in its oldest shoes, it was …
-
-*Published on: Mon, 22 Jul 2024 09:00:49 GMT*
-
-
-## Harry Styles
-
-## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
-
-Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
-
-*Published on: Mon, 22 Jul 2024 09:05:00 GMT*
-
-
-## Harry Styles
-
-## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
-
-In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
-
-*Published on: Mon, 22 Jul 2024 09:11:00 GMT*
-
-
-## Harry Styles
-
-## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
-
-To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
-
-*Published on: Mon, 22 Jul 2024 09:15:00 GMT*
-
-
-## Harry Styles
-
-## [Crocs' Effortless Mule Went From Minimalist to Colorfully Maxed-Out ](https://www.highsnobiety.com/p/sns-crocs-clog-collab-2024/)
-
-In celebration of its 25th anniversary, Sneakersnstuff has linked with Crocs for a first-ever collaboration involving the effortless Dylan clog .The label ulti…
-
-*Published on: Mon, 22 Jul 2024 09:16:07 GMT*
-
-
-## Harry Styles
-
-## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
-
-Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
-
-*Published on: Mon, 22 Jul 2024 09:30:00 GMT*
-
-
-## Harry Styles
-
-## [Nike SB Is Making Olympic Skateboarding Stylish (Again)](https://www.highsnobiety.com/p/nike-sb-2024-olympic-uniforms-japan-usa/)
-
-Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. The sport’s first time competing in the Olympics, Nike SB jumped on the opportun…
-
-*Published on: Mon, 22 Jul 2024 11:20:34 GMT*
-
-
-## Harry Styles
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sun, 21 Jul 2024 14:11:00 GMT*
-
-
-## Harry Styles
-
 ## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
 On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
 *Published on: Sun, 21 Jul 2024 20:31:00 GMT*
-
-
-## Harry Styles
-
-## [Nike's Dropping a...Wonderful "Wizard of Oz" Skate Shoe?](https://www.highsnobiety.com/p/wizard-of-oz-nike-sb-dunks-2024/)
-
-We're off to see the Wizard, the wonderful Wizard of Oz...Nike Dunks?Nike SB has been quite busy this year, readying more skate-fied Nike classics and dishing …
-
-*Published on: Sun, 21 Jul 2024 15:52:00 GMT*
-
-
-## Jake Paul
-
-## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
-
-Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
-
-*Published on: Mon, 22 Jul 2024 08:00:42 GMT*
 
 
 ## Jake Paul
@@ -1378,20 +1369,11 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## Jake Paul
 
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
-*Published on: Sun, 21 Jul 2024 14:11:00 GMT*
-
-
-## Jake Paul
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
+*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
 
 
 ## Jake Paul
@@ -1403,13 +1385,22 @@ We're off to see the Wizard, the wonderful Wizard of Oz...Nike Dunks?Nike SB has
 *Published on: Sun, 21 Jul 2024 15:52:00 GMT*
 
 
-## Jameela Jamil
+## Jake Paul
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
 
 Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
 
 *Published on: Mon, 22 Jul 2024 08:00:42 GMT*
+
+
+## Jake Paul
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
 ## Jameela Jamil
@@ -1486,11 +1477,29 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## Jameela Jamil
 
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
-*Published on: Sun, 21 Jul 2024 14:11:00 GMT*
+*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+
+
+## Jameela Jamil
+
+## [Nike's Dropping a...Wonderful "Wizard of Oz" Skate Shoe?](https://www.highsnobiety.com/p/wizard-of-oz-nike-sb-dunks-2024/)
+
+We're off to see the Wizard, the wonderful Wizard of Oz...Nike Dunks?Nike SB has been quite busy this year, readying more skate-fied Nike classics and dishing …
+
+*Published on: Sun, 21 Jul 2024 15:52:00 GMT*
+
+
+## Jameela Jamil
+
+## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
+
+Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
+
+*Published on: Mon, 22 Jul 2024 08:00:42 GMT*
 
 
 ## Jameela Jamil
@@ -1502,7 +1511,88 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 *Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
-## Jameela Jamil
+## Elon Musk
+
+## [New Balance's Ordinary Dad Shoes Are Getting Extraordinary Colorways (Finally)](https://www.highsnobiety.com/p/new-balance-725-sneakers-2024/)
+
+New Balance's 725 sneaker is one of the brand's more straightforward dad shoes. It is backed by a devoted fanbase that champions its chunky Y2K charm, maximum …
+
+*Published on: Mon, 22 Jul 2024 08:34:37 GMT*
+
+
+## Elon Musk
+
+## [Nike's Admirable Gramps Sneaker Is a Legend Reborn ](https://www.highsnobiety.com/p/nike-ld-1000-sneakers-2024-where-to-buy/)
+
+It's been a big year for revivals, especially those plucked from Nike's archives. With the Swoosh dipping further and further back in its oldest shoes, it was …
+
+*Published on: Mon, 22 Jul 2024 09:00:49 GMT*
+
+
+## Elon Musk
+
+## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
+
+Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
+
+*Published on: Mon, 22 Jul 2024 09:05:00 GMT*
+
+
+## Elon Musk
+
+## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
+
+In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
+
+*Published on: Mon, 22 Jul 2024 09:11:00 GMT*
+
+
+## Elon Musk
+
+## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
+
+To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
+
+*Published on: Mon, 22 Jul 2024 09:15:00 GMT*
+
+
+## Elon Musk
+
+## [Crocs' Effortless Mule Went From Minimalist to Colorfully Maxed-Out ](https://www.highsnobiety.com/p/sns-crocs-clog-collab-2024/)
+
+In celebration of its 25th anniversary, Sneakersnstuff has linked with Crocs for a first-ever collaboration involving the effortless Dylan clog .The label ulti…
+
+*Published on: Mon, 22 Jul 2024 09:16:07 GMT*
+
+
+## Elon Musk
+
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
+
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
+
+*Published on: Mon, 22 Jul 2024 09:30:00 GMT*
+
+
+## Elon Musk
+
+## [Nike SB Is Making Olympic Skateboarding Stylish (Again)](https://www.highsnobiety.com/p/nike-sb-2024-olympic-uniforms-japan-usa/)
+
+Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. The sport’s first time competing in the Olympics, Nike SB jumped on the opportun…
+
+*Published on: Mon, 22 Jul 2024 11:20:34 GMT*
+
+
+## Elon Musk
+
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
+
+*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+
+
+## Elon Musk
 
 ## [Nike's Dropping a...Wonderful "Wizard of Oz" Skate Shoe?](https://www.highsnobiety.com/p/wizard-of-oz-nike-sb-dunks-2024/)
 
@@ -1522,110 +1612,11 @@ Let's get straight to the point here: Reebok is cooking right now.Earlier this w
 
 ## Elon Musk
 
-## [New Balance's Ordinary Dad Shoes Are Getting Extraordinary Colorways (Finally)](https://www.highsnobiety.com/p/new-balance-725-sneakers-2024/)
-
-New Balance's 725 sneaker is one of the brand's more straightforward dad shoes. It is backed by a devoted fanbase that champions its chunky Y2K charm, maximum …
-
-*Published on: Mon, 22 Jul 2024 08:34:37 GMT*
-
-
-## Elon Musk
-
-## [Nike's Admirable Gramps Sneaker Is a Legend Reborn ](https://www.highsnobiety.com/p/nike-ld-1000-sneakers-2024-where-to-buy/)
-
-It's been a big year for revivals, especially those plucked from Nike's archives. With the Swoosh dipping further and further back in its oldest shoes, it was …
-
-*Published on: Mon, 22 Jul 2024 09:00:49 GMT*
-
-
-## Elon Musk
-
-## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
-
-Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
-
-*Published on: Mon, 22 Jul 2024 09:05:00 GMT*
-
-
-## Elon Musk
-
-## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
-
-In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
-
-*Published on: Mon, 22 Jul 2024 09:11:00 GMT*
-
-
-## Elon Musk
-
-## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
-
-To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
-
-*Published on: Mon, 22 Jul 2024 09:15:00 GMT*
-
-
-## Elon Musk
-
-## [Crocs' Effortless Mule Went From Minimalist to Colorfully Maxed-Out ](https://www.highsnobiety.com/p/sns-crocs-clog-collab-2024/)
-
-In celebration of its 25th anniversary, Sneakersnstuff has linked with Crocs for a first-ever collaboration involving the effortless Dylan clog .The label ulti…
-
-*Published on: Mon, 22 Jul 2024 09:16:07 GMT*
-
-
-## Elon Musk
-
-## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
-
-Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
-
-*Published on: Mon, 22 Jul 2024 09:30:00 GMT*
-
-
-## Elon Musk
-
-## [Nike SB Is Making Olympic Skateboarding Stylish (Again)](https://www.highsnobiety.com/p/nike-sb-2024-olympic-uniforms-japan-usa/)
-
-Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. The sport’s first time competing in the Olympics, Nike SB jumped on the opportun…
-
-*Published on: Mon, 22 Jul 2024 11:20:34 GMT*
-
-
-## Elon Musk
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sun, 21 Jul 2024 14:11:00 GMT*
-
-
-## Elon Musk
-
 ## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
 On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
 *Published on: Sun, 21 Jul 2024 20:31:00 GMT*
-
-
-## Elon Musk
-
-## [Nike's Dropping a...Wonderful "Wizard of Oz" Skate Shoe?](https://www.highsnobiety.com/p/wizard-of-oz-nike-sb-dunks-2024/)
-
-We're off to see the Wizard, the wonderful Wizard of Oz...Nike Dunks?Nike SB has been quite busy this year, readying more skate-fied Nike classics and dishing …
-
-*Published on: Sun, 21 Jul 2024 15:52:00 GMT*
-
-
-## Gabrielle Union
-
-## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
-
-Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
-
-*Published on: Mon, 22 Jul 2024 08:00:42 GMT*
 
 
 ## Gabrielle Union
@@ -1702,20 +1693,11 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## Gabrielle Union
 
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
-*Published on: Sun, 21 Jul 2024 14:11:00 GMT*
-
-
-## Gabrielle Union
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
+*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
 
 
 ## Gabrielle Union
@@ -1727,13 +1709,22 @@ We're off to see the Wizard, the wonderful Wizard of Oz...Nike Dunks?Nike SB has
 *Published on: Sun, 21 Jul 2024 15:52:00 GMT*
 
 
-## Giancarlo Esposito
+## Gabrielle Union
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
 
 Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
 
 *Published on: Mon, 22 Jul 2024 08:00:42 GMT*
+
+
+## Gabrielle Union
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
 ## Giancarlo Esposito
@@ -1810,11 +1801,29 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## Giancarlo Esposito
 
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
-*Published on: Sun, 21 Jul 2024 14:11:00 GMT*
+*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+
+
+## Giancarlo Esposito
+
+## [Nike's Dropping a...Wonderful "Wizard of Oz" Skate Shoe?](https://www.highsnobiety.com/p/wizard-of-oz-nike-sb-dunks-2024/)
+
+We're off to see the Wizard, the wonderful Wizard of Oz...Nike Dunks?Nike SB has been quite busy this year, readying more skate-fied Nike classics and dishing …
+
+*Published on: Sun, 21 Jul 2024 15:52:00 GMT*
+
+
+## Giancarlo Esposito
+
+## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
+
+Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
+
+*Published on: Mon, 22 Jul 2024 08:00:42 GMT*
 
 
 ## Giancarlo Esposito
@@ -1826,7 +1835,88 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 *Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
-## Giancarlo Esposito
+## Gillian Jacobs
+
+## [New Balance's Ordinary Dad Shoes Are Getting Extraordinary Colorways (Finally)](https://www.highsnobiety.com/p/new-balance-725-sneakers-2024/)
+
+New Balance's 725 sneaker is one of the brand's more straightforward dad shoes. It is backed by a devoted fanbase that champions its chunky Y2K charm, maximum …
+
+*Published on: Mon, 22 Jul 2024 08:34:37 GMT*
+
+
+## Gillian Jacobs
+
+## [Nike's Admirable Gramps Sneaker Is a Legend Reborn ](https://www.highsnobiety.com/p/nike-ld-1000-sneakers-2024-where-to-buy/)
+
+It's been a big year for revivals, especially those plucked from Nike's archives. With the Swoosh dipping further and further back in its oldest shoes, it was …
+
+*Published on: Mon, 22 Jul 2024 09:00:49 GMT*
+
+
+## Gillian Jacobs
+
+## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
+
+Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
+
+*Published on: Mon, 22 Jul 2024 09:05:00 GMT*
+
+
+## Gillian Jacobs
+
+## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
+
+In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
+
+*Published on: Mon, 22 Jul 2024 09:11:00 GMT*
+
+
+## Gillian Jacobs
+
+## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
+
+To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
+
+*Published on: Mon, 22 Jul 2024 09:15:00 GMT*
+
+
+## Gillian Jacobs
+
+## [Crocs' Effortless Mule Went From Minimalist to Colorfully Maxed-Out ](https://www.highsnobiety.com/p/sns-crocs-clog-collab-2024/)
+
+In celebration of its 25th anniversary, Sneakersnstuff has linked with Crocs for a first-ever collaboration involving the effortless Dylan clog .The label ulti…
+
+*Published on: Mon, 22 Jul 2024 09:16:07 GMT*
+
+
+## Gillian Jacobs
+
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
+
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
+
+*Published on: Mon, 22 Jul 2024 09:30:00 GMT*
+
+
+## Gillian Jacobs
+
+## [Nike SB Is Making Olympic Skateboarding Stylish (Again)](https://www.highsnobiety.com/p/nike-sb-2024-olympic-uniforms-japan-usa/)
+
+Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. The sport’s first time competing in the Olympics, Nike SB jumped on the opportun…
+
+*Published on: Mon, 22 Jul 2024 11:20:34 GMT*
+
+
+## Gillian Jacobs
+
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
+
+*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+
+
+## Gillian Jacobs
 
 ## [Nike's Dropping a...Wonderful "Wizard of Oz" Skate Shoe?](https://www.highsnobiety.com/p/wizard-of-oz-nike-sb-dunks-2024/)
 
@@ -1846,110 +1936,11 @@ Let's get straight to the point here: Reebok is cooking right now.Earlier this w
 
 ## Gillian Jacobs
 
-## [New Balance's Ordinary Dad Shoes Are Getting Extraordinary Colorways (Finally)](https://www.highsnobiety.com/p/new-balance-725-sneakers-2024/)
-
-New Balance's 725 sneaker is one of the brand's more straightforward dad shoes. It is backed by a devoted fanbase that champions its chunky Y2K charm, maximum …
-
-*Published on: Mon, 22 Jul 2024 08:34:37 GMT*
-
-
-## Gillian Jacobs
-
-## [Nike's Admirable Gramps Sneaker Is a Legend Reborn ](https://www.highsnobiety.com/p/nike-ld-1000-sneakers-2024-where-to-buy/)
-
-It's been a big year for revivals, especially those plucked from Nike's archives. With the Swoosh dipping further and further back in its oldest shoes, it was …
-
-*Published on: Mon, 22 Jul 2024 09:00:49 GMT*
-
-
-## Gillian Jacobs
-
-## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
-
-Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
-
-*Published on: Mon, 22 Jul 2024 09:05:00 GMT*
-
-
-## Gillian Jacobs
-
-## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
-
-In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
-
-*Published on: Mon, 22 Jul 2024 09:11:00 GMT*
-
-
-## Gillian Jacobs
-
-## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
-
-To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
-
-*Published on: Mon, 22 Jul 2024 09:15:00 GMT*
-
-
-## Gillian Jacobs
-
-## [Crocs' Effortless Mule Went From Minimalist to Colorfully Maxed-Out ](https://www.highsnobiety.com/p/sns-crocs-clog-collab-2024/)
-
-In celebration of its 25th anniversary, Sneakersnstuff has linked with Crocs for a first-ever collaboration involving the effortless Dylan clog .The label ulti…
-
-*Published on: Mon, 22 Jul 2024 09:16:07 GMT*
-
-
-## Gillian Jacobs
-
-## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
-
-Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
-
-*Published on: Mon, 22 Jul 2024 09:30:00 GMT*
-
-
-## Gillian Jacobs
-
-## [Nike SB Is Making Olympic Skateboarding Stylish (Again)](https://www.highsnobiety.com/p/nike-sb-2024-olympic-uniforms-japan-usa/)
-
-Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. The sport’s first time competing in the Olympics, Nike SB jumped on the opportun…
-
-*Published on: Mon, 22 Jul 2024 11:20:34 GMT*
-
-
-## Gillian Jacobs
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sun, 21 Jul 2024 14:11:00 GMT*
-
-
-## Gillian Jacobs
-
 ## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
 On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
 *Published on: Sun, 21 Jul 2024 20:31:00 GMT*
-
-
-## Gillian Jacobs
-
-## [Nike's Dropping a...Wonderful "Wizard of Oz" Skate Shoe?](https://www.highsnobiety.com/p/wizard-of-oz-nike-sb-dunks-2024/)
-
-We're off to see the Wizard, the wonderful Wizard of Oz...Nike Dunks?Nike SB has been quite busy this year, readying more skate-fied Nike classics and dishing …
-
-*Published on: Sun, 21 Jul 2024 15:52:00 GMT*
-
-
-## Jason Mantzoukas
-
-## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
-
-Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
-
-*Published on: Mon, 22 Jul 2024 08:00:42 GMT*
 
 
 ## Jason Mantzoukas
@@ -2026,20 +2017,11 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## Jason Mantzoukas
 
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
-*Published on: Sun, 21 Jul 2024 14:11:00 GMT*
-
-
-## Jason Mantzoukas
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
+*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
 
 
 ## Jason Mantzoukas
@@ -2051,13 +2033,22 @@ We're off to see the Wizard, the wonderful Wizard of Oz...Nike Dunks?Nike SB has
 *Published on: Sun, 21 Jul 2024 15:52:00 GMT*
 
 
-## JB Smoove
+## Jason Mantzoukas
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
 
 Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
 
 *Published on: Mon, 22 Jul 2024 08:00:42 GMT*
+
+
+## Jason Mantzoukas
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
 ## JB Smoove
@@ -2134,11 +2125,29 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## JB Smoove
 
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
-*Published on: Sun, 21 Jul 2024 14:11:00 GMT*
+*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+
+
+## JB Smoove
+
+## [Nike's Dropping a...Wonderful "Wizard of Oz" Skate Shoe?](https://www.highsnobiety.com/p/wizard-of-oz-nike-sb-dunks-2024/)
+
+We're off to see the Wizard, the wonderful Wizard of Oz...Nike Dunks?Nike SB has been quite busy this year, readying more skate-fied Nike classics and dishing …
+
+*Published on: Sun, 21 Jul 2024 15:52:00 GMT*
+
+
+## JB Smoove
+
+## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
+
+Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
+
+*Published on: Mon, 22 Jul 2024 08:00:42 GMT*
 
 
 ## JB Smoove
@@ -2150,7 +2159,88 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 *Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
-## JB Smoove
+## Madison Pettis
+
+## [New Balance's Ordinary Dad Shoes Are Getting Extraordinary Colorways (Finally)](https://www.highsnobiety.com/p/new-balance-725-sneakers-2024/)
+
+New Balance's 725 sneaker is one of the brand's more straightforward dad shoes. It is backed by a devoted fanbase that champions its chunky Y2K charm, maximum …
+
+*Published on: Mon, 22 Jul 2024 08:34:37 GMT*
+
+
+## Madison Pettis
+
+## [Nike's Admirable Gramps Sneaker Is a Legend Reborn ](https://www.highsnobiety.com/p/nike-ld-1000-sneakers-2024-where-to-buy/)
+
+It's been a big year for revivals, especially those plucked from Nike's archives. With the Swoosh dipping further and further back in its oldest shoes, it was …
+
+*Published on: Mon, 22 Jul 2024 09:00:49 GMT*
+
+
+## Madison Pettis
+
+## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
+
+Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
+
+*Published on: Mon, 22 Jul 2024 09:05:00 GMT*
+
+
+## Madison Pettis
+
+## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
+
+In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
+
+*Published on: Mon, 22 Jul 2024 09:11:00 GMT*
+
+
+## Madison Pettis
+
+## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
+
+To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
+
+*Published on: Mon, 22 Jul 2024 09:15:00 GMT*
+
+
+## Madison Pettis
+
+## [Crocs' Effortless Mule Went From Minimalist to Colorfully Maxed-Out ](https://www.highsnobiety.com/p/sns-crocs-clog-collab-2024/)
+
+In celebration of its 25th anniversary, Sneakersnstuff has linked with Crocs for a first-ever collaboration involving the effortless Dylan clog .The label ulti…
+
+*Published on: Mon, 22 Jul 2024 09:16:07 GMT*
+
+
+## Madison Pettis
+
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
+
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
+
+*Published on: Mon, 22 Jul 2024 09:30:00 GMT*
+
+
+## Madison Pettis
+
+## [Nike SB Is Making Olympic Skateboarding Stylish (Again)](https://www.highsnobiety.com/p/nike-sb-2024-olympic-uniforms-japan-usa/)
+
+Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. The sport’s first time competing in the Olympics, Nike SB jumped on the opportun…
+
+*Published on: Mon, 22 Jul 2024 11:20:34 GMT*
+
+
+## Madison Pettis
+
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
+
+*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+
+
+## Madison Pettis
 
 ## [Nike's Dropping a...Wonderful "Wizard of Oz" Skate Shoe?](https://www.highsnobiety.com/p/wizard-of-oz-nike-sb-dunks-2024/)
 
@@ -2170,110 +2260,11 @@ Let's get straight to the point here: Reebok is cooking right now.Earlier this w
 
 ## Madison Pettis
 
-## [New Balance's Ordinary Dad Shoes Are Getting Extraordinary Colorways (Finally)](https://www.highsnobiety.com/p/new-balance-725-sneakers-2024/)
-
-New Balance's 725 sneaker is one of the brand's more straightforward dad shoes. It is backed by a devoted fanbase that champions its chunky Y2K charm, maximum …
-
-*Published on: Mon, 22 Jul 2024 08:34:37 GMT*
-
-
-## Madison Pettis
-
-## [Nike's Admirable Gramps Sneaker Is a Legend Reborn ](https://www.highsnobiety.com/p/nike-ld-1000-sneakers-2024-where-to-buy/)
-
-It's been a big year for revivals, especially those plucked from Nike's archives. With the Swoosh dipping further and further back in its oldest shoes, it was …
-
-*Published on: Mon, 22 Jul 2024 09:00:49 GMT*
-
-
-## Madison Pettis
-
-## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
-
-Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
-
-*Published on: Mon, 22 Jul 2024 09:05:00 GMT*
-
-
-## Madison Pettis
-
-## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
-
-In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
-
-*Published on: Mon, 22 Jul 2024 09:11:00 GMT*
-
-
-## Madison Pettis
-
-## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
-
-To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
-
-*Published on: Mon, 22 Jul 2024 09:15:00 GMT*
-
-
-## Madison Pettis
-
-## [Crocs' Effortless Mule Went From Minimalist to Colorfully Maxed-Out ](https://www.highsnobiety.com/p/sns-crocs-clog-collab-2024/)
-
-In celebration of its 25th anniversary, Sneakersnstuff has linked with Crocs for a first-ever collaboration involving the effortless Dylan clog .The label ulti…
-
-*Published on: Mon, 22 Jul 2024 09:16:07 GMT*
-
-
-## Madison Pettis
-
-## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
-
-Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
-
-*Published on: Mon, 22 Jul 2024 09:30:00 GMT*
-
-
-## Madison Pettis
-
-## [Nike SB Is Making Olympic Skateboarding Stylish (Again)](https://www.highsnobiety.com/p/nike-sb-2024-olympic-uniforms-japan-usa/)
-
-Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. The sport’s first time competing in the Olympics, Nike SB jumped on the opportun…
-
-*Published on: Mon, 22 Jul 2024 11:20:34 GMT*
-
-
-## Madison Pettis
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sun, 21 Jul 2024 14:11:00 GMT*
-
-
-## Madison Pettis
-
 ## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
 On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
 *Published on: Sun, 21 Jul 2024 20:31:00 GMT*
-
-
-## Madison Pettis
-
-## [Nike's Dropping a...Wonderful "Wizard of Oz" Skate Shoe?](https://www.highsnobiety.com/p/wizard-of-oz-nike-sb-dunks-2024/)
-
-We're off to see the Wizard, the wonderful Wizard of Oz...Nike Dunks?Nike SB has been quite busy this year, readying more skate-fied Nike classics and dishing …
-
-*Published on: Sun, 21 Jul 2024 15:52:00 GMT*
-
-
-## Austin Butler
-
-## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
-
-Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
-
-*Published on: Mon, 22 Jul 2024 08:00:42 GMT*
 
 
 ## Austin Butler
@@ -2350,20 +2341,11 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## Austin Butler
 
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
-*Published on: Sun, 21 Jul 2024 14:11:00 GMT*
-
-
-## Austin Butler
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
+*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
 
 
 ## Austin Butler
@@ -2375,13 +2357,22 @@ We're off to see the Wizard, the wonderful Wizard of Oz...Nike Dunks?Nike SB has
 *Published on: Sun, 21 Jul 2024 15:52:00 GMT*
 
 
-## Mark Zuckerberg
+## Austin Butler
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
 
 Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
 
 *Published on: Mon, 22 Jul 2024 08:00:42 GMT*
+
+
+## Austin Butler
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
 ## Mark Zuckerberg
@@ -2458,11 +2449,29 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## Mark Zuckerberg
 
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
-*Published on: Sun, 21 Jul 2024 14:11:00 GMT*
+*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+
+
+## Mark Zuckerberg
+
+## [Nike's Dropping a...Wonderful "Wizard of Oz" Skate Shoe?](https://www.highsnobiety.com/p/wizard-of-oz-nike-sb-dunks-2024/)
+
+We're off to see the Wizard, the wonderful Wizard of Oz...Nike Dunks?Nike SB has been quite busy this year, readying more skate-fied Nike classics and dishing …
+
+*Published on: Sun, 21 Jul 2024 15:52:00 GMT*
+
+
+## Mark Zuckerberg
+
+## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
+
+Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
+
+*Published on: Mon, 22 Jul 2024 08:00:42 GMT*
 
 
 ## Mark Zuckerberg
@@ -2474,7 +2483,88 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 *Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
-## Mark Zuckerberg
+## Ariana Grande
+
+## [New Balance's Ordinary Dad Shoes Are Getting Extraordinary Colorways (Finally)](https://www.highsnobiety.com/p/new-balance-725-sneakers-2024/)
+
+New Balance's 725 sneaker is one of the brand's more straightforward dad shoes. It is backed by a devoted fanbase that champions its chunky Y2K charm, maximum …
+
+*Published on: Mon, 22 Jul 2024 08:34:37 GMT*
+
+
+## Ariana Grande
+
+## [Nike's Admirable Gramps Sneaker Is a Legend Reborn ](https://www.highsnobiety.com/p/nike-ld-1000-sneakers-2024-where-to-buy/)
+
+It's been a big year for revivals, especially those plucked from Nike's archives. With the Swoosh dipping further and further back in its oldest shoes, it was …
+
+*Published on: Mon, 22 Jul 2024 09:00:49 GMT*
+
+
+## Ariana Grande
+
+## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
+
+Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
+
+*Published on: Mon, 22 Jul 2024 09:05:00 GMT*
+
+
+## Ariana Grande
+
+## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
+
+In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
+
+*Published on: Mon, 22 Jul 2024 09:11:00 GMT*
+
+
+## Ariana Grande
+
+## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
+
+To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
+
+*Published on: Mon, 22 Jul 2024 09:15:00 GMT*
+
+
+## Ariana Grande
+
+## [Crocs' Effortless Mule Went From Minimalist to Colorfully Maxed-Out ](https://www.highsnobiety.com/p/sns-crocs-clog-collab-2024/)
+
+In celebration of its 25th anniversary, Sneakersnstuff has linked with Crocs for a first-ever collaboration involving the effortless Dylan clog .The label ulti…
+
+*Published on: Mon, 22 Jul 2024 09:16:07 GMT*
+
+
+## Ariana Grande
+
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
+
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
+
+*Published on: Mon, 22 Jul 2024 09:30:00 GMT*
+
+
+## Ariana Grande
+
+## [Nike SB Is Making Olympic Skateboarding Stylish (Again)](https://www.highsnobiety.com/p/nike-sb-2024-olympic-uniforms-japan-usa/)
+
+Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. The sport’s first time competing in the Olympics, Nike SB jumped on the opportun…
+
+*Published on: Mon, 22 Jul 2024 11:20:34 GMT*
+
+
+## Ariana Grande
+
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
+
+*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+
+
+## Ariana Grande
 
 ## [Nike's Dropping a...Wonderful "Wizard of Oz" Skate Shoe?](https://www.highsnobiety.com/p/wizard-of-oz-nike-sb-dunks-2024/)
 
@@ -2494,110 +2584,11 @@ Let's get straight to the point here: Reebok is cooking right now.Earlier this w
 
 ## Ariana Grande
 
-## [New Balance's Ordinary Dad Shoes Are Getting Extraordinary Colorways (Finally)](https://www.highsnobiety.com/p/new-balance-725-sneakers-2024/)
-
-New Balance's 725 sneaker is one of the brand's more straightforward dad shoes. It is backed by a devoted fanbase that champions its chunky Y2K charm, maximum …
-
-*Published on: Mon, 22 Jul 2024 08:34:37 GMT*
-
-
-## Ariana Grande
-
-## [Nike's Admirable Gramps Sneaker Is a Legend Reborn ](https://www.highsnobiety.com/p/nike-ld-1000-sneakers-2024-where-to-buy/)
-
-It's been a big year for revivals, especially those plucked from Nike's archives. With the Swoosh dipping further and further back in its oldest shoes, it was …
-
-*Published on: Mon, 22 Jul 2024 09:00:49 GMT*
-
-
-## Ariana Grande
-
-## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
-
-Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
-
-*Published on: Mon, 22 Jul 2024 09:05:00 GMT*
-
-
-## Ariana Grande
-
-## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
-
-In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
-
-*Published on: Mon, 22 Jul 2024 09:11:00 GMT*
-
-
-## Ariana Grande
-
-## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
-
-To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
-
-*Published on: Mon, 22 Jul 2024 09:15:00 GMT*
-
-
-## Ariana Grande
-
-## [Crocs' Effortless Mule Went From Minimalist to Colorfully Maxed-Out ](https://www.highsnobiety.com/p/sns-crocs-clog-collab-2024/)
-
-In celebration of its 25th anniversary, Sneakersnstuff has linked with Crocs for a first-ever collaboration involving the effortless Dylan clog .The label ulti…
-
-*Published on: Mon, 22 Jul 2024 09:16:07 GMT*
-
-
-## Ariana Grande
-
-## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
-
-Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
-
-*Published on: Mon, 22 Jul 2024 09:30:00 GMT*
-
-
-## Ariana Grande
-
-## [Nike SB Is Making Olympic Skateboarding Stylish (Again)](https://www.highsnobiety.com/p/nike-sb-2024-olympic-uniforms-japan-usa/)
-
-Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. The sport’s first time competing in the Olympics, Nike SB jumped on the opportun…
-
-*Published on: Mon, 22 Jul 2024 11:20:34 GMT*
-
-
-## Ariana Grande
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sun, 21 Jul 2024 14:11:00 GMT*
-
-
-## Ariana Grande
-
 ## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
 On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
 *Published on: Sun, 21 Jul 2024 20:31:00 GMT*
-
-
-## Ariana Grande
-
-## [Nike's Dropping a...Wonderful "Wizard of Oz" Skate Shoe?](https://www.highsnobiety.com/p/wizard-of-oz-nike-sb-dunks-2024/)
-
-We're off to see the Wizard, the wonderful Wizard of Oz...Nike Dunks?Nike SB has been quite busy this year, readying more skate-fied Nike classics and dishing …
-
-*Published on: Sun, 21 Jul 2024 15:52:00 GMT*
-
-
-## Livvy Dunne
-
-## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
-
-Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
-
-*Published on: Mon, 22 Jul 2024 08:00:42 GMT*
 
 
 ## Livvy Dunne
@@ -2674,20 +2665,11 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## Livvy Dunne
 
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
-*Published on: Sun, 21 Jul 2024 14:11:00 GMT*
-
-
-## Livvy Dunne
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
+*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
 
 
 ## Livvy Dunne
@@ -2699,13 +2681,22 @@ We're off to see the Wizard, the wonderful Wizard of Oz...Nike Dunks?Nike SB has
 *Published on: Sun, 21 Jul 2024 15:52:00 GMT*
 
 
-## Ali Wong
+## Livvy Dunne
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
 
 Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
 
 *Published on: Mon, 22 Jul 2024 08:00:42 GMT*
+
+
+## Livvy Dunne
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
 ## Ali Wong
@@ -2782,11 +2773,29 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## Ali Wong
 
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
-*Published on: Sun, 21 Jul 2024 14:11:00 GMT*
+*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+
+
+## Ali Wong
+
+## [Nike's Dropping a...Wonderful "Wizard of Oz" Skate Shoe?](https://www.highsnobiety.com/p/wizard-of-oz-nike-sb-dunks-2024/)
+
+We're off to see the Wizard, the wonderful Wizard of Oz...Nike Dunks?Nike SB has been quite busy this year, readying more skate-fied Nike classics and dishing …
+
+*Published on: Sun, 21 Jul 2024 15:52:00 GMT*
+
+
+## Ali Wong
+
+## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
+
+Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
+
+*Published on: Mon, 22 Jul 2024 08:00:42 GMT*
 
 
 ## Ali Wong
@@ -2798,7 +2807,88 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 *Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
-## Ali Wong
+## Lizzo
+
+## [New Balance's Ordinary Dad Shoes Are Getting Extraordinary Colorways (Finally)](https://www.highsnobiety.com/p/new-balance-725-sneakers-2024/)
+
+New Balance's 725 sneaker is one of the brand's more straightforward dad shoes. It is backed by a devoted fanbase that champions its chunky Y2K charm, maximum …
+
+*Published on: Mon, 22 Jul 2024 08:34:37 GMT*
+
+
+## Lizzo
+
+## [Nike's Admirable Gramps Sneaker Is a Legend Reborn ](https://www.highsnobiety.com/p/nike-ld-1000-sneakers-2024-where-to-buy/)
+
+It's been a big year for revivals, especially those plucked from Nike's archives. With the Swoosh dipping further and further back in its oldest shoes, it was …
+
+*Published on: Mon, 22 Jul 2024 09:00:49 GMT*
+
+
+## Lizzo
+
+## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
+
+Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
+
+*Published on: Mon, 22 Jul 2024 09:05:00 GMT*
+
+
+## Lizzo
+
+## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
+
+In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
+
+*Published on: Mon, 22 Jul 2024 09:11:00 GMT*
+
+
+## Lizzo
+
+## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
+
+To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
+
+*Published on: Mon, 22 Jul 2024 09:15:00 GMT*
+
+
+## Lizzo
+
+## [Crocs' Effortless Mule Went From Minimalist to Colorfully Maxed-Out ](https://www.highsnobiety.com/p/sns-crocs-clog-collab-2024/)
+
+In celebration of its 25th anniversary, Sneakersnstuff has linked with Crocs for a first-ever collaboration involving the effortless Dylan clog .The label ulti…
+
+*Published on: Mon, 22 Jul 2024 09:16:07 GMT*
+
+
+## Lizzo
+
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
+
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
+
+*Published on: Mon, 22 Jul 2024 09:30:00 GMT*
+
+
+## Lizzo
+
+## [Nike SB Is Making Olympic Skateboarding Stylish (Again)](https://www.highsnobiety.com/p/nike-sb-2024-olympic-uniforms-japan-usa/)
+
+Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. The sport’s first time competing in the Olympics, Nike SB jumped on the opportun…
+
+*Published on: Mon, 22 Jul 2024 11:20:34 GMT*
+
+
+## Lizzo
+
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
+
+*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+
+
+## Lizzo
 
 ## [Nike's Dropping a...Wonderful "Wizard of Oz" Skate Shoe?](https://www.highsnobiety.com/p/wizard-of-oz-nike-sb-dunks-2024/)
 
@@ -2818,110 +2908,11 @@ Let's get straight to the point here: Reebok is cooking right now.Earlier this w
 
 ## Lizzo
 
-## [New Balance's Ordinary Dad Shoes Are Getting Extraordinary Colorways (Finally)](https://www.highsnobiety.com/p/new-balance-725-sneakers-2024/)
-
-New Balance's 725 sneaker is one of the brand's more straightforward dad shoes. It is backed by a devoted fanbase that champions its chunky Y2K charm, maximum …
-
-*Published on: Mon, 22 Jul 2024 08:34:37 GMT*
-
-
-## Lizzo
-
-## [Nike's Admirable Gramps Sneaker Is a Legend Reborn ](https://www.highsnobiety.com/p/nike-ld-1000-sneakers-2024-where-to-buy/)
-
-It's been a big year for revivals, especially those plucked from Nike's archives. With the Swoosh dipping further and further back in its oldest shoes, it was …
-
-*Published on: Mon, 22 Jul 2024 09:00:49 GMT*
-
-
-## Lizzo
-
-## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
-
-Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
-
-*Published on: Mon, 22 Jul 2024 09:05:00 GMT*
-
-
-## Lizzo
-
-## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
-
-In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
-
-*Published on: Mon, 22 Jul 2024 09:11:00 GMT*
-
-
-## Lizzo
-
-## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
-
-To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
-
-*Published on: Mon, 22 Jul 2024 09:15:00 GMT*
-
-
-## Lizzo
-
-## [Crocs' Effortless Mule Went From Minimalist to Colorfully Maxed-Out ](https://www.highsnobiety.com/p/sns-crocs-clog-collab-2024/)
-
-In celebration of its 25th anniversary, Sneakersnstuff has linked with Crocs for a first-ever collaboration involving the effortless Dylan clog .The label ulti…
-
-*Published on: Mon, 22 Jul 2024 09:16:07 GMT*
-
-
-## Lizzo
-
-## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
-
-Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
-
-*Published on: Mon, 22 Jul 2024 09:30:00 GMT*
-
-
-## Lizzo
-
-## [Nike SB Is Making Olympic Skateboarding Stylish (Again)](https://www.highsnobiety.com/p/nike-sb-2024-olympic-uniforms-japan-usa/)
-
-Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. The sport’s first time competing in the Olympics, Nike SB jumped on the opportun…
-
-*Published on: Mon, 22 Jul 2024 11:20:34 GMT*
-
-
-## Lizzo
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sun, 21 Jul 2024 14:11:00 GMT*
-
-
-## Lizzo
-
 ## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
 On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
 *Published on: Sun, 21 Jul 2024 20:31:00 GMT*
-
-
-## Lizzo
-
-## [Nike's Dropping a...Wonderful "Wizard of Oz" Skate Shoe?](https://www.highsnobiety.com/p/wizard-of-oz-nike-sb-dunks-2024/)
-
-We're off to see the Wizard, the wonderful Wizard of Oz...Nike Dunks?Nike SB has been quite busy this year, readying more skate-fied Nike classics and dishing …
-
-*Published on: Sun, 21 Jul 2024 15:52:00 GMT*
-
-
-## Alison Brie
-
-## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
-
-Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
-
-*Published on: Mon, 22 Jul 2024 08:00:42 GMT*
 
 
 ## Alison Brie
@@ -2998,20 +2989,11 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## Alison Brie
 
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
-*Published on: Sun, 21 Jul 2024 14:11:00 GMT*
-
-
-## Alison Brie
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
+*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
 
 
 ## Alison Brie
@@ -3023,13 +3005,22 @@ We're off to see the Wizard, the wonderful Wizard of Oz...Nike Dunks?Nike SB has
 *Published on: Sun, 21 Jul 2024 15:52:00 GMT*
 
 
-## Lil Wayne
+## Alison Brie
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
 
 Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
 
 *Published on: Mon, 22 Jul 2024 08:00:42 GMT*
+
+
+## Alison Brie
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
 ## Lil Wayne
@@ -3106,11 +3097,29 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## Lil Wayne
 
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
-*Published on: Sun, 21 Jul 2024 14:11:00 GMT*
+*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+
+
+## Lil Wayne
+
+## [Nike's Dropping a...Wonderful "Wizard of Oz" Skate Shoe?](https://www.highsnobiety.com/p/wizard-of-oz-nike-sb-dunks-2024/)
+
+We're off to see the Wizard, the wonderful Wizard of Oz...Nike Dunks?Nike SB has been quite busy this year, readying more skate-fied Nike classics and dishing …
+
+*Published on: Sun, 21 Jul 2024 15:52:00 GMT*
+
+
+## Lil Wayne
+
+## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
+
+Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
+
+*Published on: Mon, 22 Jul 2024 08:00:42 GMT*
 
 
 ## Lil Wayne
@@ -3122,7 +3131,88 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 *Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
-## Lil Wayne
+## Adele
+
+## [New Balance's Ordinary Dad Shoes Are Getting Extraordinary Colorways (Finally)](https://www.highsnobiety.com/p/new-balance-725-sneakers-2024/)
+
+New Balance's 725 sneaker is one of the brand's more straightforward dad shoes. It is backed by a devoted fanbase that champions its chunky Y2K charm, maximum …
+
+*Published on: Mon, 22 Jul 2024 08:34:37 GMT*
+
+
+## Adele
+
+## [Nike's Admirable Gramps Sneaker Is a Legend Reborn ](https://www.highsnobiety.com/p/nike-ld-1000-sneakers-2024-where-to-buy/)
+
+It's been a big year for revivals, especially those plucked from Nike's archives. With the Swoosh dipping further and further back in its oldest shoes, it was …
+
+*Published on: Mon, 22 Jul 2024 09:00:49 GMT*
+
+
+## Adele
+
+## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
+
+Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
+
+*Published on: Mon, 22 Jul 2024 09:05:00 GMT*
+
+
+## Adele
+
+## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
+
+In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
+
+*Published on: Mon, 22 Jul 2024 09:11:00 GMT*
+
+
+## Adele
+
+## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
+
+To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
+
+*Published on: Mon, 22 Jul 2024 09:15:00 GMT*
+
+
+## Adele
+
+## [Crocs' Effortless Mule Went From Minimalist to Colorfully Maxed-Out ](https://www.highsnobiety.com/p/sns-crocs-clog-collab-2024/)
+
+In celebration of its 25th anniversary, Sneakersnstuff has linked with Crocs for a first-ever collaboration involving the effortless Dylan clog .The label ulti…
+
+*Published on: Mon, 22 Jul 2024 09:16:07 GMT*
+
+
+## Adele
+
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
+
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
+
+*Published on: Mon, 22 Jul 2024 09:30:00 GMT*
+
+
+## Adele
+
+## [Nike SB Is Making Olympic Skateboarding Stylish (Again)](https://www.highsnobiety.com/p/nike-sb-2024-olympic-uniforms-japan-usa/)
+
+Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. The sport’s first time competing in the Olympics, Nike SB jumped on the opportun…
+
+*Published on: Mon, 22 Jul 2024 11:20:34 GMT*
+
+
+## Adele
+
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
+
+*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+
+
+## Adele
 
 ## [Nike's Dropping a...Wonderful "Wizard of Oz" Skate Shoe?](https://www.highsnobiety.com/p/wizard-of-oz-nike-sb-dunks-2024/)
 
@@ -3142,110 +3232,11 @@ Let's get straight to the point here: Reebok is cooking right now.Earlier this w
 
 ## Adele
 
-## [New Balance's Ordinary Dad Shoes Are Getting Extraordinary Colorways (Finally)](https://www.highsnobiety.com/p/new-balance-725-sneakers-2024/)
-
-New Balance's 725 sneaker is one of the brand's more straightforward dad shoes. It is backed by a devoted fanbase that champions its chunky Y2K charm, maximum …
-
-*Published on: Mon, 22 Jul 2024 08:34:37 GMT*
-
-
-## Adele
-
-## [Nike's Admirable Gramps Sneaker Is a Legend Reborn ](https://www.highsnobiety.com/p/nike-ld-1000-sneakers-2024-where-to-buy/)
-
-It's been a big year for revivals, especially those plucked from Nike's archives. With the Swoosh dipping further and further back in its oldest shoes, it was …
-
-*Published on: Mon, 22 Jul 2024 09:00:49 GMT*
-
-
-## Adele
-
-## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
-
-Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
-
-*Published on: Mon, 22 Jul 2024 09:05:00 GMT*
-
-
-## Adele
-
-## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
-
-In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
-
-*Published on: Mon, 22 Jul 2024 09:11:00 GMT*
-
-
-## Adele
-
-## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
-
-To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
-
-*Published on: Mon, 22 Jul 2024 09:15:00 GMT*
-
-
-## Adele
-
-## [Crocs' Effortless Mule Went From Minimalist to Colorfully Maxed-Out ](https://www.highsnobiety.com/p/sns-crocs-clog-collab-2024/)
-
-In celebration of its 25th anniversary, Sneakersnstuff has linked with Crocs for a first-ever collaboration involving the effortless Dylan clog .The label ulti…
-
-*Published on: Mon, 22 Jul 2024 09:16:07 GMT*
-
-
-## Adele
-
-## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
-
-Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
-
-*Published on: Mon, 22 Jul 2024 09:30:00 GMT*
-
-
-## Adele
-
-## [Nike SB Is Making Olympic Skateboarding Stylish (Again)](https://www.highsnobiety.com/p/nike-sb-2024-olympic-uniforms-japan-usa/)
-
-Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. The sport’s first time competing in the Olympics, Nike SB jumped on the opportun…
-
-*Published on: Mon, 22 Jul 2024 11:20:34 GMT*
-
-
-## Adele
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sun, 21 Jul 2024 14:11:00 GMT*
-
-
-## Adele
-
 ## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
 On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
 *Published on: Sun, 21 Jul 2024 20:31:00 GMT*
-
-
-## Adele
-
-## [Nike's Dropping a...Wonderful "Wizard of Oz" Skate Shoe?](https://www.highsnobiety.com/p/wizard-of-oz-nike-sb-dunks-2024/)
-
-We're off to see the Wizard, the wonderful Wizard of Oz...Nike Dunks?Nike SB has been quite busy this year, readying more skate-fied Nike classics and dishing …
-
-*Published on: Sun, 21 Jul 2024 15:52:00 GMT*
-
-
-## Lindsay Lohan
-
-## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
-
-Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
-
-*Published on: Mon, 22 Jul 2024 08:00:42 GMT*
 
 
 ## Lindsay Lohan
@@ -3322,20 +3313,11 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## Lindsay Lohan
 
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
-*Published on: Sun, 21 Jul 2024 14:11:00 GMT*
-
-
-## Lindsay Lohan
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
+*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
 
 
 ## Lindsay Lohan
@@ -3347,13 +3329,22 @@ We're off to see the Wizard, the wonderful Wizard of Oz...Nike Dunks?Nike SB has
 *Published on: Sun, 21 Jul 2024 15:52:00 GMT*
 
 
-## Addison Rae
+## Lindsay Lohan
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
 
 Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
 
 *Published on: Mon, 22 Jul 2024 08:00:42 GMT*
+
+
+## Lindsay Lohan
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
 ## Addison Rae
@@ -3430,11 +3421,29 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## Addison Rae
 
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
-*Published on: Sun, 21 Jul 2024 14:11:00 GMT*
+*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+
+
+## Addison Rae
+
+## [Nike's Dropping a...Wonderful "Wizard of Oz" Skate Shoe?](https://www.highsnobiety.com/p/wizard-of-oz-nike-sb-dunks-2024/)
+
+We're off to see the Wizard, the wonderful Wizard of Oz...Nike Dunks?Nike SB has been quite busy this year, readying more skate-fied Nike classics and dishing …
+
+*Published on: Sun, 21 Jul 2024 15:52:00 GMT*
+
+
+## Addison Rae
+
+## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
+
+Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
+
+*Published on: Mon, 22 Jul 2024 08:00:42 GMT*
 
 
 ## Addison Rae
@@ -3446,7 +3455,88 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 *Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
-## Addison Rae
+## Latto
+
+## [New Balance's Ordinary Dad Shoes Are Getting Extraordinary Colorways (Finally)](https://www.highsnobiety.com/p/new-balance-725-sneakers-2024/)
+
+New Balance's 725 sneaker is one of the brand's more straightforward dad shoes. It is backed by a devoted fanbase that champions its chunky Y2K charm, maximum …
+
+*Published on: Mon, 22 Jul 2024 08:34:37 GMT*
+
+
+## Latto
+
+## [Nike's Admirable Gramps Sneaker Is a Legend Reborn ](https://www.highsnobiety.com/p/nike-ld-1000-sneakers-2024-where-to-buy/)
+
+It's been a big year for revivals, especially those plucked from Nike's archives. With the Swoosh dipping further and further back in its oldest shoes, it was …
+
+*Published on: Mon, 22 Jul 2024 09:00:49 GMT*
+
+
+## Latto
+
+## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
+
+Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
+
+*Published on: Mon, 22 Jul 2024 09:05:00 GMT*
+
+
+## Latto
+
+## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
+
+In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
+
+*Published on: Mon, 22 Jul 2024 09:11:00 GMT*
+
+
+## Latto
+
+## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
+
+To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
+
+*Published on: Mon, 22 Jul 2024 09:15:00 GMT*
+
+
+## Latto
+
+## [Crocs' Effortless Mule Went From Minimalist to Colorfully Maxed-Out ](https://www.highsnobiety.com/p/sns-crocs-clog-collab-2024/)
+
+In celebration of its 25th anniversary, Sneakersnstuff has linked with Crocs for a first-ever collaboration involving the effortless Dylan clog .The label ulti…
+
+*Published on: Mon, 22 Jul 2024 09:16:07 GMT*
+
+
+## Latto
+
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
+
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
+
+*Published on: Mon, 22 Jul 2024 09:30:00 GMT*
+
+
+## Latto
+
+## [Nike SB Is Making Olympic Skateboarding Stylish (Again)](https://www.highsnobiety.com/p/nike-sb-2024-olympic-uniforms-japan-usa/)
+
+Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. The sport’s first time competing in the Olympics, Nike SB jumped on the opportun…
+
+*Published on: Mon, 22 Jul 2024 11:20:34 GMT*
+
+
+## Latto
+
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
+
+*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+
+
+## Latto
 
 ## [Nike's Dropping a...Wonderful "Wizard of Oz" Skate Shoe?](https://www.highsnobiety.com/p/wizard-of-oz-nike-sb-dunks-2024/)
 
@@ -3466,110 +3556,11 @@ Let's get straight to the point here: Reebok is cooking right now.Earlier this w
 
 ## Latto
 
-## [New Balance's Ordinary Dad Shoes Are Getting Extraordinary Colorways (Finally)](https://www.highsnobiety.com/p/new-balance-725-sneakers-2024/)
-
-New Balance's 725 sneaker is one of the brand's more straightforward dad shoes. It is backed by a devoted fanbase that champions its chunky Y2K charm, maximum …
-
-*Published on: Mon, 22 Jul 2024 08:34:37 GMT*
-
-
-## Latto
-
-## [Nike's Admirable Gramps Sneaker Is a Legend Reborn ](https://www.highsnobiety.com/p/nike-ld-1000-sneakers-2024-where-to-buy/)
-
-It's been a big year for revivals, especially those plucked from Nike's archives. With the Swoosh dipping further and further back in its oldest shoes, it was …
-
-*Published on: Mon, 22 Jul 2024 09:00:49 GMT*
-
-
-## Latto
-
-## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
-
-Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
-
-*Published on: Mon, 22 Jul 2024 09:05:00 GMT*
-
-
-## Latto
-
-## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
-
-In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
-
-*Published on: Mon, 22 Jul 2024 09:11:00 GMT*
-
-
-## Latto
-
-## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
-
-To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
-
-*Published on: Mon, 22 Jul 2024 09:15:00 GMT*
-
-
-## Latto
-
-## [Crocs' Effortless Mule Went From Minimalist to Colorfully Maxed-Out ](https://www.highsnobiety.com/p/sns-crocs-clog-collab-2024/)
-
-In celebration of its 25th anniversary, Sneakersnstuff has linked with Crocs for a first-ever collaboration involving the effortless Dylan clog .The label ulti…
-
-*Published on: Mon, 22 Jul 2024 09:16:07 GMT*
-
-
-## Latto
-
-## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
-
-Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
-
-*Published on: Mon, 22 Jul 2024 09:30:00 GMT*
-
-
-## Latto
-
-## [Nike SB Is Making Olympic Skateboarding Stylish (Again)](https://www.highsnobiety.com/p/nike-sb-2024-olympic-uniforms-japan-usa/)
-
-Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. The sport’s first time competing in the Olympics, Nike SB jumped on the opportun…
-
-*Published on: Mon, 22 Jul 2024 11:20:34 GMT*
-
-
-## Latto
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sun, 21 Jul 2024 14:11:00 GMT*
-
-
-## Latto
-
 ## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
 On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
 *Published on: Sun, 21 Jul 2024 20:31:00 GMT*
-
-
-## Latto
-
-## [Nike's Dropping a...Wonderful "Wizard of Oz" Skate Shoe?](https://www.highsnobiety.com/p/wizard-of-oz-nike-sb-dunks-2024/)
-
-We're off to see the Wizard, the wonderful Wizard of Oz...Nike Dunks?Nike SB has been quite busy this year, readying more skate-fied Nike classics and dishing …
-
-*Published on: Sun, 21 Jul 2024 15:52:00 GMT*
-
-
-## Aaron Paul
-
-## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
-
-Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
-
-*Published on: Mon, 22 Jul 2024 08:00:42 GMT*
 
 
 ## Aaron Paul
@@ -3646,20 +3637,11 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## Aaron Paul
 
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
-*Published on: Sun, 21 Jul 2024 14:11:00 GMT*
-
-
-## Aaron Paul
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
+*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
 
 
 ## Aaron Paul
@@ -3671,13 +3653,22 @@ We're off to see the Wizard, the wonderful Wizard of Oz...Nike Dunks?Nike SB has
 *Published on: Sun, 21 Jul 2024 15:52:00 GMT*
 
 
-## LeBron James
+## Aaron Paul
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
 
 Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
 
 *Published on: Mon, 22 Jul 2024 08:00:42 GMT*
+
+
+## Aaron Paul
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
 ## LeBron James
@@ -3754,11 +3745,29 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## LeBron James
 
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
-*Published on: Sun, 21 Jul 2024 14:11:00 GMT*
+*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+
+
+## LeBron James
+
+## [Nike's Dropping a...Wonderful "Wizard of Oz" Skate Shoe?](https://www.highsnobiety.com/p/wizard-of-oz-nike-sb-dunks-2024/)
+
+We're off to see the Wizard, the wonderful Wizard of Oz...Nike Dunks?Nike SB has been quite busy this year, readying more skate-fied Nike classics and dishing …
+
+*Published on: Sun, 21 Jul 2024 15:52:00 GMT*
+
+
+## LeBron James
+
+## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
+
+Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
+
+*Published on: Mon, 22 Jul 2024 08:00:42 GMT*
 
 
 ## LeBron James
@@ -3770,7 +3779,88 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 *Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
-## LeBron James
+## 50 Cent
+
+## [New Balance's Ordinary Dad Shoes Are Getting Extraordinary Colorways (Finally)](https://www.highsnobiety.com/p/new-balance-725-sneakers-2024/)
+
+New Balance's 725 sneaker is one of the brand's more straightforward dad shoes. It is backed by a devoted fanbase that champions its chunky Y2K charm, maximum …
+
+*Published on: Mon, 22 Jul 2024 08:34:37 GMT*
+
+
+## 50 Cent
+
+## [Nike's Admirable Gramps Sneaker Is a Legend Reborn ](https://www.highsnobiety.com/p/nike-ld-1000-sneakers-2024-where-to-buy/)
+
+It's been a big year for revivals, especially those plucked from Nike's archives. With the Swoosh dipping further and further back in its oldest shoes, it was …
+
+*Published on: Mon, 22 Jul 2024 09:00:49 GMT*
+
+
+## 50 Cent
+
+## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
+
+Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
+
+*Published on: Mon, 22 Jul 2024 09:05:00 GMT*
+
+
+## 50 Cent
+
+## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
+
+In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
+
+*Published on: Mon, 22 Jul 2024 09:11:00 GMT*
+
+
+## 50 Cent
+
+## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
+
+To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
+
+*Published on: Mon, 22 Jul 2024 09:15:00 GMT*
+
+
+## 50 Cent
+
+## [Crocs' Effortless Mule Went From Minimalist to Colorfully Maxed-Out ](https://www.highsnobiety.com/p/sns-crocs-clog-collab-2024/)
+
+In celebration of its 25th anniversary, Sneakersnstuff has linked with Crocs for a first-ever collaboration involving the effortless Dylan clog .The label ulti…
+
+*Published on: Mon, 22 Jul 2024 09:16:07 GMT*
+
+
+## 50 Cent
+
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
+
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
+
+*Published on: Mon, 22 Jul 2024 09:30:00 GMT*
+
+
+## 50 Cent
+
+## [Nike SB Is Making Olympic Skateboarding Stylish (Again)](https://www.highsnobiety.com/p/nike-sb-2024-olympic-uniforms-japan-usa/)
+
+Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. The sport’s first time competing in the Olympics, Nike SB jumped on the opportun…
+
+*Published on: Mon, 22 Jul 2024 11:20:34 GMT*
+
+
+## 50 Cent
+
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
+
+*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+
+
+## 50 Cent
 
 ## [Nike's Dropping a...Wonderful "Wizard of Oz" Skate Shoe?](https://www.highsnobiety.com/p/wizard-of-oz-nike-sb-dunks-2024/)
 
@@ -3790,110 +3880,11 @@ Let's get straight to the point here: Reebok is cooking right now.Earlier this w
 
 ## 50 Cent
 
-## [New Balance's Ordinary Dad Shoes Are Getting Extraordinary Colorways (Finally)](https://www.highsnobiety.com/p/new-balance-725-sneakers-2024/)
-
-New Balance's 725 sneaker is one of the brand's more straightforward dad shoes. It is backed by a devoted fanbase that champions its chunky Y2K charm, maximum …
-
-*Published on: Mon, 22 Jul 2024 08:34:37 GMT*
-
-
-## 50 Cent
-
-## [Nike's Admirable Gramps Sneaker Is a Legend Reborn ](https://www.highsnobiety.com/p/nike-ld-1000-sneakers-2024-where-to-buy/)
-
-It's been a big year for revivals, especially those plucked from Nike's archives. With the Swoosh dipping further and further back in its oldest shoes, it was …
-
-*Published on: Mon, 22 Jul 2024 09:00:49 GMT*
-
-
-## 50 Cent
-
-## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
-
-Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
-
-*Published on: Mon, 22 Jul 2024 09:05:00 GMT*
-
-
-## 50 Cent
-
-## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
-
-In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
-
-*Published on: Mon, 22 Jul 2024 09:11:00 GMT*
-
-
-## 50 Cent
-
-## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
-
-To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
-
-*Published on: Mon, 22 Jul 2024 09:15:00 GMT*
-
-
-## 50 Cent
-
-## [Crocs' Effortless Mule Went From Minimalist to Colorfully Maxed-Out ](https://www.highsnobiety.com/p/sns-crocs-clog-collab-2024/)
-
-In celebration of its 25th anniversary, Sneakersnstuff has linked with Crocs for a first-ever collaboration involving the effortless Dylan clog .The label ulti…
-
-*Published on: Mon, 22 Jul 2024 09:16:07 GMT*
-
-
-## 50 Cent
-
-## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
-
-Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
-
-*Published on: Mon, 22 Jul 2024 09:30:00 GMT*
-
-
-## 50 Cent
-
-## [Nike SB Is Making Olympic Skateboarding Stylish (Again)](https://www.highsnobiety.com/p/nike-sb-2024-olympic-uniforms-japan-usa/)
-
-Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. The sport’s first time competing in the Olympics, Nike SB jumped on the opportun…
-
-*Published on: Mon, 22 Jul 2024 11:20:34 GMT*
-
-
-## 50 Cent
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sun, 21 Jul 2024 14:11:00 GMT*
-
-
-## 50 Cent
-
 ## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
 On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
 *Published on: Sun, 21 Jul 2024 20:31:00 GMT*
-
-
-## 50 Cent
-
-## [Nike's Dropping a...Wonderful "Wizard of Oz" Skate Shoe?](https://www.highsnobiety.com/p/wizard-of-oz-nike-sb-dunks-2024/)
-
-We're off to see the Wizard, the wonderful Wizard of Oz...Nike Dunks?Nike SB has been quite busy this year, readying more skate-fied Nike classics and dishing …
-
-*Published on: Sun, 21 Jul 2024 15:52:00 GMT*
-
-
-## Kesha
-
-## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
-
-Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
-
-*Published on: Mon, 22 Jul 2024 08:00:42 GMT*
 
 
 ## Kesha
@@ -3970,20 +3961,11 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## Kesha
 
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
-*Published on: Sun, 21 Jul 2024 14:11:00 GMT*
-
-
-## Kesha
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
+*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
 
 
 ## Kesha
@@ -3995,13 +3977,22 @@ We're off to see the Wizard, the wonderful Wizard of Oz...Nike Dunks?Nike SB has
 *Published on: Sun, 21 Jul 2024 15:52:00 GMT*
 
 
-## 21 Savage
+## Kesha
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
 
 Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
 
 *Published on: Mon, 22 Jul 2024 08:00:42 GMT*
+
+
+## Kesha
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
 ## 21 Savage
@@ -4078,11 +4069,29 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## 21 Savage
 
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
-*Published on: Sun, 21 Jul 2024 14:11:00 GMT*
+*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+
+
+## 21 Savage
+
+## [Nike's Dropping a...Wonderful "Wizard of Oz" Skate Shoe?](https://www.highsnobiety.com/p/wizard-of-oz-nike-sb-dunks-2024/)
+
+We're off to see the Wizard, the wonderful Wizard of Oz...Nike Dunks?Nike SB has been quite busy this year, readying more skate-fied Nike classics and dishing …
+
+*Published on: Sun, 21 Jul 2024 15:52:00 GMT*
+
+
+## 21 Savage
+
+## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
+
+Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
+
+*Published on: Mon, 22 Jul 2024 08:00:42 GMT*
 
 
 ## 21 Savage
@@ -4094,7 +4103,88 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 *Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
-## 21 Savage
+## Larry David
+
+## [New Balance's Ordinary Dad Shoes Are Getting Extraordinary Colorways (Finally)](https://www.highsnobiety.com/p/new-balance-725-sneakers-2024/)
+
+New Balance's 725 sneaker is one of the brand's more straightforward dad shoes. It is backed by a devoted fanbase that champions its chunky Y2K charm, maximum …
+
+*Published on: Mon, 22 Jul 2024 08:34:37 GMT*
+
+
+## Larry David
+
+## [Nike's Admirable Gramps Sneaker Is a Legend Reborn ](https://www.highsnobiety.com/p/nike-ld-1000-sneakers-2024-where-to-buy/)
+
+It's been a big year for revivals, especially those plucked from Nike's archives. With the Swoosh dipping further and further back in its oldest shoes, it was …
+
+*Published on: Mon, 22 Jul 2024 09:00:49 GMT*
+
+
+## Larry David
+
+## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
+
+Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
+
+*Published on: Mon, 22 Jul 2024 09:05:00 GMT*
+
+
+## Larry David
+
+## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
+
+In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
+
+*Published on: Mon, 22 Jul 2024 09:11:00 GMT*
+
+
+## Larry David
+
+## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
+
+To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
+
+*Published on: Mon, 22 Jul 2024 09:15:00 GMT*
+
+
+## Larry David
+
+## [Crocs' Effortless Mule Went From Minimalist to Colorfully Maxed-Out ](https://www.highsnobiety.com/p/sns-crocs-clog-collab-2024/)
+
+In celebration of its 25th anniversary, Sneakersnstuff has linked with Crocs for a first-ever collaboration involving the effortless Dylan clog .The label ulti…
+
+*Published on: Mon, 22 Jul 2024 09:16:07 GMT*
+
+
+## Larry David
+
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
+
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
+
+*Published on: Mon, 22 Jul 2024 09:30:00 GMT*
+
+
+## Larry David
+
+## [Nike SB Is Making Olympic Skateboarding Stylish (Again)](https://www.highsnobiety.com/p/nike-sb-2024-olympic-uniforms-japan-usa/)
+
+Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. The sport’s first time competing in the Olympics, Nike SB jumped on the opportun…
+
+*Published on: Mon, 22 Jul 2024 11:20:34 GMT*
+
+
+## Larry David
+
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
+
+*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+
+
+## Larry David
 
 ## [Nike's Dropping a...Wonderful "Wizard of Oz" Skate Shoe?](https://www.highsnobiety.com/p/wizard-of-oz-nike-sb-dunks-2024/)
 
@@ -4114,110 +4204,11 @@ Let's get straight to the point here: Reebok is cooking right now.Earlier this w
 
 ## Larry David
 
-## [New Balance's Ordinary Dad Shoes Are Getting Extraordinary Colorways (Finally)](https://www.highsnobiety.com/p/new-balance-725-sneakers-2024/)
-
-New Balance's 725 sneaker is one of the brand's more straightforward dad shoes. It is backed by a devoted fanbase that champions its chunky Y2K charm, maximum …
-
-*Published on: Mon, 22 Jul 2024 08:34:37 GMT*
-
-
-## Larry David
-
-## [Nike's Admirable Gramps Sneaker Is a Legend Reborn ](https://www.highsnobiety.com/p/nike-ld-1000-sneakers-2024-where-to-buy/)
-
-It's been a big year for revivals, especially those plucked from Nike's archives. With the Swoosh dipping further and further back in its oldest shoes, it was …
-
-*Published on: Mon, 22 Jul 2024 09:00:49 GMT*
-
-
-## Larry David
-
-## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
-
-Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
-
-*Published on: Mon, 22 Jul 2024 09:05:00 GMT*
-
-
-## Larry David
-
-## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
-
-In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
-
-*Published on: Mon, 22 Jul 2024 09:11:00 GMT*
-
-
-## Larry David
-
-## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
-
-To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
-
-*Published on: Mon, 22 Jul 2024 09:15:00 GMT*
-
-
-## Larry David
-
-## [Crocs' Effortless Mule Went From Minimalist to Colorfully Maxed-Out ](https://www.highsnobiety.com/p/sns-crocs-clog-collab-2024/)
-
-In celebration of its 25th anniversary, Sneakersnstuff has linked with Crocs for a first-ever collaboration involving the effortless Dylan clog .The label ulti…
-
-*Published on: Mon, 22 Jul 2024 09:16:07 GMT*
-
-
-## Larry David
-
-## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
-
-Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
-
-*Published on: Mon, 22 Jul 2024 09:30:00 GMT*
-
-
-## Larry David
-
-## [Nike SB Is Making Olympic Skateboarding Stylish (Again)](https://www.highsnobiety.com/p/nike-sb-2024-olympic-uniforms-japan-usa/)
-
-Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. The sport’s first time competing in the Olympics, Nike SB jumped on the opportun…
-
-*Published on: Mon, 22 Jul 2024 11:20:34 GMT*
-
-
-## Larry David
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sun, 21 Jul 2024 14:11:00 GMT*
-
-
-## Larry David
-
 ## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
 On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
 *Published on: Sun, 21 Jul 2024 20:31:00 GMT*
-
-
-## Larry David
-
-## [Nike's Dropping a...Wonderful "Wizard of Oz" Skate Shoe?](https://www.highsnobiety.com/p/wizard-of-oz-nike-sb-dunks-2024/)
-
-We're off to see the Wizard, the wonderful Wizard of Oz...Nike Dunks?Nike SB has been quite busy this year, readying more skate-fied Nike classics and dishing …
-
-*Published on: Sun, 21 Jul 2024 15:52:00 GMT*
-
-
-## Seth Rogan
-
-## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
-
-Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
-
-*Published on: Mon, 22 Jul 2024 08:00:42 GMT*
 
 
 ## Seth Rogan
@@ -4294,20 +4285,11 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## Seth Rogan
 
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
-*Published on: Sun, 21 Jul 2024 14:11:00 GMT*
-
-
-## Seth Rogan
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
+*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
 
 
 ## Seth Rogan
@@ -4319,13 +4301,22 @@ We're off to see the Wizard, the wonderful Wizard of Oz...Nike Dunks?Nike SB has
 *Published on: Sun, 21 Jul 2024 15:52:00 GMT*
 
 
-## Simone Biles
+## Seth Rogan
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
 
 Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
 
 *Published on: Mon, 22 Jul 2024 08:00:42 GMT*
+
+
+## Seth Rogan
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
 ## Simone Biles
@@ -4402,11 +4393,29 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## Simone Biles
 
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
-*Published on: Sun, 21 Jul 2024 14:11:00 GMT*
+*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+
+
+## Simone Biles
+
+## [Nike's Dropping a...Wonderful "Wizard of Oz" Skate Shoe?](https://www.highsnobiety.com/p/wizard-of-oz-nike-sb-dunks-2024/)
+
+We're off to see the Wizard, the wonderful Wizard of Oz...Nike Dunks?Nike SB has been quite busy this year, readying more skate-fied Nike classics and dishing …
+
+*Published on: Sun, 21 Jul 2024 15:52:00 GMT*
+
+
+## Simone Biles
+
+## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
+
+Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
+
+*Published on: Mon, 22 Jul 2024 08:00:42 GMT*
 
 
 ## Simone Biles
@@ -4418,7 +4427,88 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 *Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
-## Simone Biles
+## Pete Davidson
+
+## [New Balance's Ordinary Dad Shoes Are Getting Extraordinary Colorways (Finally)](https://www.highsnobiety.com/p/new-balance-725-sneakers-2024/)
+
+New Balance's 725 sneaker is one of the brand's more straightforward dad shoes. It is backed by a devoted fanbase that champions its chunky Y2K charm, maximum …
+
+*Published on: Mon, 22 Jul 2024 08:34:37 GMT*
+
+
+## Pete Davidson
+
+## [Nike's Admirable Gramps Sneaker Is a Legend Reborn ](https://www.highsnobiety.com/p/nike-ld-1000-sneakers-2024-where-to-buy/)
+
+It's been a big year for revivals, especially those plucked from Nike's archives. With the Swoosh dipping further and further back in its oldest shoes, it was …
+
+*Published on: Mon, 22 Jul 2024 09:00:49 GMT*
+
+
+## Pete Davidson
+
+## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
+
+Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
+
+*Published on: Mon, 22 Jul 2024 09:05:00 GMT*
+
+
+## Pete Davidson
+
+## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
+
+In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
+
+*Published on: Mon, 22 Jul 2024 09:11:00 GMT*
+
+
+## Pete Davidson
+
+## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
+
+To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
+
+*Published on: Mon, 22 Jul 2024 09:15:00 GMT*
+
+
+## Pete Davidson
+
+## [Crocs' Effortless Mule Went From Minimalist to Colorfully Maxed-Out ](https://www.highsnobiety.com/p/sns-crocs-clog-collab-2024/)
+
+In celebration of its 25th anniversary, Sneakersnstuff has linked with Crocs for a first-ever collaboration involving the effortless Dylan clog .The label ulti…
+
+*Published on: Mon, 22 Jul 2024 09:16:07 GMT*
+
+
+## Pete Davidson
+
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
+
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
+
+*Published on: Mon, 22 Jul 2024 09:30:00 GMT*
+
+
+## Pete Davidson
+
+## [Nike SB Is Making Olympic Skateboarding Stylish (Again)](https://www.highsnobiety.com/p/nike-sb-2024-olympic-uniforms-japan-usa/)
+
+Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. The sport’s first time competing in the Olympics, Nike SB jumped on the opportun…
+
+*Published on: Mon, 22 Jul 2024 11:20:34 GMT*
+
+
+## Pete Davidson
+
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
+
+*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+
+
+## Pete Davidson
 
 ## [Nike's Dropping a...Wonderful "Wizard of Oz" Skate Shoe?](https://www.highsnobiety.com/p/wizard-of-oz-nike-sb-dunks-2024/)
 
@@ -4438,110 +4528,11 @@ Let's get straight to the point here: Reebok is cooking right now.Earlier this w
 
 ## Pete Davidson
 
-## [New Balance's Ordinary Dad Shoes Are Getting Extraordinary Colorways (Finally)](https://www.highsnobiety.com/p/new-balance-725-sneakers-2024/)
-
-New Balance's 725 sneaker is one of the brand's more straightforward dad shoes. It is backed by a devoted fanbase that champions its chunky Y2K charm, maximum …
-
-*Published on: Mon, 22 Jul 2024 08:34:37 GMT*
-
-
-## Pete Davidson
-
-## [Nike's Admirable Gramps Sneaker Is a Legend Reborn ](https://www.highsnobiety.com/p/nike-ld-1000-sneakers-2024-where-to-buy/)
-
-It's been a big year for revivals, especially those plucked from Nike's archives. With the Swoosh dipping further and further back in its oldest shoes, it was …
-
-*Published on: Mon, 22 Jul 2024 09:00:49 GMT*
-
-
-## Pete Davidson
-
-## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
-
-Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
-
-*Published on: Mon, 22 Jul 2024 09:05:00 GMT*
-
-
-## Pete Davidson
-
-## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
-
-In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
-
-*Published on: Mon, 22 Jul 2024 09:11:00 GMT*
-
-
-## Pete Davidson
-
-## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
-
-To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
-
-*Published on: Mon, 22 Jul 2024 09:15:00 GMT*
-
-
-## Pete Davidson
-
-## [Crocs' Effortless Mule Went From Minimalist to Colorfully Maxed-Out ](https://www.highsnobiety.com/p/sns-crocs-clog-collab-2024/)
-
-In celebration of its 25th anniversary, Sneakersnstuff has linked with Crocs for a first-ever collaboration involving the effortless Dylan clog .The label ulti…
-
-*Published on: Mon, 22 Jul 2024 09:16:07 GMT*
-
-
-## Pete Davidson
-
-## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
-
-Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
-
-*Published on: Mon, 22 Jul 2024 09:30:00 GMT*
-
-
-## Pete Davidson
-
-## [Nike SB Is Making Olympic Skateboarding Stylish (Again)](https://www.highsnobiety.com/p/nike-sb-2024-olympic-uniforms-japan-usa/)
-
-Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. The sport’s first time competing in the Olympics, Nike SB jumped on the opportun…
-
-*Published on: Mon, 22 Jul 2024 11:20:34 GMT*
-
-
-## Pete Davidson
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sun, 21 Jul 2024 14:11:00 GMT*
-
-
-## Pete Davidson
-
 ## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
 On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
 *Published on: Sun, 21 Jul 2024 20:31:00 GMT*
-
-
-## Pete Davidson
-
-## [Nike's Dropping a...Wonderful "Wizard of Oz" Skate Shoe?](https://www.highsnobiety.com/p/wizard-of-oz-nike-sb-dunks-2024/)
-
-We're off to see the Wizard, the wonderful Wizard of Oz...Nike Dunks?Nike SB has been quite busy this year, readying more skate-fied Nike classics and dishing …
-
-*Published on: Sun, 21 Jul 2024 15:52:00 GMT*
-
-
-## Prince Harry
-
-## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
-
-Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
-
-*Published on: Mon, 22 Jul 2024 08:00:42 GMT*
 
 
 ## Prince Harry
@@ -4618,20 +4609,11 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## Prince Harry
 
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
-*Published on: Sun, 21 Jul 2024 14:11:00 GMT*
-
-
-## Prince Harry
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
+*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
 
 
 ## Prince Harry
@@ -4643,13 +4625,22 @@ We're off to see the Wizard, the wonderful Wizard of Oz...Nike Dunks?Nike SB has
 *Published on: Sun, 21 Jul 2024 15:52:00 GMT*
 
 
-## Princess of Wales
+## Prince Harry
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
 
 Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
 
 *Published on: Mon, 22 Jul 2024 08:00:42 GMT*
+
+
+## Prince Harry
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
 ## Princess of Wales
@@ -4726,11 +4717,29 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## Princess of Wales
 
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
-*Published on: Sun, 21 Jul 2024 14:11:00 GMT*
+*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+
+
+## Princess of Wales
+
+## [Nike's Dropping a...Wonderful "Wizard of Oz" Skate Shoe?](https://www.highsnobiety.com/p/wizard-of-oz-nike-sb-dunks-2024/)
+
+We're off to see the Wizard, the wonderful Wizard of Oz...Nike Dunks?Nike SB has been quite busy this year, readying more skate-fied Nike classics and dishing …
+
+*Published on: Sun, 21 Jul 2024 15:52:00 GMT*
+
+
+## Princess of Wales
+
+## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
+
+Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
+
+*Published on: Mon, 22 Jul 2024 08:00:42 GMT*
 
 
 ## Princess of Wales
@@ -4742,7 +4751,88 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 *Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
-## Princess of Wales
+## Rachel McAdams
+
+## [New Balance's Ordinary Dad Shoes Are Getting Extraordinary Colorways (Finally)](https://www.highsnobiety.com/p/new-balance-725-sneakers-2024/)
+
+New Balance's 725 sneaker is one of the brand's more straightforward dad shoes. It is backed by a devoted fanbase that champions its chunky Y2K charm, maximum …
+
+*Published on: Mon, 22 Jul 2024 08:34:37 GMT*
+
+
+## Rachel McAdams
+
+## [Nike's Admirable Gramps Sneaker Is a Legend Reborn ](https://www.highsnobiety.com/p/nike-ld-1000-sneakers-2024-where-to-buy/)
+
+It's been a big year for revivals, especially those plucked from Nike's archives. With the Swoosh dipping further and further back in its oldest shoes, it was …
+
+*Published on: Mon, 22 Jul 2024 09:00:49 GMT*
+
+
+## Rachel McAdams
+
+## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
+
+Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
+
+*Published on: Mon, 22 Jul 2024 09:05:00 GMT*
+
+
+## Rachel McAdams
+
+## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
+
+In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
+
+*Published on: Mon, 22 Jul 2024 09:11:00 GMT*
+
+
+## Rachel McAdams
+
+## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
+
+To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
+
+*Published on: Mon, 22 Jul 2024 09:15:00 GMT*
+
+
+## Rachel McAdams
+
+## [Crocs' Effortless Mule Went From Minimalist to Colorfully Maxed-Out ](https://www.highsnobiety.com/p/sns-crocs-clog-collab-2024/)
+
+In celebration of its 25th anniversary, Sneakersnstuff has linked with Crocs for a first-ever collaboration involving the effortless Dylan clog .The label ulti…
+
+*Published on: Mon, 22 Jul 2024 09:16:07 GMT*
+
+
+## Rachel McAdams
+
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
+
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
+
+*Published on: Mon, 22 Jul 2024 09:30:00 GMT*
+
+
+## Rachel McAdams
+
+## [Nike SB Is Making Olympic Skateboarding Stylish (Again)](https://www.highsnobiety.com/p/nike-sb-2024-olympic-uniforms-japan-usa/)
+
+Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. The sport’s first time competing in the Olympics, Nike SB jumped on the opportun…
+
+*Published on: Mon, 22 Jul 2024 11:20:34 GMT*
+
+
+## Rachel McAdams
+
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
+
+*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+
+
+## Rachel McAdams
 
 ## [Nike's Dropping a...Wonderful "Wizard of Oz" Skate Shoe?](https://www.highsnobiety.com/p/wizard-of-oz-nike-sb-dunks-2024/)
 
@@ -4762,110 +4852,11 @@ Let's get straight to the point here: Reebok is cooking right now.Earlier this w
 
 ## Rachel McAdams
 
-## [New Balance's Ordinary Dad Shoes Are Getting Extraordinary Colorways (Finally)](https://www.highsnobiety.com/p/new-balance-725-sneakers-2024/)
-
-New Balance's 725 sneaker is one of the brand's more straightforward dad shoes. It is backed by a devoted fanbase that champions its chunky Y2K charm, maximum …
-
-*Published on: Mon, 22 Jul 2024 08:34:37 GMT*
-
-
-## Rachel McAdams
-
-## [Nike's Admirable Gramps Sneaker Is a Legend Reborn ](https://www.highsnobiety.com/p/nike-ld-1000-sneakers-2024-where-to-buy/)
-
-It's been a big year for revivals, especially those plucked from Nike's archives. With the Swoosh dipping further and further back in its oldest shoes, it was …
-
-*Published on: Mon, 22 Jul 2024 09:00:49 GMT*
-
-
-## Rachel McAdams
-
-## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
-
-Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
-
-*Published on: Mon, 22 Jul 2024 09:05:00 GMT*
-
-
-## Rachel McAdams
-
-## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
-
-In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
-
-*Published on: Mon, 22 Jul 2024 09:11:00 GMT*
-
-
-## Rachel McAdams
-
-## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
-
-To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
-
-*Published on: Mon, 22 Jul 2024 09:15:00 GMT*
-
-
-## Rachel McAdams
-
-## [Crocs' Effortless Mule Went From Minimalist to Colorfully Maxed-Out ](https://www.highsnobiety.com/p/sns-crocs-clog-collab-2024/)
-
-In celebration of its 25th anniversary, Sneakersnstuff has linked with Crocs for a first-ever collaboration involving the effortless Dylan clog .The label ulti…
-
-*Published on: Mon, 22 Jul 2024 09:16:07 GMT*
-
-
-## Rachel McAdams
-
-## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
-
-Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
-
-*Published on: Mon, 22 Jul 2024 09:30:00 GMT*
-
-
-## Rachel McAdams
-
-## [Nike SB Is Making Olympic Skateboarding Stylish (Again)](https://www.highsnobiety.com/p/nike-sb-2024-olympic-uniforms-japan-usa/)
-
-Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. The sport’s first time competing in the Olympics, Nike SB jumped on the opportun…
-
-*Published on: Mon, 22 Jul 2024 11:20:34 GMT*
-
-
-## Rachel McAdams
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sun, 21 Jul 2024 14:11:00 GMT*
-
-
-## Rachel McAdams
-
 ## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
 On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
 *Published on: Sun, 21 Jul 2024 20:31:00 GMT*
-
-
-## Rachel McAdams
-
-## [Nike's Dropping a...Wonderful "Wizard of Oz" Skate Shoe?](https://www.highsnobiety.com/p/wizard-of-oz-nike-sb-dunks-2024/)
-
-We're off to see the Wizard, the wonderful Wizard of Oz...Nike Dunks?Nike SB has been quite busy this year, readying more skate-fied Nike classics and dishing …
-
-*Published on: Sun, 21 Jul 2024 15:52:00 GMT*
-
-
-## Reneé Rapp
-
-## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
-
-Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
-
-*Published on: Mon, 22 Jul 2024 08:00:42 GMT*
 
 
 ## Reneé Rapp
@@ -4942,20 +4933,11 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## Reneé Rapp
 
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
-*Published on: Sun, 21 Jul 2024 14:11:00 GMT*
-
-
-## Reneé Rapp
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
+*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
 
 
 ## Reneé Rapp
@@ -4967,13 +4949,22 @@ We're off to see the Wizard, the wonderful Wizard of Oz...Nike Dunks?Nike SB has
 *Published on: Sun, 21 Jul 2024 15:52:00 GMT*
 
 
-## Rick Ross
+## Reneé Rapp
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
 
 Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
 
 *Published on: Mon, 22 Jul 2024 08:00:42 GMT*
+
+
+## Reneé Rapp
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
 ## Rick Ross
@@ -5050,11 +5041,29 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## Rick Ross
 
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
-*Published on: Sun, 21 Jul 2024 14:11:00 GMT*
+*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+
+
+## Rick Ross
+
+## [Nike's Dropping a...Wonderful "Wizard of Oz" Skate Shoe?](https://www.highsnobiety.com/p/wizard-of-oz-nike-sb-dunks-2024/)
+
+We're off to see the Wizard, the wonderful Wizard of Oz...Nike Dunks?Nike SB has been quite busy this year, readying more skate-fied Nike classics and dishing …
+
+*Published on: Sun, 21 Jul 2024 15:52:00 GMT*
+
+
+## Rick Ross
+
+## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
+
+Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
+
+*Published on: Mon, 22 Jul 2024 08:00:42 GMT*
 
 
 ## Rick Ross
@@ -5066,7 +5075,88 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 *Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
-## Rick Ross
+## Sam Ashgari
+
+## [New Balance's Ordinary Dad Shoes Are Getting Extraordinary Colorways (Finally)](https://www.highsnobiety.com/p/new-balance-725-sneakers-2024/)
+
+New Balance's 725 sneaker is one of the brand's more straightforward dad shoes. It is backed by a devoted fanbase that champions its chunky Y2K charm, maximum …
+
+*Published on: Mon, 22 Jul 2024 08:34:37 GMT*
+
+
+## Sam Ashgari
+
+## [Nike's Admirable Gramps Sneaker Is a Legend Reborn ](https://www.highsnobiety.com/p/nike-ld-1000-sneakers-2024-where-to-buy/)
+
+It's been a big year for revivals, especially those plucked from Nike's archives. With the Swoosh dipping further and further back in its oldest shoes, it was …
+
+*Published on: Mon, 22 Jul 2024 09:00:49 GMT*
+
+
+## Sam Ashgari
+
+## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
+
+Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
+
+*Published on: Mon, 22 Jul 2024 09:05:00 GMT*
+
+
+## Sam Ashgari
+
+## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
+
+In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
+
+*Published on: Mon, 22 Jul 2024 09:11:00 GMT*
+
+
+## Sam Ashgari
+
+## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
+
+To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
+
+*Published on: Mon, 22 Jul 2024 09:15:00 GMT*
+
+
+## Sam Ashgari
+
+## [Crocs' Effortless Mule Went From Minimalist to Colorfully Maxed-Out ](https://www.highsnobiety.com/p/sns-crocs-clog-collab-2024/)
+
+In celebration of its 25th anniversary, Sneakersnstuff has linked with Crocs for a first-ever collaboration involving the effortless Dylan clog .The label ulti…
+
+*Published on: Mon, 22 Jul 2024 09:16:07 GMT*
+
+
+## Sam Ashgari
+
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
+
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
+
+*Published on: Mon, 22 Jul 2024 09:30:00 GMT*
+
+
+## Sam Ashgari
+
+## [Nike SB Is Making Olympic Skateboarding Stylish (Again)](https://www.highsnobiety.com/p/nike-sb-2024-olympic-uniforms-japan-usa/)
+
+Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. The sport’s first time competing in the Olympics, Nike SB jumped on the opportun…
+
+*Published on: Mon, 22 Jul 2024 11:20:34 GMT*
+
+
+## Sam Ashgari
+
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
+
+*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+
+
+## Sam Ashgari
 
 ## [Nike's Dropping a...Wonderful "Wizard of Oz" Skate Shoe?](https://www.highsnobiety.com/p/wizard-of-oz-nike-sb-dunks-2024/)
 
@@ -5086,110 +5176,11 @@ Let's get straight to the point here: Reebok is cooking right now.Earlier this w
 
 ## Sam Ashgari
 
-## [New Balance's Ordinary Dad Shoes Are Getting Extraordinary Colorways (Finally)](https://www.highsnobiety.com/p/new-balance-725-sneakers-2024/)
-
-New Balance's 725 sneaker is one of the brand's more straightforward dad shoes. It is backed by a devoted fanbase that champions its chunky Y2K charm, maximum …
-
-*Published on: Mon, 22 Jul 2024 08:34:37 GMT*
-
-
-## Sam Ashgari
-
-## [Nike's Admirable Gramps Sneaker Is a Legend Reborn ](https://www.highsnobiety.com/p/nike-ld-1000-sneakers-2024-where-to-buy/)
-
-It's been a big year for revivals, especially those plucked from Nike's archives. With the Swoosh dipping further and further back in its oldest shoes, it was …
-
-*Published on: Mon, 22 Jul 2024 09:00:49 GMT*
-
-
-## Sam Ashgari
-
-## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
-
-Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
-
-*Published on: Mon, 22 Jul 2024 09:05:00 GMT*
-
-
-## Sam Ashgari
-
-## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
-
-In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
-
-*Published on: Mon, 22 Jul 2024 09:11:00 GMT*
-
-
-## Sam Ashgari
-
-## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
-
-To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
-
-*Published on: Mon, 22 Jul 2024 09:15:00 GMT*
-
-
-## Sam Ashgari
-
-## [Crocs' Effortless Mule Went From Minimalist to Colorfully Maxed-Out ](https://www.highsnobiety.com/p/sns-crocs-clog-collab-2024/)
-
-In celebration of its 25th anniversary, Sneakersnstuff has linked with Crocs for a first-ever collaboration involving the effortless Dylan clog .The label ulti…
-
-*Published on: Mon, 22 Jul 2024 09:16:07 GMT*
-
-
-## Sam Ashgari
-
-## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
-
-Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
-
-*Published on: Mon, 22 Jul 2024 09:30:00 GMT*
-
-
-## Sam Ashgari
-
-## [Nike SB Is Making Olympic Skateboarding Stylish (Again)](https://www.highsnobiety.com/p/nike-sb-2024-olympic-uniforms-japan-usa/)
-
-Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. The sport’s first time competing in the Olympics, Nike SB jumped on the opportun…
-
-*Published on: Mon, 22 Jul 2024 11:20:34 GMT*
-
-
-## Sam Ashgari
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sun, 21 Jul 2024 14:11:00 GMT*
-
-
-## Sam Ashgari
-
 ## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
 On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
 *Published on: Sun, 21 Jul 2024 20:31:00 GMT*
-
-
-## Sam Ashgari
-
-## [Nike's Dropping a...Wonderful "Wizard of Oz" Skate Shoe?](https://www.highsnobiety.com/p/wizard-of-oz-nike-sb-dunks-2024/)
-
-We're off to see the Wizard, the wonderful Wizard of Oz...Nike Dunks?Nike SB has been quite busy this year, readying more skate-fied Nike classics and dishing …
-
-*Published on: Sun, 21 Jul 2024 15:52:00 GMT*
-
-
-## Sandra Oh
-
-## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
-
-Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
-
-*Published on: Mon, 22 Jul 2024 08:00:42 GMT*
 
 
 ## Sandra Oh
@@ -5266,20 +5257,11 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## Sandra Oh
 
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
-*Published on: Sun, 21 Jul 2024 14:11:00 GMT*
-
-
-## Sandra Oh
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
+*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
 
 
 ## Sandra Oh
@@ -5291,13 +5273,22 @@ We're off to see the Wizard, the wonderful Wizard of Oz...Nike Dunks?Nike SB has
 *Published on: Sun, 21 Jul 2024 15:52:00 GMT*
 
 
-## Donald Trump
+## Sandra Oh
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
 
 Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
 
 *Published on: Mon, 22 Jul 2024 08:00:42 GMT*
+
+
+## Sandra Oh
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
 ## Donald Trump
@@ -5374,11 +5365,29 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## Donald Trump
 
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
-*Published on: Sun, 21 Jul 2024 14:11:00 GMT*
+*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+
+
+## Donald Trump
+
+## [Nike's Dropping a...Wonderful "Wizard of Oz" Skate Shoe?](https://www.highsnobiety.com/p/wizard-of-oz-nike-sb-dunks-2024/)
+
+We're off to see the Wizard, the wonderful Wizard of Oz...Nike Dunks?Nike SB has been quite busy this year, readying more skate-fied Nike classics and dishing …
+
+*Published on: Sun, 21 Jul 2024 15:52:00 GMT*
+
+
+## Donald Trump
+
+## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
+
+Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
+
+*Published on: Mon, 22 Jul 2024 08:00:42 GMT*
 
 
 ## Donald Trump
@@ -5390,7 +5399,88 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 *Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
-## Donald Trump
+## Diddy
+
+## [New Balance's Ordinary Dad Shoes Are Getting Extraordinary Colorways (Finally)](https://www.highsnobiety.com/p/new-balance-725-sneakers-2024/)
+
+New Balance's 725 sneaker is one of the brand's more straightforward dad shoes. It is backed by a devoted fanbase that champions its chunky Y2K charm, maximum …
+
+*Published on: Mon, 22 Jul 2024 08:34:37 GMT*
+
+
+## Diddy
+
+## [Nike's Admirable Gramps Sneaker Is a Legend Reborn ](https://www.highsnobiety.com/p/nike-ld-1000-sneakers-2024-where-to-buy/)
+
+It's been a big year for revivals, especially those plucked from Nike's archives. With the Swoosh dipping further and further back in its oldest shoes, it was …
+
+*Published on: Mon, 22 Jul 2024 09:00:49 GMT*
+
+
+## Diddy
+
+## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
+
+Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
+
+*Published on: Mon, 22 Jul 2024 09:05:00 GMT*
+
+
+## Diddy
+
+## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
+
+In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
+
+*Published on: Mon, 22 Jul 2024 09:11:00 GMT*
+
+
+## Diddy
+
+## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
+
+To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
+
+*Published on: Mon, 22 Jul 2024 09:15:00 GMT*
+
+
+## Diddy
+
+## [Crocs' Effortless Mule Went From Minimalist to Colorfully Maxed-Out ](https://www.highsnobiety.com/p/sns-crocs-clog-collab-2024/)
+
+In celebration of its 25th anniversary, Sneakersnstuff has linked with Crocs for a first-ever collaboration involving the effortless Dylan clog .The label ulti…
+
+*Published on: Mon, 22 Jul 2024 09:16:07 GMT*
+
+
+## Diddy
+
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
+
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
+
+*Published on: Mon, 22 Jul 2024 09:30:00 GMT*
+
+
+## Diddy
+
+## [Nike SB Is Making Olympic Skateboarding Stylish (Again)](https://www.highsnobiety.com/p/nike-sb-2024-olympic-uniforms-japan-usa/)
+
+Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. The sport’s first time competing in the Olympics, Nike SB jumped on the opportun…
+
+*Published on: Mon, 22 Jul 2024 11:20:34 GMT*
+
+
+## Diddy
+
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
+
+*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+
+
+## Diddy
 
 ## [Nike's Dropping a...Wonderful "Wizard of Oz" Skate Shoe?](https://www.highsnobiety.com/p/wizard-of-oz-nike-sb-dunks-2024/)
 
@@ -5410,110 +5500,11 @@ Let's get straight to the point here: Reebok is cooking right now.Earlier this w
 
 ## Diddy
 
-## [New Balance's Ordinary Dad Shoes Are Getting Extraordinary Colorways (Finally)](https://www.highsnobiety.com/p/new-balance-725-sneakers-2024/)
-
-New Balance's 725 sneaker is one of the brand's more straightforward dad shoes. It is backed by a devoted fanbase that champions its chunky Y2K charm, maximum …
-
-*Published on: Mon, 22 Jul 2024 08:34:37 GMT*
-
-
-## Diddy
-
-## [Nike's Admirable Gramps Sneaker Is a Legend Reborn ](https://www.highsnobiety.com/p/nike-ld-1000-sneakers-2024-where-to-buy/)
-
-It's been a big year for revivals, especially those plucked from Nike's archives. With the Swoosh dipping further and further back in its oldest shoes, it was …
-
-*Published on: Mon, 22 Jul 2024 09:00:49 GMT*
-
-
-## Diddy
-
-## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
-
-Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
-
-*Published on: Mon, 22 Jul 2024 09:05:00 GMT*
-
-
-## Diddy
-
-## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
-
-In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
-
-*Published on: Mon, 22 Jul 2024 09:11:00 GMT*
-
-
-## Diddy
-
-## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
-
-To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
-
-*Published on: Mon, 22 Jul 2024 09:15:00 GMT*
-
-
-## Diddy
-
-## [Crocs' Effortless Mule Went From Minimalist to Colorfully Maxed-Out ](https://www.highsnobiety.com/p/sns-crocs-clog-collab-2024/)
-
-In celebration of its 25th anniversary, Sneakersnstuff has linked with Crocs for a first-ever collaboration involving the effortless Dylan clog .The label ulti…
-
-*Published on: Mon, 22 Jul 2024 09:16:07 GMT*
-
-
-## Diddy
-
-## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
-
-Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
-
-*Published on: Mon, 22 Jul 2024 09:30:00 GMT*
-
-
-## Diddy
-
-## [Nike SB Is Making Olympic Skateboarding Stylish (Again)](https://www.highsnobiety.com/p/nike-sb-2024-olympic-uniforms-japan-usa/)
-
-Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. The sport’s first time competing in the Olympics, Nike SB jumped on the opportun…
-
-*Published on: Mon, 22 Jul 2024 11:20:34 GMT*
-
-
-## Diddy
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sun, 21 Jul 2024 14:11:00 GMT*
-
-
-## Diddy
-
 ## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
 On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
 *Published on: Sun, 21 Jul 2024 20:31:00 GMT*
-
-
-## Diddy
-
-## [Nike's Dropping a...Wonderful "Wizard of Oz" Skate Shoe?](https://www.highsnobiety.com/p/wizard-of-oz-nike-sb-dunks-2024/)
-
-We're off to see the Wizard, the wonderful Wizard of Oz...Nike Dunks?Nike SB has been quite busy this year, readying more skate-fied Nike classics and dishing …
-
-*Published on: Sun, 21 Jul 2024 15:52:00 GMT*
-
-
-## City Girls
-
-## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
-
-Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
-
-*Published on: Mon, 22 Jul 2024 08:00:42 GMT*
 
 
 ## City Girls
@@ -5590,20 +5581,11 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## City Girls
 
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
-*Published on: Sun, 21 Jul 2024 14:11:00 GMT*
-
-
-## City Girls
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
+*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
 
 
 ## City Girls
@@ -5615,13 +5597,22 @@ We're off to see the Wizard, the wonderful Wizard of Oz...Nike Dunks?Nike SB has
 *Published on: Sun, 21 Jul 2024 15:52:00 GMT*
 
 
-## Chloe Bailey
+## City Girls
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
 
 Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
 
 *Published on: Mon, 22 Jul 2024 08:00:42 GMT*
+
+
+## City Girls
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
 ## Chloe Bailey
@@ -5698,11 +5689,29 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## Chloe Bailey
 
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
-*Published on: Sun, 21 Jul 2024 14:11:00 GMT*
+*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+
+
+## Chloe Bailey
+
+## [Nike's Dropping a...Wonderful "Wizard of Oz" Skate Shoe?](https://www.highsnobiety.com/p/wizard-of-oz-nike-sb-dunks-2024/)
+
+We're off to see the Wizard, the wonderful Wizard of Oz...Nike Dunks?Nike SB has been quite busy this year, readying more skate-fied Nike classics and dishing …
+
+*Published on: Sun, 21 Jul 2024 15:52:00 GMT*
+
+
+## Chloe Bailey
+
+## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
+
+Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
+
+*Published on: Mon, 22 Jul 2024 08:00:42 GMT*
 
 
 ## Chloe Bailey
@@ -5714,7 +5723,88 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 *Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
-## Chloe Bailey
+## Charli D Amelio
+
+## [New Balance's Ordinary Dad Shoes Are Getting Extraordinary Colorways (Finally)](https://www.highsnobiety.com/p/new-balance-725-sneakers-2024/)
+
+New Balance's 725 sneaker is one of the brand's more straightforward dad shoes. It is backed by a devoted fanbase that champions its chunky Y2K charm, maximum …
+
+*Published on: Mon, 22 Jul 2024 08:34:37 GMT*
+
+
+## Charli D Amelio
+
+## [Nike's Admirable Gramps Sneaker Is a Legend Reborn ](https://www.highsnobiety.com/p/nike-ld-1000-sneakers-2024-where-to-buy/)
+
+It's been a big year for revivals, especially those plucked from Nike's archives. With the Swoosh dipping further and further back in its oldest shoes, it was …
+
+*Published on: Mon, 22 Jul 2024 09:00:49 GMT*
+
+
+## Charli D Amelio
+
+## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
+
+Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
+
+*Published on: Mon, 22 Jul 2024 09:05:00 GMT*
+
+
+## Charli D Amelio
+
+## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
+
+In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
+
+*Published on: Mon, 22 Jul 2024 09:11:00 GMT*
+
+
+## Charli D Amelio
+
+## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
+
+To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
+
+*Published on: Mon, 22 Jul 2024 09:15:00 GMT*
+
+
+## Charli D Amelio
+
+## [Crocs' Effortless Mule Went From Minimalist to Colorfully Maxed-Out ](https://www.highsnobiety.com/p/sns-crocs-clog-collab-2024/)
+
+In celebration of its 25th anniversary, Sneakersnstuff has linked with Crocs for a first-ever collaboration involving the effortless Dylan clog .The label ulti…
+
+*Published on: Mon, 22 Jul 2024 09:16:07 GMT*
+
+
+## Charli D Amelio
+
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
+
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
+
+*Published on: Mon, 22 Jul 2024 09:30:00 GMT*
+
+
+## Charli D Amelio
+
+## [Nike SB Is Making Olympic Skateboarding Stylish (Again)](https://www.highsnobiety.com/p/nike-sb-2024-olympic-uniforms-japan-usa/)
+
+Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. The sport’s first time competing in the Olympics, Nike SB jumped on the opportun…
+
+*Published on: Mon, 22 Jul 2024 11:20:34 GMT*
+
+
+## Charli D Amelio
+
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
+
+*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+
+
+## Charli D Amelio
 
 ## [Nike's Dropping a...Wonderful "Wizard of Oz" Skate Shoe?](https://www.highsnobiety.com/p/wizard-of-oz-nike-sb-dunks-2024/)
 
@@ -5734,110 +5824,11 @@ Let's get straight to the point here: Reebok is cooking right now.Earlier this w
 
 ## Charli D Amelio
 
-## [New Balance's Ordinary Dad Shoes Are Getting Extraordinary Colorways (Finally)](https://www.highsnobiety.com/p/new-balance-725-sneakers-2024/)
-
-New Balance's 725 sneaker is one of the brand's more straightforward dad shoes. It is backed by a devoted fanbase that champions its chunky Y2K charm, maximum …
-
-*Published on: Mon, 22 Jul 2024 08:34:37 GMT*
-
-
-## Charli D Amelio
-
-## [Nike's Admirable Gramps Sneaker Is a Legend Reborn ](https://www.highsnobiety.com/p/nike-ld-1000-sneakers-2024-where-to-buy/)
-
-It's been a big year for revivals, especially those plucked from Nike's archives. With the Swoosh dipping further and further back in its oldest shoes, it was …
-
-*Published on: Mon, 22 Jul 2024 09:00:49 GMT*
-
-
-## Charli D Amelio
-
-## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
-
-Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
-
-*Published on: Mon, 22 Jul 2024 09:05:00 GMT*
-
-
-## Charli D Amelio
-
-## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
-
-In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
-
-*Published on: Mon, 22 Jul 2024 09:11:00 GMT*
-
-
-## Charli D Amelio
-
-## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
-
-To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
-
-*Published on: Mon, 22 Jul 2024 09:15:00 GMT*
-
-
-## Charli D Amelio
-
-## [Crocs' Effortless Mule Went From Minimalist to Colorfully Maxed-Out ](https://www.highsnobiety.com/p/sns-crocs-clog-collab-2024/)
-
-In celebration of its 25th anniversary, Sneakersnstuff has linked with Crocs for a first-ever collaboration involving the effortless Dylan clog .The label ulti…
-
-*Published on: Mon, 22 Jul 2024 09:16:07 GMT*
-
-
-## Charli D Amelio
-
-## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
-
-Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
-
-*Published on: Mon, 22 Jul 2024 09:30:00 GMT*
-
-
-## Charli D Amelio
-
-## [Nike SB Is Making Olympic Skateboarding Stylish (Again)](https://www.highsnobiety.com/p/nike-sb-2024-olympic-uniforms-japan-usa/)
-
-Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. The sport’s first time competing in the Olympics, Nike SB jumped on the opportun…
-
-*Published on: Mon, 22 Jul 2024 11:20:34 GMT*
-
-
-## Charli D Amelio
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sun, 21 Jul 2024 14:11:00 GMT*
-
-
-## Charli D Amelio
-
 ## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
 On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
 *Published on: Sun, 21 Jul 2024 20:31:00 GMT*
-
-
-## Charli D Amelio
-
-## [Nike's Dropping a...Wonderful "Wizard of Oz" Skate Shoe?](https://www.highsnobiety.com/p/wizard-of-oz-nike-sb-dunks-2024/)
-
-We're off to see the Wizard, the wonderful Wizard of Oz...Nike Dunks?Nike SB has been quite busy this year, readying more skate-fied Nike classics and dishing …
-
-*Published on: Sun, 21 Jul 2024 15:52:00 GMT*
-
-
-## Cardi B
-
-## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
-
-Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
-
-*Published on: Mon, 22 Jul 2024 08:00:42 GMT*
 
 
 ## Cardi B
@@ -5914,20 +5905,11 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## Cardi B
 
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
-*Published on: Sun, 21 Jul 2024 14:11:00 GMT*
-
-
-## Cardi B
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
+*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
 
 
 ## Cardi B
@@ -5939,13 +5921,22 @@ We're off to see the Wizard, the wonderful Wizard of Oz...Nike Dunks?Nike SB has
 *Published on: Sun, 21 Jul 2024 15:52:00 GMT*
 
 
-## Bryan Cranston
+## Cardi B
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
 
 Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
 
 *Published on: Mon, 22 Jul 2024 08:00:42 GMT*
+
+
+## Cardi B
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
 ## Bryan Cranston
@@ -6022,11 +6013,29 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## Bryan Cranston
 
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
-*Published on: Sun, 21 Jul 2024 14:11:00 GMT*
+*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+
+
+## Bryan Cranston
+
+## [Nike's Dropping a...Wonderful "Wizard of Oz" Skate Shoe?](https://www.highsnobiety.com/p/wizard-of-oz-nike-sb-dunks-2024/)
+
+We're off to see the Wizard, the wonderful Wizard of Oz...Nike Dunks?Nike SB has been quite busy this year, readying more skate-fied Nike classics and dishing …
+
+*Published on: Sun, 21 Jul 2024 15:52:00 GMT*
+
+
+## Bryan Cranston
+
+## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
+
+Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
+
+*Published on: Mon, 22 Jul 2024 08:00:42 GMT*
 
 
 ## Bryan Cranston
@@ -6038,7 +6047,88 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 *Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
-## Bryan Cranston
+## Brielle Biermann
+
+## [New Balance's Ordinary Dad Shoes Are Getting Extraordinary Colorways (Finally)](https://www.highsnobiety.com/p/new-balance-725-sneakers-2024/)
+
+New Balance's 725 sneaker is one of the brand's more straightforward dad shoes. It is backed by a devoted fanbase that champions its chunky Y2K charm, maximum …
+
+*Published on: Mon, 22 Jul 2024 08:34:37 GMT*
+
+
+## Brielle Biermann
+
+## [Nike's Admirable Gramps Sneaker Is a Legend Reborn ](https://www.highsnobiety.com/p/nike-ld-1000-sneakers-2024-where-to-buy/)
+
+It's been a big year for revivals, especially those plucked from Nike's archives. With the Swoosh dipping further and further back in its oldest shoes, it was …
+
+*Published on: Mon, 22 Jul 2024 09:00:49 GMT*
+
+
+## Brielle Biermann
+
+## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
+
+Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
+
+*Published on: Mon, 22 Jul 2024 09:05:00 GMT*
+
+
+## Brielle Biermann
+
+## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
+
+In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
+
+*Published on: Mon, 22 Jul 2024 09:11:00 GMT*
+
+
+## Brielle Biermann
+
+## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
+
+To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
+
+*Published on: Mon, 22 Jul 2024 09:15:00 GMT*
+
+
+## Brielle Biermann
+
+## [Crocs' Effortless Mule Went From Minimalist to Colorfully Maxed-Out ](https://www.highsnobiety.com/p/sns-crocs-clog-collab-2024/)
+
+In celebration of its 25th anniversary, Sneakersnstuff has linked with Crocs for a first-ever collaboration involving the effortless Dylan clog .The label ulti…
+
+*Published on: Mon, 22 Jul 2024 09:16:07 GMT*
+
+
+## Brielle Biermann
+
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
+
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
+
+*Published on: Mon, 22 Jul 2024 09:30:00 GMT*
+
+
+## Brielle Biermann
+
+## [Nike SB Is Making Olympic Skateboarding Stylish (Again)](https://www.highsnobiety.com/p/nike-sb-2024-olympic-uniforms-japan-usa/)
+
+Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. The sport’s first time competing in the Olympics, Nike SB jumped on the opportun…
+
+*Published on: Mon, 22 Jul 2024 11:20:34 GMT*
+
+
+## Brielle Biermann
+
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
+
+*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+
+
+## Brielle Biermann
 
 ## [Nike's Dropping a...Wonderful "Wizard of Oz" Skate Shoe?](https://www.highsnobiety.com/p/wizard-of-oz-nike-sb-dunks-2024/)
 
@@ -6058,110 +6148,11 @@ Let's get straight to the point here: Reebok is cooking right now.Earlier this w
 
 ## Brielle Biermann
 
-## [New Balance's Ordinary Dad Shoes Are Getting Extraordinary Colorways (Finally)](https://www.highsnobiety.com/p/new-balance-725-sneakers-2024/)
-
-New Balance's 725 sneaker is one of the brand's more straightforward dad shoes. It is backed by a devoted fanbase that champions its chunky Y2K charm, maximum …
-
-*Published on: Mon, 22 Jul 2024 08:34:37 GMT*
-
-
-## Brielle Biermann
-
-## [Nike's Admirable Gramps Sneaker Is a Legend Reborn ](https://www.highsnobiety.com/p/nike-ld-1000-sneakers-2024-where-to-buy/)
-
-It's been a big year for revivals, especially those plucked from Nike's archives. With the Swoosh dipping further and further back in its oldest shoes, it was …
-
-*Published on: Mon, 22 Jul 2024 09:00:49 GMT*
-
-
-## Brielle Biermann
-
-## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
-
-Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
-
-*Published on: Mon, 22 Jul 2024 09:05:00 GMT*
-
-
-## Brielle Biermann
-
-## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
-
-In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
-
-*Published on: Mon, 22 Jul 2024 09:11:00 GMT*
-
-
-## Brielle Biermann
-
-## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
-
-To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
-
-*Published on: Mon, 22 Jul 2024 09:15:00 GMT*
-
-
-## Brielle Biermann
-
-## [Crocs' Effortless Mule Went From Minimalist to Colorfully Maxed-Out ](https://www.highsnobiety.com/p/sns-crocs-clog-collab-2024/)
-
-In celebration of its 25th anniversary, Sneakersnstuff has linked with Crocs for a first-ever collaboration involving the effortless Dylan clog .The label ulti…
-
-*Published on: Mon, 22 Jul 2024 09:16:07 GMT*
-
-
-## Brielle Biermann
-
-## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
-
-Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
-
-*Published on: Mon, 22 Jul 2024 09:30:00 GMT*
-
-
-## Brielle Biermann
-
-## [Nike SB Is Making Olympic Skateboarding Stylish (Again)](https://www.highsnobiety.com/p/nike-sb-2024-olympic-uniforms-japan-usa/)
-
-Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. The sport’s first time competing in the Olympics, Nike SB jumped on the opportun…
-
-*Published on: Mon, 22 Jul 2024 11:20:34 GMT*
-
-
-## Brielle Biermann
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sun, 21 Jul 2024 14:11:00 GMT*
-
-
-## Brielle Biermann
-
 ## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
 On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
 *Published on: Sun, 21 Jul 2024 20:31:00 GMT*
-
-
-## Brielle Biermann
-
-## [Nike's Dropping a...Wonderful "Wizard of Oz" Skate Shoe?](https://www.highsnobiety.com/p/wizard-of-oz-nike-sb-dunks-2024/)
-
-We're off to see the Wizard, the wonderful Wizard of Oz...Nike Dunks?Nike SB has been quite busy this year, readying more skate-fied Nike classics and dishing …
-
-*Published on: Sun, 21 Jul 2024 15:52:00 GMT*
-
-
-## Dua Lipa
-
-## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
-
-Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
-
-*Published on: Mon, 22 Jul 2024 08:00:42 GMT*
 
 
 ## Dua Lipa
@@ -6238,20 +6229,11 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## Dua Lipa
 
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
-*Published on: Sun, 21 Jul 2024 14:11:00 GMT*
-
-
-## Dua Lipa
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
+*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
 
 
 ## Dua Lipa
@@ -6263,13 +6245,22 @@ We're off to see the Wizard, the wonderful Wizard of Oz...Nike Dunks?Nike SB has
 *Published on: Sun, 21 Jul 2024 15:52:00 GMT*
 
 
-## Drake
+## Dua Lipa
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
 
 Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
 
 *Published on: Mon, 22 Jul 2024 08:00:42 GMT*
+
+
+## Dua Lipa
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
 ## Drake
@@ -6346,11 +6337,29 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## Drake
 
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
-*Published on: Sun, 21 Jul 2024 14:11:00 GMT*
+*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+
+
+## Drake
+
+## [Nike's Dropping a...Wonderful "Wizard of Oz" Skate Shoe?](https://www.highsnobiety.com/p/wizard-of-oz-nike-sb-dunks-2024/)
+
+We're off to see the Wizard, the wonderful Wizard of Oz...Nike Dunks?Nike SB has been quite busy this year, readying more skate-fied Nike classics and dishing …
+
+*Published on: Sun, 21 Jul 2024 15:52:00 GMT*
+
+
+## Drake
+
+## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
+
+Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
+
+*Published on: Mon, 22 Jul 2024 08:00:42 GMT*
 
 
 ## Drake
@@ -6362,7 +6371,88 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 *Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
-## Drake
+## Jenner
+
+## [New Balance's Ordinary Dad Shoes Are Getting Extraordinary Colorways (Finally)](https://www.highsnobiety.com/p/new-balance-725-sneakers-2024/)
+
+New Balance's 725 sneaker is one of the brand's more straightforward dad shoes. It is backed by a devoted fanbase that champions its chunky Y2K charm, maximum …
+
+*Published on: Mon, 22 Jul 2024 08:34:37 GMT*
+
+
+## Jenner
+
+## [Nike's Admirable Gramps Sneaker Is a Legend Reborn ](https://www.highsnobiety.com/p/nike-ld-1000-sneakers-2024-where-to-buy/)
+
+It's been a big year for revivals, especially those plucked from Nike's archives. With the Swoosh dipping further and further back in its oldest shoes, it was …
+
+*Published on: Mon, 22 Jul 2024 09:00:49 GMT*
+
+
+## Jenner
+
+## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
+
+Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
+
+*Published on: Mon, 22 Jul 2024 09:05:00 GMT*
+
+
+## Jenner
+
+## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
+
+In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
+
+*Published on: Mon, 22 Jul 2024 09:11:00 GMT*
+
+
+## Jenner
+
+## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
+
+To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
+
+*Published on: Mon, 22 Jul 2024 09:15:00 GMT*
+
+
+## Jenner
+
+## [Crocs' Effortless Mule Went From Minimalist to Colorfully Maxed-Out ](https://www.highsnobiety.com/p/sns-crocs-clog-collab-2024/)
+
+In celebration of its 25th anniversary, Sneakersnstuff has linked with Crocs for a first-ever collaboration involving the effortless Dylan clog .The label ulti…
+
+*Published on: Mon, 22 Jul 2024 09:16:07 GMT*
+
+
+## Jenner
+
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
+
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
+
+*Published on: Mon, 22 Jul 2024 09:30:00 GMT*
+
+
+## Jenner
+
+## [Nike SB Is Making Olympic Skateboarding Stylish (Again)](https://www.highsnobiety.com/p/nike-sb-2024-olympic-uniforms-japan-usa/)
+
+Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. The sport’s first time competing in the Olympics, Nike SB jumped on the opportun…
+
+*Published on: Mon, 22 Jul 2024 11:20:34 GMT*
+
+
+## Jenner
+
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
+
+*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+
+
+## Jenner
 
 ## [Nike's Dropping a...Wonderful "Wizard of Oz" Skate Shoe?](https://www.highsnobiety.com/p/wizard-of-oz-nike-sb-dunks-2024/)
 
@@ -6382,110 +6472,11 @@ Let's get straight to the point here: Reebok is cooking right now.Earlier this w
 
 ## Jenner
 
-## [New Balance's Ordinary Dad Shoes Are Getting Extraordinary Colorways (Finally)](https://www.highsnobiety.com/p/new-balance-725-sneakers-2024/)
-
-New Balance's 725 sneaker is one of the brand's more straightforward dad shoes. It is backed by a devoted fanbase that champions its chunky Y2K charm, maximum …
-
-*Published on: Mon, 22 Jul 2024 08:34:37 GMT*
-
-
-## Jenner
-
-## [Nike's Admirable Gramps Sneaker Is a Legend Reborn ](https://www.highsnobiety.com/p/nike-ld-1000-sneakers-2024-where-to-buy/)
-
-It's been a big year for revivals, especially those plucked from Nike's archives. With the Swoosh dipping further and further back in its oldest shoes, it was …
-
-*Published on: Mon, 22 Jul 2024 09:00:49 GMT*
-
-
-## Jenner
-
-## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
-
-Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
-
-*Published on: Mon, 22 Jul 2024 09:05:00 GMT*
-
-
-## Jenner
-
-## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
-
-In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
-
-*Published on: Mon, 22 Jul 2024 09:11:00 GMT*
-
-
-## Jenner
-
-## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
-
-To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
-
-*Published on: Mon, 22 Jul 2024 09:15:00 GMT*
-
-
-## Jenner
-
-## [Crocs' Effortless Mule Went From Minimalist to Colorfully Maxed-Out ](https://www.highsnobiety.com/p/sns-crocs-clog-collab-2024/)
-
-In celebration of its 25th anniversary, Sneakersnstuff has linked with Crocs for a first-ever collaboration involving the effortless Dylan clog .The label ulti…
-
-*Published on: Mon, 22 Jul 2024 09:16:07 GMT*
-
-
-## Jenner
-
-## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
-
-Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
-
-*Published on: Mon, 22 Jul 2024 09:30:00 GMT*
-
-
-## Jenner
-
-## [Nike SB Is Making Olympic Skateboarding Stylish (Again)](https://www.highsnobiety.com/p/nike-sb-2024-olympic-uniforms-japan-usa/)
-
-Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. The sport’s first time competing in the Olympics, Nike SB jumped on the opportun…
-
-*Published on: Mon, 22 Jul 2024 11:20:34 GMT*
-
-
-## Jenner
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sun, 21 Jul 2024 14:11:00 GMT*
-
-
-## Jenner
-
 ## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
 On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
 *Published on: Sun, 21 Jul 2024 20:31:00 GMT*
-
-
-## Jenner
-
-## [Nike's Dropping a...Wonderful "Wizard of Oz" Skate Shoe?](https://www.highsnobiety.com/p/wizard-of-oz-nike-sb-dunks-2024/)
-
-We're off to see the Wizard, the wonderful Wizard of Oz...Nike Dunks?Nike SB has been quite busy this year, readying more skate-fied Nike classics and dishing …
-
-*Published on: Sun, 21 Jul 2024 15:52:00 GMT*
-
-
-## J. Cole
-
-## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
-
-Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
-
-*Published on: Mon, 22 Jul 2024 08:00:42 GMT*
 
 
 ## J. Cole
@@ -6562,20 +6553,11 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## J. Cole
 
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
-*Published on: Sun, 21 Jul 2024 14:11:00 GMT*
-
-
-## J. Cole
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
+*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
 
 
 ## J. Cole
@@ -6587,13 +6569,22 @@ We're off to see the Wizard, the wonderful Wizard of Oz...Nike Dunks?Nike SB has
 *Published on: Sun, 21 Jul 2024 15:52:00 GMT*
 
 
-## Jerrod Carmichael
+## J. Cole
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
 
 Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
 
 *Published on: Mon, 22 Jul 2024 08:00:42 GMT*
+
+
+## J. Cole
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
 ## Jerrod Carmichael
@@ -6670,11 +6661,29 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## Jerrod Carmichael
 
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
-*Published on: Sun, 21 Jul 2024 14:11:00 GMT*
+*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+
+
+## Jerrod Carmichael
+
+## [Nike's Dropping a...Wonderful "Wizard of Oz" Skate Shoe?](https://www.highsnobiety.com/p/wizard-of-oz-nike-sb-dunks-2024/)
+
+We're off to see the Wizard, the wonderful Wizard of Oz...Nike Dunks?Nike SB has been quite busy this year, readying more skate-fied Nike classics and dishing …
+
+*Published on: Sun, 21 Jul 2024 15:52:00 GMT*
+
+
+## Jerrod Carmichael
+
+## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
+
+Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
+
+*Published on: Mon, 22 Jul 2024 08:00:42 GMT*
 
 
 ## Jerrod Carmichael
@@ -6686,7 +6695,88 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 *Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
-## Jerrod Carmichael
+## Jennifer Lawrence
+
+## [New Balance's Ordinary Dad Shoes Are Getting Extraordinary Colorways (Finally)](https://www.highsnobiety.com/p/new-balance-725-sneakers-2024/)
+
+New Balance's 725 sneaker is one of the brand's more straightforward dad shoes. It is backed by a devoted fanbase that champions its chunky Y2K charm, maximum …
+
+*Published on: Mon, 22 Jul 2024 08:34:37 GMT*
+
+
+## Jennifer Lawrence
+
+## [Nike's Admirable Gramps Sneaker Is a Legend Reborn ](https://www.highsnobiety.com/p/nike-ld-1000-sneakers-2024-where-to-buy/)
+
+It's been a big year for revivals, especially those plucked from Nike's archives. With the Swoosh dipping further and further back in its oldest shoes, it was …
+
+*Published on: Mon, 22 Jul 2024 09:00:49 GMT*
+
+
+## Jennifer Lawrence
+
+## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
+
+Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
+
+*Published on: Mon, 22 Jul 2024 09:05:00 GMT*
+
+
+## Jennifer Lawrence
+
+## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
+
+In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
+
+*Published on: Mon, 22 Jul 2024 09:11:00 GMT*
+
+
+## Jennifer Lawrence
+
+## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
+
+To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
+
+*Published on: Mon, 22 Jul 2024 09:15:00 GMT*
+
+
+## Jennifer Lawrence
+
+## [Crocs' Effortless Mule Went From Minimalist to Colorfully Maxed-Out ](https://www.highsnobiety.com/p/sns-crocs-clog-collab-2024/)
+
+In celebration of its 25th anniversary, Sneakersnstuff has linked with Crocs for a first-ever collaboration involving the effortless Dylan clog .The label ulti…
+
+*Published on: Mon, 22 Jul 2024 09:16:07 GMT*
+
+
+## Jennifer Lawrence
+
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
+
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
+
+*Published on: Mon, 22 Jul 2024 09:30:00 GMT*
+
+
+## Jennifer Lawrence
+
+## [Nike SB Is Making Olympic Skateboarding Stylish (Again)](https://www.highsnobiety.com/p/nike-sb-2024-olympic-uniforms-japan-usa/)
+
+Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. The sport’s first time competing in the Olympics, Nike SB jumped on the opportun…
+
+*Published on: Mon, 22 Jul 2024 11:20:34 GMT*
+
+
+## Jennifer Lawrence
+
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
+
+*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+
+
+## Jennifer Lawrence
 
 ## [Nike's Dropping a...Wonderful "Wizard of Oz" Skate Shoe?](https://www.highsnobiety.com/p/wizard-of-oz-nike-sb-dunks-2024/)
 
@@ -6706,110 +6796,11 @@ Let's get straight to the point here: Reebok is cooking right now.Earlier this w
 
 ## Jennifer Lawrence
 
-## [New Balance's Ordinary Dad Shoes Are Getting Extraordinary Colorways (Finally)](https://www.highsnobiety.com/p/new-balance-725-sneakers-2024/)
-
-New Balance's 725 sneaker is one of the brand's more straightforward dad shoes. It is backed by a devoted fanbase that champions its chunky Y2K charm, maximum …
-
-*Published on: Mon, 22 Jul 2024 08:34:37 GMT*
-
-
-## Jennifer Lawrence
-
-## [Nike's Admirable Gramps Sneaker Is a Legend Reborn ](https://www.highsnobiety.com/p/nike-ld-1000-sneakers-2024-where-to-buy/)
-
-It's been a big year for revivals, especially those plucked from Nike's archives. With the Swoosh dipping further and further back in its oldest shoes, it was …
-
-*Published on: Mon, 22 Jul 2024 09:00:49 GMT*
-
-
-## Jennifer Lawrence
-
-## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
-
-Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
-
-*Published on: Mon, 22 Jul 2024 09:05:00 GMT*
-
-
-## Jennifer Lawrence
-
-## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
-
-In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
-
-*Published on: Mon, 22 Jul 2024 09:11:00 GMT*
-
-
-## Jennifer Lawrence
-
-## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
-
-To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
-
-*Published on: Mon, 22 Jul 2024 09:15:00 GMT*
-
-
-## Jennifer Lawrence
-
-## [Crocs' Effortless Mule Went From Minimalist to Colorfully Maxed-Out ](https://www.highsnobiety.com/p/sns-crocs-clog-collab-2024/)
-
-In celebration of its 25th anniversary, Sneakersnstuff has linked with Crocs for a first-ever collaboration involving the effortless Dylan clog .The label ulti…
-
-*Published on: Mon, 22 Jul 2024 09:16:07 GMT*
-
-
-## Jennifer Lawrence
-
-## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
-
-Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
-
-*Published on: Mon, 22 Jul 2024 09:30:00 GMT*
-
-
-## Jennifer Lawrence
-
-## [Nike SB Is Making Olympic Skateboarding Stylish (Again)](https://www.highsnobiety.com/p/nike-sb-2024-olympic-uniforms-japan-usa/)
-
-Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. The sport’s first time competing in the Olympics, Nike SB jumped on the opportun…
-
-*Published on: Mon, 22 Jul 2024 11:20:34 GMT*
-
-
-## Jennifer Lawrence
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sun, 21 Jul 2024 14:11:00 GMT*
-
-
-## Jennifer Lawrence
-
 ## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
 On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
 *Published on: Sun, 21 Jul 2024 20:31:00 GMT*
-
-
-## Jennifer Lawrence
-
-## [Nike's Dropping a...Wonderful "Wizard of Oz" Skate Shoe?](https://www.highsnobiety.com/p/wizard-of-oz-nike-sb-dunks-2024/)
-
-We're off to see the Wizard, the wonderful Wizard of Oz...Nike Dunks?Nike SB has been quite busy this year, readying more skate-fied Nike classics and dishing …
-
-*Published on: Sun, 21 Jul 2024 15:52:00 GMT*
-
-
-## Joe Biden
-
-## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
-
-Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
-
-*Published on: Mon, 22 Jul 2024 08:00:42 GMT*
 
 
 ## Joe Biden
@@ -6886,20 +6877,11 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## Joe Biden
 
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
-*Published on: Sun, 21 Jul 2024 14:11:00 GMT*
-
-
-## Joe Biden
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
+*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
 
 
 ## Joe Biden
@@ -6911,13 +6893,22 @@ We're off to see the Wizard, the wonderful Wizard of Oz...Nike Dunks?Nike SB has
 *Published on: Sun, 21 Jul 2024 15:52:00 GMT*
 
 
-## J.K. Simmons
+## Joe Biden
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
 
 Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
 
 *Published on: Mon, 22 Jul 2024 08:00:42 GMT*
+
+
+## Joe Biden
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
 ## J.K. Simmons
@@ -6994,11 +6985,29 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## J.K. Simmons
 
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
-*Published on: Sun, 21 Jul 2024 14:11:00 GMT*
+*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+
+
+## J.K. Simmons
+
+## [Nike's Dropping a...Wonderful "Wizard of Oz" Skate Shoe?](https://www.highsnobiety.com/p/wizard-of-oz-nike-sb-dunks-2024/)
+
+We're off to see the Wizard, the wonderful Wizard of Oz...Nike Dunks?Nike SB has been quite busy this year, readying more skate-fied Nike classics and dishing …
+
+*Published on: Sun, 21 Jul 2024 15:52:00 GMT*
+
+
+## J.K. Simmons
+
+## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
+
+Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
+
+*Published on: Mon, 22 Jul 2024 08:00:42 GMT*
 
 
 ## J.K. Simmons
@@ -7010,7 +7019,88 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 *Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
-## J.K. Simmons
+## Kamala Harris
+
+## [New Balance's Ordinary Dad Shoes Are Getting Extraordinary Colorways (Finally)](https://www.highsnobiety.com/p/new-balance-725-sneakers-2024/)
+
+New Balance's 725 sneaker is one of the brand's more straightforward dad shoes. It is backed by a devoted fanbase that champions its chunky Y2K charm, maximum …
+
+*Published on: Mon, 22 Jul 2024 08:34:37 GMT*
+
+
+## Kamala Harris
+
+## [Nike's Admirable Gramps Sneaker Is a Legend Reborn ](https://www.highsnobiety.com/p/nike-ld-1000-sneakers-2024-where-to-buy/)
+
+It's been a big year for revivals, especially those plucked from Nike's archives. With the Swoosh dipping further and further back in its oldest shoes, it was …
+
+*Published on: Mon, 22 Jul 2024 09:00:49 GMT*
+
+
+## Kamala Harris
+
+## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
+
+Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
+
+*Published on: Mon, 22 Jul 2024 09:05:00 GMT*
+
+
+## Kamala Harris
+
+## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
+
+In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
+
+*Published on: Mon, 22 Jul 2024 09:11:00 GMT*
+
+
+## Kamala Harris
+
+## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
+
+To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
+
+*Published on: Mon, 22 Jul 2024 09:15:00 GMT*
+
+
+## Kamala Harris
+
+## [Crocs' Effortless Mule Went From Minimalist to Colorfully Maxed-Out ](https://www.highsnobiety.com/p/sns-crocs-clog-collab-2024/)
+
+In celebration of its 25th anniversary, Sneakersnstuff has linked with Crocs for a first-ever collaboration involving the effortless Dylan clog .The label ulti…
+
+*Published on: Mon, 22 Jul 2024 09:16:07 GMT*
+
+
+## Kamala Harris
+
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
+
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
+
+*Published on: Mon, 22 Jul 2024 09:30:00 GMT*
+
+
+## Kamala Harris
+
+## [Nike SB Is Making Olympic Skateboarding Stylish (Again)](https://www.highsnobiety.com/p/nike-sb-2024-olympic-uniforms-japan-usa/)
+
+Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. The sport’s first time competing in the Olympics, Nike SB jumped on the opportun…
+
+*Published on: Mon, 22 Jul 2024 11:20:34 GMT*
+
+
+## Kamala Harris
+
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
+
+*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+
+
+## Kamala Harris
 
 ## [Nike's Dropping a...Wonderful "Wizard of Oz" Skate Shoe?](https://www.highsnobiety.com/p/wizard-of-oz-nike-sb-dunks-2024/)
 
@@ -7030,110 +7120,11 @@ Let's get straight to the point here: Reebok is cooking right now.Earlier this w
 
 ## Kamala Harris
 
-## [New Balance's Ordinary Dad Shoes Are Getting Extraordinary Colorways (Finally)](https://www.highsnobiety.com/p/new-balance-725-sneakers-2024/)
-
-New Balance's 725 sneaker is one of the brand's more straightforward dad shoes. It is backed by a devoted fanbase that champions its chunky Y2K charm, maximum …
-
-*Published on: Mon, 22 Jul 2024 08:34:37 GMT*
-
-
-## Kamala Harris
-
-## [Nike's Admirable Gramps Sneaker Is a Legend Reborn ](https://www.highsnobiety.com/p/nike-ld-1000-sneakers-2024-where-to-buy/)
-
-It's been a big year for revivals, especially those plucked from Nike's archives. With the Swoosh dipping further and further back in its oldest shoes, it was …
-
-*Published on: Mon, 22 Jul 2024 09:00:49 GMT*
-
-
-## Kamala Harris
-
-## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
-
-Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
-
-*Published on: Mon, 22 Jul 2024 09:05:00 GMT*
-
-
-## Kamala Harris
-
-## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
-
-In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
-
-*Published on: Mon, 22 Jul 2024 09:11:00 GMT*
-
-
-## Kamala Harris
-
-## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
-
-To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
-
-*Published on: Mon, 22 Jul 2024 09:15:00 GMT*
-
-
-## Kamala Harris
-
-## [Crocs' Effortless Mule Went From Minimalist to Colorfully Maxed-Out ](https://www.highsnobiety.com/p/sns-crocs-clog-collab-2024/)
-
-In celebration of its 25th anniversary, Sneakersnstuff has linked with Crocs for a first-ever collaboration involving the effortless Dylan clog .The label ulti…
-
-*Published on: Mon, 22 Jul 2024 09:16:07 GMT*
-
-
-## Kamala Harris
-
-## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
-
-Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
-
-*Published on: Mon, 22 Jul 2024 09:30:00 GMT*
-
-
-## Kamala Harris
-
-## [Nike SB Is Making Olympic Skateboarding Stylish (Again)](https://www.highsnobiety.com/p/nike-sb-2024-olympic-uniforms-japan-usa/)
-
-Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. The sport’s first time competing in the Olympics, Nike SB jumped on the opportun…
-
-*Published on: Mon, 22 Jul 2024 11:20:34 GMT*
-
-
-## Kamala Harris
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sun, 21 Jul 2024 14:11:00 GMT*
-
-
-## Kamala Harris
-
 ## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
 On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
 *Published on: Sun, 21 Jul 2024 20:31:00 GMT*
-
-
-## Kamala Harris
-
-## [Nike's Dropping a...Wonderful "Wizard of Oz" Skate Shoe?](https://www.highsnobiety.com/p/wizard-of-oz-nike-sb-dunks-2024/)
-
-We're off to see the Wizard, the wonderful Wizard of Oz...Nike Dunks?Nike SB has been quite busy this year, readying more skate-fied Nike classics and dishing …
-
-*Published on: Sun, 21 Jul 2024 15:52:00 GMT*
-
-
-## John C Reilly
-
-## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
-
-Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
-
-*Published on: Mon, 22 Jul 2024 08:00:42 GMT*
 
 
 ## John C Reilly
@@ -7210,20 +7201,11 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## John C Reilly
 
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
-*Published on: Sun, 21 Jul 2024 14:11:00 GMT*
-
-
-## John C Reilly
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
+*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
 
 
 ## John C Reilly
@@ -7235,13 +7217,22 @@ We're off to see the Wizard, the wonderful Wizard of Oz...Nike Dunks?Nike SB has
 *Published on: Sun, 21 Jul 2024 15:52:00 GMT*
 
 
-## Kardashian
+## John C Reilly
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
 
 Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
 
 *Published on: Mon, 22 Jul 2024 08:00:42 GMT*
+
+
+## John C Reilly
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
 ## Kardashian
@@ -7318,11 +7309,29 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## Kardashian
 
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
-*Published on: Sun, 21 Jul 2024 14:11:00 GMT*
+*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+
+
+## Kardashian
+
+## [Nike's Dropping a...Wonderful "Wizard of Oz" Skate Shoe?](https://www.highsnobiety.com/p/wizard-of-oz-nike-sb-dunks-2024/)
+
+We're off to see the Wizard, the wonderful Wizard of Oz...Nike Dunks?Nike SB has been quite busy this year, readying more skate-fied Nike classics and dishing …
+
+*Published on: Sun, 21 Jul 2024 15:52:00 GMT*
+
+
+## Kardashian
+
+## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
+
+Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
+
+*Published on: Mon, 22 Jul 2024 08:00:42 GMT*
 
 
 ## Kardashian
@@ -7334,7 +7343,88 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 *Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
-## Kardashian
+## Kanye
+
+## [New Balance's Ordinary Dad Shoes Are Getting Extraordinary Colorways (Finally)](https://www.highsnobiety.com/p/new-balance-725-sneakers-2024/)
+
+New Balance's 725 sneaker is one of the brand's more straightforward dad shoes. It is backed by a devoted fanbase that champions its chunky Y2K charm, maximum …
+
+*Published on: Mon, 22 Jul 2024 08:34:37 GMT*
+
+
+## Kanye
+
+## [Nike's Admirable Gramps Sneaker Is a Legend Reborn ](https://www.highsnobiety.com/p/nike-ld-1000-sneakers-2024-where-to-buy/)
+
+It's been a big year for revivals, especially those plucked from Nike's archives. With the Swoosh dipping further and further back in its oldest shoes, it was …
+
+*Published on: Mon, 22 Jul 2024 09:00:49 GMT*
+
+
+## Kanye
+
+## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
+
+Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
+
+*Published on: Mon, 22 Jul 2024 09:05:00 GMT*
+
+
+## Kanye
+
+## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
+
+In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
+
+*Published on: Mon, 22 Jul 2024 09:11:00 GMT*
+
+
+## Kanye
+
+## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
+
+To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
+
+*Published on: Mon, 22 Jul 2024 09:15:00 GMT*
+
+
+## Kanye
+
+## [Crocs' Effortless Mule Went From Minimalist to Colorfully Maxed-Out ](https://www.highsnobiety.com/p/sns-crocs-clog-collab-2024/)
+
+In celebration of its 25th anniversary, Sneakersnstuff has linked with Crocs for a first-ever collaboration involving the effortless Dylan clog .The label ulti…
+
+*Published on: Mon, 22 Jul 2024 09:16:07 GMT*
+
+
+## Kanye
+
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
+
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
+
+*Published on: Mon, 22 Jul 2024 09:30:00 GMT*
+
+
+## Kanye
+
+## [Nike SB Is Making Olympic Skateboarding Stylish (Again)](https://www.highsnobiety.com/p/nike-sb-2024-olympic-uniforms-japan-usa/)
+
+Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. The sport’s first time competing in the Olympics, Nike SB jumped on the opportun…
+
+*Published on: Mon, 22 Jul 2024 11:20:34 GMT*
+
+
+## Kanye
+
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
+
+*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+
+
+## Kanye
 
 ## [Nike's Dropping a...Wonderful "Wizard of Oz" Skate Shoe?](https://www.highsnobiety.com/p/wizard-of-oz-nike-sb-dunks-2024/)
 
@@ -7354,110 +7444,11 @@ Let's get straight to the point here: Reebok is cooking right now.Earlier this w
 
 ## Kanye
 
-## [New Balance's Ordinary Dad Shoes Are Getting Extraordinary Colorways (Finally)](https://www.highsnobiety.com/p/new-balance-725-sneakers-2024/)
-
-New Balance's 725 sneaker is one of the brand's more straightforward dad shoes. It is backed by a devoted fanbase that champions its chunky Y2K charm, maximum …
-
-*Published on: Mon, 22 Jul 2024 08:34:37 GMT*
-
-
-## Kanye
-
-## [Nike's Admirable Gramps Sneaker Is a Legend Reborn ](https://www.highsnobiety.com/p/nike-ld-1000-sneakers-2024-where-to-buy/)
-
-It's been a big year for revivals, especially those plucked from Nike's archives. With the Swoosh dipping further and further back in its oldest shoes, it was …
-
-*Published on: Mon, 22 Jul 2024 09:00:49 GMT*
-
-
-## Kanye
-
-## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
-
-Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
-
-*Published on: Mon, 22 Jul 2024 09:05:00 GMT*
-
-
-## Kanye
-
-## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
-
-In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
-
-*Published on: Mon, 22 Jul 2024 09:11:00 GMT*
-
-
-## Kanye
-
-## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
-
-To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
-
-*Published on: Mon, 22 Jul 2024 09:15:00 GMT*
-
-
-## Kanye
-
-## [Crocs' Effortless Mule Went From Minimalist to Colorfully Maxed-Out ](https://www.highsnobiety.com/p/sns-crocs-clog-collab-2024/)
-
-In celebration of its 25th anniversary, Sneakersnstuff has linked with Crocs for a first-ever collaboration involving the effortless Dylan clog .The label ulti…
-
-*Published on: Mon, 22 Jul 2024 09:16:07 GMT*
-
-
-## Kanye
-
-## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
-
-Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
-
-*Published on: Mon, 22 Jul 2024 09:30:00 GMT*
-
-
-## Kanye
-
-## [Nike SB Is Making Olympic Skateboarding Stylish (Again)](https://www.highsnobiety.com/p/nike-sb-2024-olympic-uniforms-japan-usa/)
-
-Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. The sport’s first time competing in the Olympics, Nike SB jumped on the opportun…
-
-*Published on: Mon, 22 Jul 2024 11:20:34 GMT*
-
-
-## Kanye
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sun, 21 Jul 2024 14:11:00 GMT*
-
-
-## Kanye
-
 ## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
 On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
 *Published on: Sun, 21 Jul 2024 20:31:00 GMT*
-
-
-## Kanye
-
-## [Nike's Dropping a...Wonderful "Wizard of Oz" Skate Shoe?](https://www.highsnobiety.com/p/wizard-of-oz-nike-sb-dunks-2024/)
-
-We're off to see the Wizard, the wonderful Wizard of Oz...Nike Dunks?Nike SB has been quite busy this year, readying more skate-fied Nike classics and dishing …
-
-*Published on: Sun, 21 Jul 2024 15:52:00 GMT*
-
-
-## Zendaya
-
-## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
-
-Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
-
-*Published on: Mon, 22 Jul 2024 08:00:42 GMT*
 
 
 ## Zendaya
@@ -7534,20 +7525,11 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## Zendaya
 
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
-*Published on: Sun, 21 Jul 2024 14:11:00 GMT*
-
-
-## Zendaya
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
+*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
 
 
 ## Zendaya
@@ -7559,13 +7541,22 @@ We're off to see the Wizard, the wonderful Wizard of Oz...Nike Dunks?Nike SB has
 *Published on: Sun, 21 Jul 2024 15:52:00 GMT*
 
 
-## Will Ferrell
+## Zendaya
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
 
 Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
 
 *Published on: Mon, 22 Jul 2024 08:00:42 GMT*
+
+
+## Zendaya
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
 ## Will Ferrell
@@ -7642,11 +7633,29 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## Will Ferrell
 
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
-*Published on: Sun, 21 Jul 2024 14:11:00 GMT*
+*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+
+
+## Will Ferrell
+
+## [Nike's Dropping a...Wonderful "Wizard of Oz" Skate Shoe?](https://www.highsnobiety.com/p/wizard-of-oz-nike-sb-dunks-2024/)
+
+We're off to see the Wizard, the wonderful Wizard of Oz...Nike Dunks?Nike SB has been quite busy this year, readying more skate-fied Nike classics and dishing …
+
+*Published on: Sun, 21 Jul 2024 15:52:00 GMT*
+
+
+## Will Ferrell
+
+## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
+
+Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
+
+*Published on: Mon, 22 Jul 2024 08:00:42 GMT*
 
 
 ## Will Ferrell
@@ -7658,7 +7667,88 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 *Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
-## Will Ferrell
+## Zazie Beetz
+
+## [New Balance's Ordinary Dad Shoes Are Getting Extraordinary Colorways (Finally)](https://www.highsnobiety.com/p/new-balance-725-sneakers-2024/)
+
+New Balance's 725 sneaker is one of the brand's more straightforward dad shoes. It is backed by a devoted fanbase that champions its chunky Y2K charm, maximum …
+
+*Published on: Mon, 22 Jul 2024 08:34:37 GMT*
+
+
+## Zazie Beetz
+
+## [Nike's Admirable Gramps Sneaker Is a Legend Reborn ](https://www.highsnobiety.com/p/nike-ld-1000-sneakers-2024-where-to-buy/)
+
+It's been a big year for revivals, especially those plucked from Nike's archives. With the Swoosh dipping further and further back in its oldest shoes, it was …
+
+*Published on: Mon, 22 Jul 2024 09:00:49 GMT*
+
+
+## Zazie Beetz
+
+## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
+
+Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
+
+*Published on: Mon, 22 Jul 2024 09:05:00 GMT*
+
+
+## Zazie Beetz
+
+## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
+
+In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
+
+*Published on: Mon, 22 Jul 2024 09:11:00 GMT*
+
+
+## Zazie Beetz
+
+## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
+
+To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
+
+*Published on: Mon, 22 Jul 2024 09:15:00 GMT*
+
+
+## Zazie Beetz
+
+## [Crocs' Effortless Mule Went From Minimalist to Colorfully Maxed-Out ](https://www.highsnobiety.com/p/sns-crocs-clog-collab-2024/)
+
+In celebration of its 25th anniversary, Sneakersnstuff has linked with Crocs for a first-ever collaboration involving the effortless Dylan clog .The label ulti…
+
+*Published on: Mon, 22 Jul 2024 09:16:07 GMT*
+
+
+## Zazie Beetz
+
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
+
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
+
+*Published on: Mon, 22 Jul 2024 09:30:00 GMT*
+
+
+## Zazie Beetz
+
+## [Nike SB Is Making Olympic Skateboarding Stylish (Again)](https://www.highsnobiety.com/p/nike-sb-2024-olympic-uniforms-japan-usa/)
+
+Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. The sport’s first time competing in the Olympics, Nike SB jumped on the opportun…
+
+*Published on: Mon, 22 Jul 2024 11:20:34 GMT*
+
+
+## Zazie Beetz
+
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
+
+*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+
+
+## Zazie Beetz
 
 ## [Nike's Dropping a...Wonderful "Wizard of Oz" Skate Shoe?](https://www.highsnobiety.com/p/wizard-of-oz-nike-sb-dunks-2024/)
 
@@ -7678,110 +7768,11 @@ Let's get straight to the point here: Reebok is cooking right now.Earlier this w
 
 ## Zazie Beetz
 
-## [New Balance's Ordinary Dad Shoes Are Getting Extraordinary Colorways (Finally)](https://www.highsnobiety.com/p/new-balance-725-sneakers-2024/)
-
-New Balance's 725 sneaker is one of the brand's more straightforward dad shoes. It is backed by a devoted fanbase that champions its chunky Y2K charm, maximum …
-
-*Published on: Mon, 22 Jul 2024 08:34:37 GMT*
-
-
-## Zazie Beetz
-
-## [Nike's Admirable Gramps Sneaker Is a Legend Reborn ](https://www.highsnobiety.com/p/nike-ld-1000-sneakers-2024-where-to-buy/)
-
-It's been a big year for revivals, especially those plucked from Nike's archives. With the Swoosh dipping further and further back in its oldest shoes, it was …
-
-*Published on: Mon, 22 Jul 2024 09:00:49 GMT*
-
-
-## Zazie Beetz
-
-## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
-
-Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
-
-*Published on: Mon, 22 Jul 2024 09:05:00 GMT*
-
-
-## Zazie Beetz
-
-## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
-
-In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
-
-*Published on: Mon, 22 Jul 2024 09:11:00 GMT*
-
-
-## Zazie Beetz
-
-## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
-
-To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
-
-*Published on: Mon, 22 Jul 2024 09:15:00 GMT*
-
-
-## Zazie Beetz
-
-## [Crocs' Effortless Mule Went From Minimalist to Colorfully Maxed-Out ](https://www.highsnobiety.com/p/sns-crocs-clog-collab-2024/)
-
-In celebration of its 25th anniversary, Sneakersnstuff has linked with Crocs for a first-ever collaboration involving the effortless Dylan clog .The label ulti…
-
-*Published on: Mon, 22 Jul 2024 09:16:07 GMT*
-
-
-## Zazie Beetz
-
-## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
-
-Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
-
-*Published on: Mon, 22 Jul 2024 09:30:00 GMT*
-
-
-## Zazie Beetz
-
-## [Nike SB Is Making Olympic Skateboarding Stylish (Again)](https://www.highsnobiety.com/p/nike-sb-2024-olympic-uniforms-japan-usa/)
-
-Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. The sport’s first time competing in the Olympics, Nike SB jumped on the opportun…
-
-*Published on: Mon, 22 Jul 2024 11:20:34 GMT*
-
-
-## Zazie Beetz
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sun, 21 Jul 2024 14:11:00 GMT*
-
-
-## Zazie Beetz
-
 ## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
 On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
 *Published on: Sun, 21 Jul 2024 20:31:00 GMT*
-
-
-## Zazie Beetz
-
-## [Nike's Dropping a...Wonderful "Wizard of Oz" Skate Shoe?](https://www.highsnobiety.com/p/wizard-of-oz-nike-sb-dunks-2024/)
-
-We're off to see the Wizard, the wonderful Wizard of Oz...Nike Dunks?Nike SB has been quite busy this year, readying more skate-fied Nike classics and dishing …
-
-*Published on: Sun, 21 Jul 2024 15:52:00 GMT*
-
-
-## Bob Odenkirk
-
-## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
-
-Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
-
-*Published on: Mon, 22 Jul 2024 08:00:42 GMT*
 
 
 ## Bob Odenkirk
@@ -7858,20 +7849,11 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## Bob Odenkirk
 
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
-*Published on: Sun, 21 Jul 2024 14:11:00 GMT*
-
-
-## Bob Odenkirk
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
+*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
 
 
 ## Bob Odenkirk
@@ -7883,13 +7865,22 @@ We're off to see the Wizard, the wonderful Wizard of Oz...Nike Dunks?Nike SB has
 *Published on: Sun, 21 Jul 2024 15:52:00 GMT*
 
 
-## Brad Pitt
+## Bob Odenkirk
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
 
 Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
 
 *Published on: Mon, 22 Jul 2024 08:00:42 GMT*
+
+
+## Bob Odenkirk
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
 ## Brad Pitt
@@ -7966,11 +7957,29 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## Brad Pitt
 
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
-*Published on: Sun, 21 Jul 2024 14:11:00 GMT*
+*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+
+
+## Brad Pitt
+
+## [Nike's Dropping a...Wonderful "Wizard of Oz" Skate Shoe?](https://www.highsnobiety.com/p/wizard-of-oz-nike-sb-dunks-2024/)
+
+We're off to see the Wizard, the wonderful Wizard of Oz...Nike Dunks?Nike SB has been quite busy this year, readying more skate-fied Nike classics and dishing …
+
+*Published on: Sun, 21 Jul 2024 15:52:00 GMT*
+
+
+## Brad Pitt
+
+## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
+
+Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
+
+*Published on: Mon, 22 Jul 2024 08:00:42 GMT*
 
 
 ## Brad Pitt
@@ -7982,7 +7991,88 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 *Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
-## Brad Pitt
+## Beyoncé
+
+## [New Balance's Ordinary Dad Shoes Are Getting Extraordinary Colorways (Finally)](https://www.highsnobiety.com/p/new-balance-725-sneakers-2024/)
+
+New Balance's 725 sneaker is one of the brand's more straightforward dad shoes. It is backed by a devoted fanbase that champions its chunky Y2K charm, maximum …
+
+*Published on: Mon, 22 Jul 2024 08:34:37 GMT*
+
+
+## Beyoncé
+
+## [Nike's Admirable Gramps Sneaker Is a Legend Reborn ](https://www.highsnobiety.com/p/nike-ld-1000-sneakers-2024-where-to-buy/)
+
+It's been a big year for revivals, especially those plucked from Nike's archives. With the Swoosh dipping further and further back in its oldest shoes, it was …
+
+*Published on: Mon, 22 Jul 2024 09:00:49 GMT*
+
+
+## Beyoncé
+
+## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
+
+Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
+
+*Published on: Mon, 22 Jul 2024 09:05:00 GMT*
+
+
+## Beyoncé
+
+## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
+
+In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
+
+*Published on: Mon, 22 Jul 2024 09:11:00 GMT*
+
+
+## Beyoncé
+
+## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
+
+To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
+
+*Published on: Mon, 22 Jul 2024 09:15:00 GMT*
+
+
+## Beyoncé
+
+## [Crocs' Effortless Mule Went From Minimalist to Colorfully Maxed-Out ](https://www.highsnobiety.com/p/sns-crocs-clog-collab-2024/)
+
+In celebration of its 25th anniversary, Sneakersnstuff has linked with Crocs for a first-ever collaboration involving the effortless Dylan clog .The label ulti…
+
+*Published on: Mon, 22 Jul 2024 09:16:07 GMT*
+
+
+## Beyoncé
+
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
+
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
+
+*Published on: Mon, 22 Jul 2024 09:30:00 GMT*
+
+
+## Beyoncé
+
+## [Nike SB Is Making Olympic Skateboarding Stylish (Again)](https://www.highsnobiety.com/p/nike-sb-2024-olympic-uniforms-japan-usa/)
+
+Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. The sport’s first time competing in the Olympics, Nike SB jumped on the opportun…
+
+*Published on: Mon, 22 Jul 2024 11:20:34 GMT*
+
+
+## Beyoncé
+
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
+
+*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+
+
+## Beyoncé
 
 ## [Nike's Dropping a...Wonderful "Wizard of Oz" Skate Shoe?](https://www.highsnobiety.com/p/wizard-of-oz-nike-sb-dunks-2024/)
 
@@ -8002,110 +8092,11 @@ Let's get straight to the point here: Reebok is cooking right now.Earlier this w
 
 ## Beyoncé
 
-## [New Balance's Ordinary Dad Shoes Are Getting Extraordinary Colorways (Finally)](https://www.highsnobiety.com/p/new-balance-725-sneakers-2024/)
-
-New Balance's 725 sneaker is one of the brand's more straightforward dad shoes. It is backed by a devoted fanbase that champions its chunky Y2K charm, maximum …
-
-*Published on: Mon, 22 Jul 2024 08:34:37 GMT*
-
-
-## Beyoncé
-
-## [Nike's Admirable Gramps Sneaker Is a Legend Reborn ](https://www.highsnobiety.com/p/nike-ld-1000-sneakers-2024-where-to-buy/)
-
-It's been a big year for revivals, especially those plucked from Nike's archives. With the Swoosh dipping further and further back in its oldest shoes, it was …
-
-*Published on: Mon, 22 Jul 2024 09:00:49 GMT*
-
-
-## Beyoncé
-
-## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
-
-Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
-
-*Published on: Mon, 22 Jul 2024 09:05:00 GMT*
-
-
-## Beyoncé
-
-## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
-
-In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
-
-*Published on: Mon, 22 Jul 2024 09:11:00 GMT*
-
-
-## Beyoncé
-
-## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
-
-To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
-
-*Published on: Mon, 22 Jul 2024 09:15:00 GMT*
-
-
-## Beyoncé
-
-## [Crocs' Effortless Mule Went From Minimalist to Colorfully Maxed-Out ](https://www.highsnobiety.com/p/sns-crocs-clog-collab-2024/)
-
-In celebration of its 25th anniversary, Sneakersnstuff has linked with Crocs for a first-ever collaboration involving the effortless Dylan clog .The label ulti…
-
-*Published on: Mon, 22 Jul 2024 09:16:07 GMT*
-
-
-## Beyoncé
-
-## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
-
-Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
-
-*Published on: Mon, 22 Jul 2024 09:30:00 GMT*
-
-
-## Beyoncé
-
-## [Nike SB Is Making Olympic Skateboarding Stylish (Again)](https://www.highsnobiety.com/p/nike-sb-2024-olympic-uniforms-japan-usa/)
-
-Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. The sport’s first time competing in the Olympics, Nike SB jumped on the opportun…
-
-*Published on: Mon, 22 Jul 2024 11:20:34 GMT*
-
-
-## Beyoncé
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sun, 21 Jul 2024 14:11:00 GMT*
-
-
-## Beyoncé
-
 ## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
 On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
 *Published on: Sun, 21 Jul 2024 20:31:00 GMT*
-
-
-## Beyoncé
-
-## [Nike's Dropping a...Wonderful "Wizard of Oz" Skate Shoe?](https://www.highsnobiety.com/p/wizard-of-oz-nike-sb-dunks-2024/)
-
-We're off to see the Wizard, the wonderful Wizard of Oz...Nike Dunks?Nike SB has been quite busy this year, readying more skate-fied Nike classics and dishing …
-
-*Published on: Sun, 21 Jul 2024 15:52:00 GMT*
-
-
-## Bia
-
-## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
-
-Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
-
-*Published on: Mon, 22 Jul 2024 08:00:42 GMT*
 
 
 ## Bia
@@ -8182,20 +8173,11 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## Bia
 
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
-*Published on: Sun, 21 Jul 2024 14:11:00 GMT*
-
-
-## Bia
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
+*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
 
 
 ## Bia
@@ -8207,13 +8189,22 @@ We're off to see the Wizard, the wonderful Wizard of Oz...Nike Dunks?Nike SB has
 *Published on: Sun, 21 Jul 2024 15:52:00 GMT*
 
 
-## Avantika
+## Bia
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
 
 Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
 
 *Published on: Mon, 22 Jul 2024 08:00:42 GMT*
+
+
+## Bia
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
 ## Avantika
@@ -8290,11 +8281,29 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## Avantika
 
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
-*Published on: Sun, 21 Jul 2024 14:11:00 GMT*
+*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+
+
+## Avantika
+
+## [Nike's Dropping a...Wonderful "Wizard of Oz" Skate Shoe?](https://www.highsnobiety.com/p/wizard-of-oz-nike-sb-dunks-2024/)
+
+We're off to see the Wizard, the wonderful Wizard of Oz...Nike Dunks?Nike SB has been quite busy this year, readying more skate-fied Nike classics and dishing …
+
+*Published on: Sun, 21 Jul 2024 15:52:00 GMT*
+
+
+## Avantika
+
+## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
+
+Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
+
+*Published on: Mon, 22 Jul 2024 08:00:42 GMT*
 
 
 ## Avantika
@@ -8306,7 +8315,88 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 *Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
-## Avantika
+## Bernie Sanders
+
+## [New Balance's Ordinary Dad Shoes Are Getting Extraordinary Colorways (Finally)](https://www.highsnobiety.com/p/new-balance-725-sneakers-2024/)
+
+New Balance's 725 sneaker is one of the brand's more straightforward dad shoes. It is backed by a devoted fanbase that champions its chunky Y2K charm, maximum …
+
+*Published on: Mon, 22 Jul 2024 08:34:37 GMT*
+
+
+## Bernie Sanders
+
+## [Nike's Admirable Gramps Sneaker Is a Legend Reborn ](https://www.highsnobiety.com/p/nike-ld-1000-sneakers-2024-where-to-buy/)
+
+It's been a big year for revivals, especially those plucked from Nike's archives. With the Swoosh dipping further and further back in its oldest shoes, it was …
+
+*Published on: Mon, 22 Jul 2024 09:00:49 GMT*
+
+
+## Bernie Sanders
+
+## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
+
+Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
+
+*Published on: Mon, 22 Jul 2024 09:05:00 GMT*
+
+
+## Bernie Sanders
+
+## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
+
+In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
+
+*Published on: Mon, 22 Jul 2024 09:11:00 GMT*
+
+
+## Bernie Sanders
+
+## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
+
+To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
+
+*Published on: Mon, 22 Jul 2024 09:15:00 GMT*
+
+
+## Bernie Sanders
+
+## [Crocs' Effortless Mule Went From Minimalist to Colorfully Maxed-Out ](https://www.highsnobiety.com/p/sns-crocs-clog-collab-2024/)
+
+In celebration of its 25th anniversary, Sneakersnstuff has linked with Crocs for a first-ever collaboration involving the effortless Dylan clog .The label ulti…
+
+*Published on: Mon, 22 Jul 2024 09:16:07 GMT*
+
+
+## Bernie Sanders
+
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
+
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
+
+*Published on: Mon, 22 Jul 2024 09:30:00 GMT*
+
+
+## Bernie Sanders
+
+## [Nike SB Is Making Olympic Skateboarding Stylish (Again)](https://www.highsnobiety.com/p/nike-sb-2024-olympic-uniforms-japan-usa/)
+
+Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. The sport’s first time competing in the Olympics, Nike SB jumped on the opportun…
+
+*Published on: Mon, 22 Jul 2024 11:20:34 GMT*
+
+
+## Bernie Sanders
+
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
+
+*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+
+
+## Bernie Sanders
 
 ## [Nike's Dropping a...Wonderful "Wizard of Oz" Skate Shoe?](https://www.highsnobiety.com/p/wizard-of-oz-nike-sb-dunks-2024/)
 
@@ -8326,110 +8416,11 @@ Let's get straight to the point here: Reebok is cooking right now.Earlier this w
 
 ## Bernie Sanders
 
-## [New Balance's Ordinary Dad Shoes Are Getting Extraordinary Colorways (Finally)](https://www.highsnobiety.com/p/new-balance-725-sneakers-2024/)
-
-New Balance's 725 sneaker is one of the brand's more straightforward dad shoes. It is backed by a devoted fanbase that champions its chunky Y2K charm, maximum …
-
-*Published on: Mon, 22 Jul 2024 08:34:37 GMT*
-
-
-## Bernie Sanders
-
-## [Nike's Admirable Gramps Sneaker Is a Legend Reborn ](https://www.highsnobiety.com/p/nike-ld-1000-sneakers-2024-where-to-buy/)
-
-It's been a big year for revivals, especially those plucked from Nike's archives. With the Swoosh dipping further and further back in its oldest shoes, it was …
-
-*Published on: Mon, 22 Jul 2024 09:00:49 GMT*
-
-
-## Bernie Sanders
-
-## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
-
-Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
-
-*Published on: Mon, 22 Jul 2024 09:05:00 GMT*
-
-
-## Bernie Sanders
-
-## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
-
-In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
-
-*Published on: Mon, 22 Jul 2024 09:11:00 GMT*
-
-
-## Bernie Sanders
-
-## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
-
-To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
-
-*Published on: Mon, 22 Jul 2024 09:15:00 GMT*
-
-
-## Bernie Sanders
-
-## [Crocs' Effortless Mule Went From Minimalist to Colorfully Maxed-Out ](https://www.highsnobiety.com/p/sns-crocs-clog-collab-2024/)
-
-In celebration of its 25th anniversary, Sneakersnstuff has linked with Crocs for a first-ever collaboration involving the effortless Dylan clog .The label ulti…
-
-*Published on: Mon, 22 Jul 2024 09:16:07 GMT*
-
-
-## Bernie Sanders
-
-## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
-
-Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
-
-*Published on: Mon, 22 Jul 2024 09:30:00 GMT*
-
-
-## Bernie Sanders
-
-## [Nike SB Is Making Olympic Skateboarding Stylish (Again)](https://www.highsnobiety.com/p/nike-sb-2024-olympic-uniforms-japan-usa/)
-
-Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. The sport’s first time competing in the Olympics, Nike SB jumped on the opportun…
-
-*Published on: Mon, 22 Jul 2024 11:20:34 GMT*
-
-
-## Bernie Sanders
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sun, 21 Jul 2024 14:11:00 GMT*
-
-
-## Bernie Sanders
-
 ## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
 On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
 *Published on: Sun, 21 Jul 2024 20:31:00 GMT*
-
-
-## Bernie Sanders
-
-## [Nike's Dropping a...Wonderful "Wizard of Oz" Skate Shoe?](https://www.highsnobiety.com/p/wizard-of-oz-nike-sb-dunks-2024/)
-
-We're off to see the Wizard, the wonderful Wizard of Oz...Nike Dunks?Nike SB has been quite busy this year, readying more skate-fied Nike classics and dishing …
-
-*Published on: Sun, 21 Jul 2024 15:52:00 GMT*
-
-
-## Big Sean
-
-## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
-
-Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
-
-*Published on: Mon, 22 Jul 2024 08:00:42 GMT*
 
 
 ## Big Sean
@@ -8506,20 +8497,11 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## Big Sean
 
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
-*Published on: Sun, 21 Jul 2024 14:11:00 GMT*
-
-
-## Big Sean
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
+*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
 
 
 ## Big Sean
@@ -8531,13 +8513,22 @@ We're off to see the Wizard, the wonderful Wizard of Oz...Nike Dunks?Nike SB has
 *Published on: Sun, 21 Jul 2024 15:52:00 GMT*
 
 
-## BlockBoy JB
+## Big Sean
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
 
 Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
 
 *Published on: Mon, 22 Jul 2024 08:00:42 GMT*
+
+
+## Big Sean
+
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
 ## BlockBoy JB
@@ -8614,11 +8605,29 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## BlockBoy JB
 
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
-*Published on: Sun, 21 Jul 2024 14:11:00 GMT*
+*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+
+
+## BlockBoy JB
+
+## [Nike's Dropping a...Wonderful "Wizard of Oz" Skate Shoe?](https://www.highsnobiety.com/p/wizard-of-oz-nike-sb-dunks-2024/)
+
+We're off to see the Wizard, the wonderful Wizard of Oz...Nike Dunks?Nike SB has been quite busy this year, readying more skate-fied Nike classics and dishing …
+
+*Published on: Sun, 21 Jul 2024 15:52:00 GMT*
+
+
+## BlockBoy JB
+
+## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
+
+Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
+
+*Published on: Mon, 22 Jul 2024 08:00:42 GMT*
 
 
 ## BlockBoy JB
@@ -8630,7 +8639,88 @@ On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billi
 *Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
-## BlockBoy JB
+## Biden
+
+## [New Balance's Ordinary Dad Shoes Are Getting Extraordinary Colorways (Finally)](https://www.highsnobiety.com/p/new-balance-725-sneakers-2024/)
+
+New Balance's 725 sneaker is one of the brand's more straightforward dad shoes. It is backed by a devoted fanbase that champions its chunky Y2K charm, maximum …
+
+*Published on: Mon, 22 Jul 2024 08:34:37 GMT*
+
+
+## Biden
+
+## [Nike's Admirable Gramps Sneaker Is a Legend Reborn ](https://www.highsnobiety.com/p/nike-ld-1000-sneakers-2024-where-to-buy/)
+
+It's been a big year for revivals, especially those plucked from Nike's archives. With the Swoosh dipping further and further back in its oldest shoes, it was …
+
+*Published on: Mon, 22 Jul 2024 09:00:49 GMT*
+
+
+## Biden
+
+## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
+
+Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
+
+*Published on: Mon, 22 Jul 2024 09:05:00 GMT*
+
+
+## Biden
+
+## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
+
+In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
+
+*Published on: Mon, 22 Jul 2024 09:11:00 GMT*
+
+
+## Biden
+
+## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
+
+To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
+
+*Published on: Mon, 22 Jul 2024 09:15:00 GMT*
+
+
+## Biden
+
+## [Crocs' Effortless Mule Went From Minimalist to Colorfully Maxed-Out ](https://www.highsnobiety.com/p/sns-crocs-clog-collab-2024/)
+
+In celebration of its 25th anniversary, Sneakersnstuff has linked with Crocs for a first-ever collaboration involving the effortless Dylan clog .The label ulti…
+
+*Published on: Mon, 22 Jul 2024 09:16:07 GMT*
+
+
+## Biden
+
+## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
+
+Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
+
+*Published on: Mon, 22 Jul 2024 09:30:00 GMT*
+
+
+## Biden
+
+## [Nike SB Is Making Olympic Skateboarding Stylish (Again)](https://www.highsnobiety.com/p/nike-sb-2024-olympic-uniforms-japan-usa/)
+
+Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. The sport’s first time competing in the Olympics, Nike SB jumped on the opportun…
+
+*Published on: Mon, 22 Jul 2024 11:20:34 GMT*
+
+
+## Biden
+
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
+
+*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+
+
+## Biden
 
 ## [Nike's Dropping a...Wonderful "Wizard of Oz" Skate Shoe?](https://www.highsnobiety.com/p/wizard-of-oz-nike-sb-dunks-2024/)
 
@@ -8650,6 +8740,15 @@ Let's get straight to the point here: Reebok is cooking right now.Earlier this w
 
 ## Biden
 
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
+
+
+## Bieber
+
 ## [New Balance's Ordinary Dad Shoes Are Getting Extraordinary Colorways (Finally)](https://www.highsnobiety.com/p/new-balance-725-sneakers-2024/)
 
 New Balance's 725 sneaker is one of the brand's more straightforward dad shoes. It is backed by a devoted fanbase that champions its chunky Y2K charm, maximum …
@@ -8657,7 +8756,7 @@ New Balance's 725 sneaker is one of the brand's more straightforward dad shoes. 
 *Published on: Mon, 22 Jul 2024 08:34:37 GMT*
 
 
-## Biden
+## Bieber
 
 ## [Nike's Admirable Gramps Sneaker Is a Legend Reborn ](https://www.highsnobiety.com/p/nike-ld-1000-sneakers-2024-where-to-buy/)
 
@@ -8666,7 +8765,7 @@ It's been a big year for revivals, especially those plucked from Nike's archives
 *Published on: Mon, 22 Jul 2024 09:00:49 GMT*
 
 
-## Biden
+## Bieber
 
 ## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
 
@@ -8675,7 +8774,7 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 *Published on: Mon, 22 Jul 2024 09:05:00 GMT*
 
 
-## Biden
+## Bieber
 
 ## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
 
@@ -8684,7 +8783,7 @@ In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo sho
 *Published on: Mon, 22 Jul 2024 09:11:00 GMT*
 
 
-## Biden
+## Bieber
 
 ## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
 
@@ -8693,7 +8792,7 @@ To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration
 *Published on: Mon, 22 Jul 2024 09:15:00 GMT*
 
 
-## Biden
+## Bieber
 
 ## [Crocs' Effortless Mule Went From Minimalist to Colorfully Maxed-Out ](https://www.highsnobiety.com/p/sns-crocs-clog-collab-2024/)
 
@@ -8702,7 +8801,7 @@ In celebration of its 25th anniversary, Sneakersnstuff has linked with Crocs for
 *Published on: Mon, 22 Jul 2024 09:16:07 GMT*
 
 
-## Biden
+## Bieber
 
 ## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
 
@@ -8711,7 +8810,7 @@ Starface, beloved for its hydrocolloid pimple patches in bright colors and novel
 *Published on: Mon, 22 Jul 2024 09:30:00 GMT*
 
 
-## Biden
+## Bieber
 
 ## [Nike SB Is Making Olympic Skateboarding Stylish (Again)](https://www.highsnobiety.com/p/nike-sb-2024-olympic-uniforms-japan-usa/)
 
@@ -8720,25 +8819,16 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 *Published on: Mon, 22 Jul 2024 11:20:34 GMT*
 
 
-## Biden
+## Bieber
 
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
-*Published on: Sun, 21 Jul 2024 14:11:00 GMT*
-
-
-## Biden
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
+*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
 
 
-## Biden
+## Bieber
 
 ## [Nike's Dropping a...Wonderful "Wizard of Oz" Skate Shoe?](https://www.highsnobiety.com/p/wizard-of-oz-nike-sb-dunks-2024/)
 
@@ -8758,6 +8848,15 @@ Let's get straight to the point here: Reebok is cooking right now.Earlier this w
 
 ## Bieber
 
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
+
+
+## Paulina Porizkov
+
 ## [New Balance's Ordinary Dad Shoes Are Getting Extraordinary Colorways (Finally)](https://www.highsnobiety.com/p/new-balance-725-sneakers-2024/)
 
 New Balance's 725 sneaker is one of the brand's more straightforward dad shoes. It is backed by a devoted fanbase that champions its chunky Y2K charm, maximum …
@@ -8765,7 +8864,7 @@ New Balance's 725 sneaker is one of the brand's more straightforward dad shoes. 
 *Published on: Mon, 22 Jul 2024 08:34:37 GMT*
 
 
-## Bieber
+## Paulina Porizkov
 
 ## [Nike's Admirable Gramps Sneaker Is a Legend Reborn ](https://www.highsnobiety.com/p/nike-ld-1000-sneakers-2024-where-to-buy/)
 
@@ -8774,7 +8873,7 @@ It's been a big year for revivals, especially those plucked from Nike's archives
 *Published on: Mon, 22 Jul 2024 09:00:49 GMT*
 
 
-## Bieber
+## Paulina Porizkov
 
 ## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
 
@@ -8783,7 +8882,7 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 *Published on: Mon, 22 Jul 2024 09:05:00 GMT*
 
 
-## Bieber
+## Paulina Porizkov
 
 ## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
 
@@ -8792,7 +8891,7 @@ In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo sho
 *Published on: Mon, 22 Jul 2024 09:11:00 GMT*
 
 
-## Bieber
+## Paulina Porizkov
 
 ## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
 
@@ -8801,7 +8900,7 @@ To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration
 *Published on: Mon, 22 Jul 2024 09:15:00 GMT*
 
 
-## Bieber
+## Paulina Porizkov
 
 ## [Crocs' Effortless Mule Went From Minimalist to Colorfully Maxed-Out ](https://www.highsnobiety.com/p/sns-crocs-clog-collab-2024/)
 
@@ -8810,7 +8909,7 @@ In celebration of its 25th anniversary, Sneakersnstuff has linked with Crocs for
 *Published on: Mon, 22 Jul 2024 09:16:07 GMT*
 
 
-## Bieber
+## Paulina Porizkov
 
 ## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
 
@@ -8819,7 +8918,7 @@ Starface, beloved for its hydrocolloid pimple patches in bright colors and novel
 *Published on: Mon, 22 Jul 2024 09:30:00 GMT*
 
 
-## Bieber
+## Paulina Porizkov
 
 ## [Nike SB Is Making Olympic Skateboarding Stylish (Again)](https://www.highsnobiety.com/p/nike-sb-2024-olympic-uniforms-japan-usa/)
 
@@ -8828,25 +8927,16 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 *Published on: Mon, 22 Jul 2024 11:20:34 GMT*
 
 
-## Bieber
+## Paulina Porizkov
 
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
-*Published on: Sun, 21 Jul 2024 14:11:00 GMT*
-
-
-## Bieber
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
+*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
 
 
-## Bieber
+## Paulina Porizkov
 
 ## [Nike's Dropping a...Wonderful "Wizard of Oz" Skate Shoe?](https://www.highsnobiety.com/p/wizard-of-oz-nike-sb-dunks-2024/)
 
@@ -8866,6 +8956,15 @@ Let's get straight to the point here: Reebok is cooking right now.Earlier this w
 
 ## Paulina Porizkov
 
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
+
+
+## Paris Hilton
+
 ## [New Balance's Ordinary Dad Shoes Are Getting Extraordinary Colorways (Finally)](https://www.highsnobiety.com/p/new-balance-725-sneakers-2024/)
 
 New Balance's 725 sneaker is one of the brand's more straightforward dad shoes. It is backed by a devoted fanbase that champions its chunky Y2K charm, maximum …
@@ -8873,7 +8972,7 @@ New Balance's 725 sneaker is one of the brand's more straightforward dad shoes. 
 *Published on: Mon, 22 Jul 2024 08:34:37 GMT*
 
 
-## Paulina Porizkov
+## Paris Hilton
 
 ## [Nike's Admirable Gramps Sneaker Is a Legend Reborn ](https://www.highsnobiety.com/p/nike-ld-1000-sneakers-2024-where-to-buy/)
 
@@ -8882,7 +8981,7 @@ It's been a big year for revivals, especially those plucked from Nike's archives
 *Published on: Mon, 22 Jul 2024 09:00:49 GMT*
 
 
-## Paulina Porizkov
+## Paris Hilton
 
 ## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
 
@@ -8891,7 +8990,7 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 *Published on: Mon, 22 Jul 2024 09:05:00 GMT*
 
 
-## Paulina Porizkov
+## Paris Hilton
 
 ## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
 
@@ -8900,7 +8999,7 @@ In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo sho
 *Published on: Mon, 22 Jul 2024 09:11:00 GMT*
 
 
-## Paulina Porizkov
+## Paris Hilton
 
 ## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
 
@@ -8909,7 +9008,7 @@ To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration
 *Published on: Mon, 22 Jul 2024 09:15:00 GMT*
 
 
-## Paulina Porizkov
+## Paris Hilton
 
 ## [Crocs' Effortless Mule Went From Minimalist to Colorfully Maxed-Out ](https://www.highsnobiety.com/p/sns-crocs-clog-collab-2024/)
 
@@ -8918,7 +9017,7 @@ In celebration of its 25th anniversary, Sneakersnstuff has linked with Crocs for
 *Published on: Mon, 22 Jul 2024 09:16:07 GMT*
 
 
-## Paulina Porizkov
+## Paris Hilton
 
 ## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
 
@@ -8927,7 +9026,7 @@ Starface, beloved for its hydrocolloid pimple patches in bright colors and novel
 *Published on: Mon, 22 Jul 2024 09:30:00 GMT*
 
 
-## Paulina Porizkov
+## Paris Hilton
 
 ## [Nike SB Is Making Olympic Skateboarding Stylish (Again)](https://www.highsnobiety.com/p/nike-sb-2024-olympic-uniforms-japan-usa/)
 
@@ -8936,25 +9035,16 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 *Published on: Mon, 22 Jul 2024 11:20:34 GMT*
 
 
-## Paulina Porizkov
+## Paris Hilton
 
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
-*Published on: Sun, 21 Jul 2024 14:11:00 GMT*
-
-
-## Paulina Porizkov
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
+*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
 
 
-## Paulina Porizkov
+## Paris Hilton
 
 ## [Nike's Dropping a...Wonderful "Wizard of Oz" Skate Shoe?](https://www.highsnobiety.com/p/wizard-of-oz-nike-sb-dunks-2024/)
 
@@ -8974,6 +9064,15 @@ Let's get straight to the point here: Reebok is cooking right now.Earlier this w
 
 ## Paris Hilton
 
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
+
+
+## Metro Boomin
+
 ## [New Balance's Ordinary Dad Shoes Are Getting Extraordinary Colorways (Finally)](https://www.highsnobiety.com/p/new-balance-725-sneakers-2024/)
 
 New Balance's 725 sneaker is one of the brand's more straightforward dad shoes. It is backed by a devoted fanbase that champions its chunky Y2K charm, maximum …
@@ -8981,7 +9080,7 @@ New Balance's 725 sneaker is one of the brand's more straightforward dad shoes. 
 *Published on: Mon, 22 Jul 2024 08:34:37 GMT*
 
 
-## Paris Hilton
+## Metro Boomin
 
 ## [Nike's Admirable Gramps Sneaker Is a Legend Reborn ](https://www.highsnobiety.com/p/nike-ld-1000-sneakers-2024-where-to-buy/)
 
@@ -8990,7 +9089,7 @@ It's been a big year for revivals, especially those plucked from Nike's archives
 *Published on: Mon, 22 Jul 2024 09:00:49 GMT*
 
 
-## Paris Hilton
+## Metro Boomin
 
 ## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
 
@@ -8999,7 +9098,7 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 *Published on: Mon, 22 Jul 2024 09:05:00 GMT*
 
 
-## Paris Hilton
+## Metro Boomin
 
 ## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
 
@@ -9008,7 +9107,7 @@ In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo sho
 *Published on: Mon, 22 Jul 2024 09:11:00 GMT*
 
 
-## Paris Hilton
+## Metro Boomin
 
 ## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
 
@@ -9017,7 +9116,7 @@ To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration
 *Published on: Mon, 22 Jul 2024 09:15:00 GMT*
 
 
-## Paris Hilton
+## Metro Boomin
 
 ## [Crocs' Effortless Mule Went From Minimalist to Colorfully Maxed-Out ](https://www.highsnobiety.com/p/sns-crocs-clog-collab-2024/)
 
@@ -9026,7 +9125,7 @@ In celebration of its 25th anniversary, Sneakersnstuff has linked with Crocs for
 *Published on: Mon, 22 Jul 2024 09:16:07 GMT*
 
 
-## Paris Hilton
+## Metro Boomin
 
 ## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
 
@@ -9035,7 +9134,7 @@ Starface, beloved for its hydrocolloid pimple patches in bright colors and novel
 *Published on: Mon, 22 Jul 2024 09:30:00 GMT*
 
 
-## Paris Hilton
+## Metro Boomin
 
 ## [Nike SB Is Making Olympic Skateboarding Stylish (Again)](https://www.highsnobiety.com/p/nike-sb-2024-olympic-uniforms-japan-usa/)
 
@@ -9044,25 +9143,16 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 *Published on: Mon, 22 Jul 2024 11:20:34 GMT*
 
 
-## Paris Hilton
+## Metro Boomin
 
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
-*Published on: Sun, 21 Jul 2024 14:11:00 GMT*
-
-
-## Paris Hilton
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
+*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
 
 
-## Paris Hilton
+## Metro Boomin
 
 ## [Nike's Dropping a...Wonderful "Wizard of Oz" Skate Shoe?](https://www.highsnobiety.com/p/wizard-of-oz-nike-sb-dunks-2024/)
 
@@ -9082,6 +9172,15 @@ Let's get straight to the point here: Reebok is cooking right now.Earlier this w
 
 ## Metro Boomin
 
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
+
+
+## Meghan Markle
+
 ## [New Balance's Ordinary Dad Shoes Are Getting Extraordinary Colorways (Finally)](https://www.highsnobiety.com/p/new-balance-725-sneakers-2024/)
 
 New Balance's 725 sneaker is one of the brand's more straightforward dad shoes. It is backed by a devoted fanbase that champions its chunky Y2K charm, maximum …
@@ -9089,7 +9188,7 @@ New Balance's 725 sneaker is one of the brand's more straightforward dad shoes. 
 *Published on: Mon, 22 Jul 2024 08:34:37 GMT*
 
 
-## Metro Boomin
+## Meghan Markle
 
 ## [Nike's Admirable Gramps Sneaker Is a Legend Reborn ](https://www.highsnobiety.com/p/nike-ld-1000-sneakers-2024-where-to-buy/)
 
@@ -9098,7 +9197,7 @@ It's been a big year for revivals, especially those plucked from Nike's archives
 *Published on: Mon, 22 Jul 2024 09:00:49 GMT*
 
 
-## Metro Boomin
+## Meghan Markle
 
 ## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
 
@@ -9107,7 +9206,7 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 *Published on: Mon, 22 Jul 2024 09:05:00 GMT*
 
 
-## Metro Boomin
+## Meghan Markle
 
 ## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
 
@@ -9116,7 +9215,7 @@ In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo sho
 *Published on: Mon, 22 Jul 2024 09:11:00 GMT*
 
 
-## Metro Boomin
+## Meghan Markle
 
 ## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
 
@@ -9125,7 +9224,7 @@ To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration
 *Published on: Mon, 22 Jul 2024 09:15:00 GMT*
 
 
-## Metro Boomin
+## Meghan Markle
 
 ## [Crocs' Effortless Mule Went From Minimalist to Colorfully Maxed-Out ](https://www.highsnobiety.com/p/sns-crocs-clog-collab-2024/)
 
@@ -9134,7 +9233,7 @@ In celebration of its 25th anniversary, Sneakersnstuff has linked with Crocs for
 *Published on: Mon, 22 Jul 2024 09:16:07 GMT*
 
 
-## Metro Boomin
+## Meghan Markle
 
 ## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
 
@@ -9143,7 +9242,7 @@ Starface, beloved for its hydrocolloid pimple patches in bright colors and novel
 *Published on: Mon, 22 Jul 2024 09:30:00 GMT*
 
 
-## Metro Boomin
+## Meghan Markle
 
 ## [Nike SB Is Making Olympic Skateboarding Stylish (Again)](https://www.highsnobiety.com/p/nike-sb-2024-olympic-uniforms-japan-usa/)
 
@@ -9152,25 +9251,16 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 *Published on: Mon, 22 Jul 2024 11:20:34 GMT*
 
 
-## Metro Boomin
+## Meghan Markle
 
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
-*Published on: Sun, 21 Jul 2024 14:11:00 GMT*
-
-
-## Metro Boomin
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
+*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
 
 
-## Metro Boomin
+## Meghan Markle
 
 ## [Nike's Dropping a...Wonderful "Wizard of Oz" Skate Shoe?](https://www.highsnobiety.com/p/wizard-of-oz-nike-sb-dunks-2024/)
 
@@ -9190,6 +9280,15 @@ Let's get straight to the point here: Reebok is cooking right now.Earlier this w
 
 ## Meghan Markle
 
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
+
+
+## Megan Thee Stallion
+
 ## [New Balance's Ordinary Dad Shoes Are Getting Extraordinary Colorways (Finally)](https://www.highsnobiety.com/p/new-balance-725-sneakers-2024/)
 
 New Balance's 725 sneaker is one of the brand's more straightforward dad shoes. It is backed by a devoted fanbase that champions its chunky Y2K charm, maximum …
@@ -9197,7 +9296,7 @@ New Balance's 725 sneaker is one of the brand's more straightforward dad shoes. 
 *Published on: Mon, 22 Jul 2024 08:34:37 GMT*
 
 
-## Meghan Markle
+## Megan Thee Stallion
 
 ## [Nike's Admirable Gramps Sneaker Is a Legend Reborn ](https://www.highsnobiety.com/p/nike-ld-1000-sneakers-2024-where-to-buy/)
 
@@ -9206,7 +9305,7 @@ It's been a big year for revivals, especially those plucked from Nike's archives
 *Published on: Mon, 22 Jul 2024 09:00:49 GMT*
 
 
-## Meghan Markle
+## Megan Thee Stallion
 
 ## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
 
@@ -9215,7 +9314,7 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 *Published on: Mon, 22 Jul 2024 09:05:00 GMT*
 
 
-## Meghan Markle
+## Megan Thee Stallion
 
 ## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
 
@@ -9224,7 +9323,7 @@ In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo sho
 *Published on: Mon, 22 Jul 2024 09:11:00 GMT*
 
 
-## Meghan Markle
+## Megan Thee Stallion
 
 ## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
 
@@ -9233,7 +9332,7 @@ To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration
 *Published on: Mon, 22 Jul 2024 09:15:00 GMT*
 
 
-## Meghan Markle
+## Megan Thee Stallion
 
 ## [Crocs' Effortless Mule Went From Minimalist to Colorfully Maxed-Out ](https://www.highsnobiety.com/p/sns-crocs-clog-collab-2024/)
 
@@ -9242,7 +9341,7 @@ In celebration of its 25th anniversary, Sneakersnstuff has linked with Crocs for
 *Published on: Mon, 22 Jul 2024 09:16:07 GMT*
 
 
-## Meghan Markle
+## Megan Thee Stallion
 
 ## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
 
@@ -9251,7 +9350,7 @@ Starface, beloved for its hydrocolloid pimple patches in bright colors and novel
 *Published on: Mon, 22 Jul 2024 09:30:00 GMT*
 
 
-## Meghan Markle
+## Megan Thee Stallion
 
 ## [Nike SB Is Making Olympic Skateboarding Stylish (Again)](https://www.highsnobiety.com/p/nike-sb-2024-olympic-uniforms-japan-usa/)
 
@@ -9260,25 +9359,16 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 *Published on: Mon, 22 Jul 2024 11:20:34 GMT*
 
 
-## Meghan Markle
+## Megan Thee Stallion
 
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
-*Published on: Sun, 21 Jul 2024 14:11:00 GMT*
-
-
-## Meghan Markle
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
+*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
 
 
-## Meghan Markle
+## Megan Thee Stallion
 
 ## [Nike's Dropping a...Wonderful "Wizard of Oz" Skate Shoe?](https://www.highsnobiety.com/p/wizard-of-oz-nike-sb-dunks-2024/)
 
@@ -9298,6 +9388,15 @@ Let's get straight to the point here: Reebok is cooking right now.Earlier this w
 
 ## Megan Thee Stallion
 
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
+
+
+## Maya Rudolph
+
 ## [New Balance's Ordinary Dad Shoes Are Getting Extraordinary Colorways (Finally)](https://www.highsnobiety.com/p/new-balance-725-sneakers-2024/)
 
 New Balance's 725 sneaker is one of the brand's more straightforward dad shoes. It is backed by a devoted fanbase that champions its chunky Y2K charm, maximum …
@@ -9305,7 +9404,7 @@ New Balance's 725 sneaker is one of the brand's more straightforward dad shoes. 
 *Published on: Mon, 22 Jul 2024 08:34:37 GMT*
 
 
-## Megan Thee Stallion
+## Maya Rudolph
 
 ## [Nike's Admirable Gramps Sneaker Is a Legend Reborn ](https://www.highsnobiety.com/p/nike-ld-1000-sneakers-2024-where-to-buy/)
 
@@ -9314,7 +9413,7 @@ It's been a big year for revivals, especially those plucked from Nike's archives
 *Published on: Mon, 22 Jul 2024 09:00:49 GMT*
 
 
-## Megan Thee Stallion
+## Maya Rudolph
 
 ## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
 
@@ -9323,7 +9422,7 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 *Published on: Mon, 22 Jul 2024 09:05:00 GMT*
 
 
-## Megan Thee Stallion
+## Maya Rudolph
 
 ## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
 
@@ -9332,7 +9431,7 @@ In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo sho
 *Published on: Mon, 22 Jul 2024 09:11:00 GMT*
 
 
-## Megan Thee Stallion
+## Maya Rudolph
 
 ## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
 
@@ -9341,7 +9440,7 @@ To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration
 *Published on: Mon, 22 Jul 2024 09:15:00 GMT*
 
 
-## Megan Thee Stallion
+## Maya Rudolph
 
 ## [Crocs' Effortless Mule Went From Minimalist to Colorfully Maxed-Out ](https://www.highsnobiety.com/p/sns-crocs-clog-collab-2024/)
 
@@ -9350,7 +9449,7 @@ In celebration of its 25th anniversary, Sneakersnstuff has linked with Crocs for
 *Published on: Mon, 22 Jul 2024 09:16:07 GMT*
 
 
-## Megan Thee Stallion
+## Maya Rudolph
 
 ## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
 
@@ -9359,7 +9458,7 @@ Starface, beloved for its hydrocolloid pimple patches in bright colors and novel
 *Published on: Mon, 22 Jul 2024 09:30:00 GMT*
 
 
-## Megan Thee Stallion
+## Maya Rudolph
 
 ## [Nike SB Is Making Olympic Skateboarding Stylish (Again)](https://www.highsnobiety.com/p/nike-sb-2024-olympic-uniforms-japan-usa/)
 
@@ -9368,25 +9467,16 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 *Published on: Mon, 22 Jul 2024 11:20:34 GMT*
 
 
-## Megan Thee Stallion
+## Maya Rudolph
 
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
-*Published on: Sun, 21 Jul 2024 14:11:00 GMT*
-
-
-## Megan Thee Stallion
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
+*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
 
 
-## Megan Thee Stallion
+## Maya Rudolph
 
 ## [Nike's Dropping a...Wonderful "Wizard of Oz" Skate Shoe?](https://www.highsnobiety.com/p/wizard-of-oz-nike-sb-dunks-2024/)
 
@@ -9406,6 +9496,15 @@ Let's get straight to the point here: Reebok is cooking right now.Earlier this w
 
 ## Maya Rudolph
 
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
+
+
+## Olivia Rodrigo
+
 ## [New Balance's Ordinary Dad Shoes Are Getting Extraordinary Colorways (Finally)](https://www.highsnobiety.com/p/new-balance-725-sneakers-2024/)
 
 New Balance's 725 sneaker is one of the brand's more straightforward dad shoes. It is backed by a devoted fanbase that champions its chunky Y2K charm, maximum …
@@ -9413,7 +9512,7 @@ New Balance's 725 sneaker is one of the brand's more straightforward dad shoes. 
 *Published on: Mon, 22 Jul 2024 08:34:37 GMT*
 
 
-## Maya Rudolph
+## Olivia Rodrigo
 
 ## [Nike's Admirable Gramps Sneaker Is a Legend Reborn ](https://www.highsnobiety.com/p/nike-ld-1000-sneakers-2024-where-to-buy/)
 
@@ -9422,7 +9521,7 @@ It's been a big year for revivals, especially those plucked from Nike's archives
 *Published on: Mon, 22 Jul 2024 09:00:49 GMT*
 
 
-## Maya Rudolph
+## Olivia Rodrigo
 
 ## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
 
@@ -9431,7 +9530,7 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 *Published on: Mon, 22 Jul 2024 09:05:00 GMT*
 
 
-## Maya Rudolph
+## Olivia Rodrigo
 
 ## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
 
@@ -9440,7 +9539,7 @@ In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo sho
 *Published on: Mon, 22 Jul 2024 09:11:00 GMT*
 
 
-## Maya Rudolph
+## Olivia Rodrigo
 
 ## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
 
@@ -9449,7 +9548,7 @@ To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration
 *Published on: Mon, 22 Jul 2024 09:15:00 GMT*
 
 
-## Maya Rudolph
+## Olivia Rodrigo
 
 ## [Crocs' Effortless Mule Went From Minimalist to Colorfully Maxed-Out ](https://www.highsnobiety.com/p/sns-crocs-clog-collab-2024/)
 
@@ -9458,7 +9557,7 @@ In celebration of its 25th anniversary, Sneakersnstuff has linked with Crocs for
 *Published on: Mon, 22 Jul 2024 09:16:07 GMT*
 
 
-## Maya Rudolph
+## Olivia Rodrigo
 
 ## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
 
@@ -9467,7 +9566,7 @@ Starface, beloved for its hydrocolloid pimple patches in bright colors and novel
 *Published on: Mon, 22 Jul 2024 09:30:00 GMT*
 
 
-## Maya Rudolph
+## Olivia Rodrigo
 
 ## [Nike SB Is Making Olympic Skateboarding Stylish (Again)](https://www.highsnobiety.com/p/nike-sb-2024-olympic-uniforms-japan-usa/)
 
@@ -9476,25 +9575,16 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 *Published on: Mon, 22 Jul 2024 11:20:34 GMT*
 
 
-## Maya Rudolph
+## Olivia Rodrigo
 
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
-*Published on: Sun, 21 Jul 2024 14:11:00 GMT*
-
-
-## Maya Rudolph
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
+*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
 
 
-## Maya Rudolph
+## Olivia Rodrigo
 
 ## [Nike's Dropping a...Wonderful "Wizard of Oz" Skate Shoe?](https://www.highsnobiety.com/p/wizard-of-oz-nike-sb-dunks-2024/)
 
@@ -9514,6 +9604,15 @@ Let's get straight to the point here: Reebok is cooking right now.Earlier this w
 
 ## Olivia Rodrigo
 
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
+
+
+## Obama
+
 ## [New Balance's Ordinary Dad Shoes Are Getting Extraordinary Colorways (Finally)](https://www.highsnobiety.com/p/new-balance-725-sneakers-2024/)
 
 New Balance's 725 sneaker is one of the brand's more straightforward dad shoes. It is backed by a devoted fanbase that champions its chunky Y2K charm, maximum …
@@ -9521,7 +9620,7 @@ New Balance's 725 sneaker is one of the brand's more straightforward dad shoes. 
 *Published on: Mon, 22 Jul 2024 08:34:37 GMT*
 
 
-## Olivia Rodrigo
+## Obama
 
 ## [Nike's Admirable Gramps Sneaker Is a Legend Reborn ](https://www.highsnobiety.com/p/nike-ld-1000-sneakers-2024-where-to-buy/)
 
@@ -9530,7 +9629,7 @@ It's been a big year for revivals, especially those plucked from Nike's archives
 *Published on: Mon, 22 Jul 2024 09:00:49 GMT*
 
 
-## Olivia Rodrigo
+## Obama
 
 ## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
 
@@ -9539,7 +9638,7 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 *Published on: Mon, 22 Jul 2024 09:05:00 GMT*
 
 
-## Olivia Rodrigo
+## Obama
 
 ## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
 
@@ -9548,7 +9647,7 @@ In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo sho
 *Published on: Mon, 22 Jul 2024 09:11:00 GMT*
 
 
-## Olivia Rodrigo
+## Obama
 
 ## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
 
@@ -9557,7 +9656,7 @@ To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration
 *Published on: Mon, 22 Jul 2024 09:15:00 GMT*
 
 
-## Olivia Rodrigo
+## Obama
 
 ## [Crocs' Effortless Mule Went From Minimalist to Colorfully Maxed-Out ](https://www.highsnobiety.com/p/sns-crocs-clog-collab-2024/)
 
@@ -9566,7 +9665,7 @@ In celebration of its 25th anniversary, Sneakersnstuff has linked with Crocs for
 *Published on: Mon, 22 Jul 2024 09:16:07 GMT*
 
 
-## Olivia Rodrigo
+## Obama
 
 ## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
 
@@ -9575,7 +9674,7 @@ Starface, beloved for its hydrocolloid pimple patches in bright colors and novel
 *Published on: Mon, 22 Jul 2024 09:30:00 GMT*
 
 
-## Olivia Rodrigo
+## Obama
 
 ## [Nike SB Is Making Olympic Skateboarding Stylish (Again)](https://www.highsnobiety.com/p/nike-sb-2024-olympic-uniforms-japan-usa/)
 
@@ -9584,25 +9683,16 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 *Published on: Mon, 22 Jul 2024 11:20:34 GMT*
 
 
-## Olivia Rodrigo
+## Obama
 
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
-*Published on: Sun, 21 Jul 2024 14:11:00 GMT*
-
-
-## Olivia Rodrigo
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
+*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
 
 
-## Olivia Rodrigo
+## Obama
 
 ## [Nike's Dropping a...Wonderful "Wizard of Oz" Skate Shoe?](https://www.highsnobiety.com/p/wizard-of-oz-nike-sb-dunks-2024/)
 
@@ -9622,6 +9712,15 @@ Let's get straight to the point here: Reebok is cooking right now.Earlier this w
 
 ## Obama
 
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
+
+
+## Nicki Minaj
+
 ## [New Balance's Ordinary Dad Shoes Are Getting Extraordinary Colorways (Finally)](https://www.highsnobiety.com/p/new-balance-725-sneakers-2024/)
 
 New Balance's 725 sneaker is one of the brand's more straightforward dad shoes. It is backed by a devoted fanbase that champions its chunky Y2K charm, maximum …
@@ -9629,7 +9728,7 @@ New Balance's 725 sneaker is one of the brand's more straightforward dad shoes. 
 *Published on: Mon, 22 Jul 2024 08:34:37 GMT*
 
 
-## Obama
+## Nicki Minaj
 
 ## [Nike's Admirable Gramps Sneaker Is a Legend Reborn ](https://www.highsnobiety.com/p/nike-ld-1000-sneakers-2024-where-to-buy/)
 
@@ -9638,7 +9737,7 @@ It's been a big year for revivals, especially those plucked from Nike's archives
 *Published on: Mon, 22 Jul 2024 09:00:49 GMT*
 
 
-## Obama
+## Nicki Minaj
 
 ## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
 
@@ -9647,7 +9746,7 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 *Published on: Mon, 22 Jul 2024 09:05:00 GMT*
 
 
-## Obama
+## Nicki Minaj
 
 ## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
 
@@ -9656,7 +9755,7 @@ In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo sho
 *Published on: Mon, 22 Jul 2024 09:11:00 GMT*
 
 
-## Obama
+## Nicki Minaj
 
 ## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
 
@@ -9665,7 +9764,7 @@ To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration
 *Published on: Mon, 22 Jul 2024 09:15:00 GMT*
 
 
-## Obama
+## Nicki Minaj
 
 ## [Crocs' Effortless Mule Went From Minimalist to Colorfully Maxed-Out ](https://www.highsnobiety.com/p/sns-crocs-clog-collab-2024/)
 
@@ -9674,7 +9773,7 @@ In celebration of its 25th anniversary, Sneakersnstuff has linked with Crocs for
 *Published on: Mon, 22 Jul 2024 09:16:07 GMT*
 
 
-## Obama
+## Nicki Minaj
 
 ## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
 
@@ -9683,7 +9782,7 @@ Starface, beloved for its hydrocolloid pimple patches in bright colors and novel
 *Published on: Mon, 22 Jul 2024 09:30:00 GMT*
 
 
-## Obama
+## Nicki Minaj
 
 ## [Nike SB Is Making Olympic Skateboarding Stylish (Again)](https://www.highsnobiety.com/p/nike-sb-2024-olympic-uniforms-japan-usa/)
 
@@ -9692,25 +9791,16 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 *Published on: Mon, 22 Jul 2024 11:20:34 GMT*
 
 
-## Obama
+## Nicki Minaj
 
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
-*Published on: Sun, 21 Jul 2024 14:11:00 GMT*
-
-
-## Obama
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
+*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
 
 
-## Obama
+## Nicki Minaj
 
 ## [Nike's Dropping a...Wonderful "Wizard of Oz" Skate Shoe?](https://www.highsnobiety.com/p/wizard-of-oz-nike-sb-dunks-2024/)
 
@@ -9730,6 +9820,15 @@ Let's get straight to the point here: Reebok is cooking right now.Earlier this w
 
 ## Nicki Minaj
 
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
+
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
+
+*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
+
+
+## MrBeast
+
 ## [New Balance's Ordinary Dad Shoes Are Getting Extraordinary Colorways (Finally)](https://www.highsnobiety.com/p/new-balance-725-sneakers-2024/)
 
 New Balance's 725 sneaker is one of the brand's more straightforward dad shoes. It is backed by a devoted fanbase that champions its chunky Y2K charm, maximum …
@@ -9737,7 +9836,7 @@ New Balance's 725 sneaker is one of the brand's more straightforward dad shoes. 
 *Published on: Mon, 22 Jul 2024 08:34:37 GMT*
 
 
-## Nicki Minaj
+## MrBeast
 
 ## [Nike's Admirable Gramps Sneaker Is a Legend Reborn ](https://www.highsnobiety.com/p/nike-ld-1000-sneakers-2024-where-to-buy/)
 
@@ -9746,7 +9845,7 @@ It's been a big year for revivals, especially those plucked from Nike's archives
 *Published on: Mon, 22 Jul 2024 09:00:49 GMT*
 
 
-## Nicki Minaj
+## MrBeast
 
 ## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
 
@@ -9755,7 +9854,7 @@ Fresh off a South Carolina beachside hospitality and a meaningful take on New Ba
 *Published on: Mon, 22 Jul 2024 09:05:00 GMT*
 
 
-## Nicki Minaj
+## MrBeast
 
 ## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
 
@@ -9764,7 +9863,7 @@ In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo sho
 *Published on: Mon, 22 Jul 2024 09:11:00 GMT*
 
 
-## Nicki Minaj
+## MrBeast
 
 ## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
 
@@ -9773,7 +9872,7 @@ To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration
 *Published on: Mon, 22 Jul 2024 09:15:00 GMT*
 
 
-## Nicki Minaj
+## MrBeast
 
 ## [Crocs' Effortless Mule Went From Minimalist to Colorfully Maxed-Out ](https://www.highsnobiety.com/p/sns-crocs-clog-collab-2024/)
 
@@ -9782,7 +9881,7 @@ In celebration of its 25th anniversary, Sneakersnstuff has linked with Crocs for
 *Published on: Mon, 22 Jul 2024 09:16:07 GMT*
 
 
-## Nicki Minaj
+## MrBeast
 
 ## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
 
@@ -9791,7 +9890,7 @@ Starface, beloved for its hydrocolloid pimple patches in bright colors and novel
 *Published on: Mon, 22 Jul 2024 09:30:00 GMT*
 
 
-## Nicki Minaj
+## MrBeast
 
 ## [Nike SB Is Making Olympic Skateboarding Stylish (Again)](https://www.highsnobiety.com/p/nike-sb-2024-olympic-uniforms-japan-usa/)
 
@@ -9800,25 +9899,16 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 *Published on: Mon, 22 Jul 2024 11:20:34 GMT*
 
 
-## Nicki Minaj
+## MrBeast
 
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
-*Published on: Sun, 21 Jul 2024 14:11:00 GMT*
-
-
-## Nicki Minaj
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
+*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
 
 
-## Nicki Minaj
+## MrBeast
 
 ## [Nike's Dropping a...Wonderful "Wizard of Oz" Skate Shoe?](https://www.highsnobiety.com/p/wizard-of-oz-nike-sb-dunks-2024/)
 
@@ -9838,100 +9928,10 @@ Let's get straight to the point here: Reebok is cooking right now.Earlier this w
 
 ## MrBeast
 
-## [New Balance's Ordinary Dad Shoes Are Getting Extraordinary Colorways (Finally)](https://www.highsnobiety.com/p/new-balance-725-sneakers-2024/)
-
-New Balance's 725 sneaker is one of the brand's more straightforward dad shoes. It is backed by a devoted fanbase that champions its chunky Y2K charm, maximum …
-
-*Published on: Mon, 22 Jul 2024 08:34:37 GMT*
-
-
-## MrBeast
-
-## [Nike's Admirable Gramps Sneaker Is a Legend Reborn ](https://www.highsnobiety.com/p/nike-ld-1000-sneakers-2024-where-to-buy/)
-
-It's been a big year for revivals, especially those plucked from Nike's archives. With the Swoosh dipping further and further back in its oldest shoes, it was …
-
-*Published on: Mon, 22 Jul 2024 09:00:49 GMT*
-
-
-## MrBeast
-
-## [A Ma Maniére's Jordans Are Even Better the Second Time Around](https://www.highsnobiety.com/p/a-ma-maniere-jordan-4-sneakers-2024/)
-
-Fresh off a South Carolina beachside hospitality and a meaningful take on New Balance's hottest sneaker of the year, A Ma Maniére seems to be prepping its long…
-
-*Published on: Mon, 22 Jul 2024 09:05:00 GMT*
-
-
-## MrBeast
-
-## [Nike's Low-Rise Uptempo Sneaker Cleans Up Well on Its Own ](https://www.highsnobiety.com/p/nike-air-more-uptempo-low-sneaker-2024/)
-
-In 2023, Yoon Ahn's AMBUSH brand introduced the iconic Nike Air More Uptempo shoe as a low-profile model painted in AMBUSH's signature bold color schemes.Fast …
-
-*Published on: Mon, 22 Jul 2024 09:11:00 GMT*
-
-
-## MrBeast
-
-## [Sabrina Carpenter Is Gen Z’s Queen of Celebrity Fragrance](https://www.highsnobiety.com/p/sabrina-carpenter-cherry-baby-fragrance/)
-
-To say that Sabrina Carpenter is the biggest pop star of 2024 is no exaggeration — her singles "Espresso" and "Please Please Please" continue to top the charts…
-
-*Published on: Mon, 22 Jul 2024 09:15:00 GMT*
-
-
-## MrBeast
-
-## [Crocs' Effortless Mule Went From Minimalist to Colorfully Maxed-Out ](https://www.highsnobiety.com/p/sns-crocs-clog-collab-2024/)
-
-In celebration of its 25th anniversary, Sneakersnstuff has linked with Crocs for a first-ever collaboration involving the effortless Dylan clog .The label ulti…
-
-*Published on: Mon, 22 Jul 2024 09:16:07 GMT*
-
-
-## MrBeast
-
-## [Starface Isn't Just a Pimple Patch Brand](https://www.highsnobiety.com/p/starface-lip-balm/)
-
-Starface, beloved for its hydrocolloid pimple patches in bright colors and novelty shapes, is expanding beyond stickers.The brand is gearing up to launch Star …
-
-*Published on: Mon, 22 Jul 2024 09:30:00 GMT*
-
-
-## MrBeast
-
-## [Nike SB Is Making Olympic Skateboarding Stylish (Again)](https://www.highsnobiety.com/p/nike-sb-2024-olympic-uniforms-japan-usa/)
-
-Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. The sport’s first time competing in the Olympics, Nike SB jumped on the opportun…
-
-*Published on: Mon, 22 Jul 2024 11:20:34 GMT*
-
-
-## MrBeast
-
-## [Get Ready, Set, Ride! It's "Bike Air" Jordan Time  ](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-release/)
-
-Nigel Sylvester is sharing his grandmother's driveway with the world through his compelling Air Jordan 4 RM sneaker collaboration .Revealed earlier this year ,…
-
-*Published on: Sun, 21 Jul 2024 14:11:00 GMT*
-
-
-## MrBeast
-
 ## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
 On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
 *Published on: Sun, 21 Jul 2024 20:31:00 GMT*
-
-
-## MrBeast
-
-## [Nike's Dropping a...Wonderful "Wizard of Oz" Skate Shoe?](https://www.highsnobiety.com/p/wizard-of-oz-nike-sb-dunks-2024/)
-
-We're off to see the Wizard, the wonderful Wizard of Oz...Nike Dunks?Nike SB has been quite busy this year, readying more skate-fied Nike classics and dishing …
-
-*Published on: Sun, 21 Jul 2024 15:52:00 GMT*
 
 
