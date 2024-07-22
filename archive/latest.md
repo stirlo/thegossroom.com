@@ -1,6 +1,15 @@
 # Latest Stories
 ## Tim Cook
 
+## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
+
+Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
+
+*Published on: Mon, 22 Jul 2024 08:00:42 GMT*
+
+
+## Tim Cook
+
 ## [New Balance's Ordinary Dad Shoes Are Getting Extraordinary Colorways (Finally)](https://www.highsnobiety.com/p/new-balance-725-sneakers-2024/)
 
 New Balance's 725 sneaker is one of the brand's more straightforward dad shoes. It is backed by a devoted fanbase that champions its chunky Y2K charm, maximum …
@@ -73,29 +82,20 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## Tim Cook
 
-## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
-## Tim Cook
+## Taylor Swift
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
 
 Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
 
 *Published on: Mon, 22 Jul 2024 08:00:42 GMT*
-
-
-## Tim Cook
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
 ## Taylor Swift
@@ -172,29 +172,20 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## Taylor Swift
 
-## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
-## Taylor Swift
+## Tom Brady
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
 
 Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
 
 *Published on: Mon, 22 Jul 2024 08:00:42 GMT*
-
-
-## Taylor Swift
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
 ## Tom Brady
@@ -271,29 +262,20 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## Tom Brady
 
-## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
-## Tom Brady
+## Tina Fey
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
 
 Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
 
 *Published on: Mon, 22 Jul 2024 08:00:42 GMT*
-
-
-## Tom Brady
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
 ## Tina Fey
@@ -370,29 +352,20 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## Tina Fey
 
-## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
-## Tina Fey
+## Steven Yuen
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
 
 Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
 
 *Published on: Mon, 22 Jul 2024 08:00:42 GMT*
-
-
-## Tina Fey
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
 ## Steven Yuen
@@ -469,29 +442,20 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## Steven Yuen
 
-## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
-## Steven Yuen
+## Sommer Ray
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
 
 Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
 
 *Published on: Mon, 22 Jul 2024 08:00:42 GMT*
-
-
-## Steven Yuen
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
 ## Sommer Ray
@@ -568,29 +532,20 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## Sommer Ray
 
-## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
-## Sommer Ray
+## Sza
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
 
 Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
 
 *Published on: Mon, 22 Jul 2024 08:00:42 GMT*
-
-
-## Sommer Ray
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
 ## Sza
@@ -667,29 +622,20 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## Sza
 
-## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
-## Sza
+## Sydney Sweeney
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
 
 Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
 
 *Published on: Mon, 22 Jul 2024 08:00:42 GMT*
-
-
-## Sza
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
 ## Sydney Sweeney
@@ -766,29 +712,20 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## Sydney Sweeney
 
-## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
-## Sydney Sweeney
+## Walton Goggins
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
 
 Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
 
 *Published on: Mon, 22 Jul 2024 08:00:42 GMT*
-
-
-## Sydney Sweeney
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
 ## Walton Goggins
@@ -865,29 +802,20 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## Walton Goggins
 
-## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
-## Walton Goggins
+## Tom Holland
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
 
 Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
 
 *Published on: Mon, 22 Jul 2024 08:00:42 GMT*
-
-
-## Walton Goggins
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
 ## Tom Holland
@@ -964,29 +892,20 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## Tom Holland
 
-## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
-## Tom Holland
+## Gucci Mane
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
 
 Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
 
 *Published on: Mon, 22 Jul 2024 08:00:42 GMT*
-
-
-## Tom Holland
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
 ## Gucci Mane
@@ -1063,29 +982,20 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## Gucci Mane
 
-## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
-## Gucci Mane
+## Harry Styles
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
 
 Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
 
 *Published on: Mon, 22 Jul 2024 08:00:42 GMT*
-
-
-## Gucci Mane
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
 ## Harry Styles
@@ -1162,29 +1072,20 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## Harry Styles
 
-## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
-## Harry Styles
+## Jake Paul
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
 
 Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
 
 *Published on: Mon, 22 Jul 2024 08:00:42 GMT*
-
-
-## Harry Styles
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
 ## Jake Paul
@@ -1261,29 +1162,20 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## Jake Paul
 
-## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
-## Jake Paul
+## Jameela Jamil
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
 
 Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
 
 *Published on: Mon, 22 Jul 2024 08:00:42 GMT*
-
-
-## Jake Paul
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
 ## Jameela Jamil
@@ -1360,29 +1252,20 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## Jameela Jamil
 
-## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
-## Jameela Jamil
+## Elon Musk
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
 
 Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
 
 *Published on: Mon, 22 Jul 2024 08:00:42 GMT*
-
-
-## Jameela Jamil
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
 ## Elon Musk
@@ -1459,29 +1342,20 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## Elon Musk
 
-## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
-## Elon Musk
+## Gabrielle Union
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
 
 Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
 
 *Published on: Mon, 22 Jul 2024 08:00:42 GMT*
-
-
-## Elon Musk
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
 ## Gabrielle Union
@@ -1558,29 +1432,20 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## Gabrielle Union
 
-## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
-## Gabrielle Union
+## Giancarlo Esposito
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
 
 Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
 
 *Published on: Mon, 22 Jul 2024 08:00:42 GMT*
-
-
-## Gabrielle Union
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
 ## Giancarlo Esposito
@@ -1657,29 +1522,20 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## Giancarlo Esposito
 
-## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
-## Giancarlo Esposito
+## Gillian Jacobs
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
 
 Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
 
 *Published on: Mon, 22 Jul 2024 08:00:42 GMT*
-
-
-## Giancarlo Esposito
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
 ## Gillian Jacobs
@@ -1756,29 +1612,20 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## Gillian Jacobs
 
-## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
-## Gillian Jacobs
+## Jason Mantzoukas
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
 
 Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
 
 *Published on: Mon, 22 Jul 2024 08:00:42 GMT*
-
-
-## Gillian Jacobs
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
 ## Jason Mantzoukas
@@ -1855,29 +1702,20 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## Jason Mantzoukas
 
-## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
-## Jason Mantzoukas
+## JB Smoove
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
 
 Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
 
 *Published on: Mon, 22 Jul 2024 08:00:42 GMT*
-
-
-## Jason Mantzoukas
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
 ## JB Smoove
@@ -1954,29 +1792,20 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## JB Smoove
 
-## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
-## JB Smoove
+## Madison Pettis
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
 
 Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
 
 *Published on: Mon, 22 Jul 2024 08:00:42 GMT*
-
-
-## JB Smoove
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
 ## Madison Pettis
@@ -2053,29 +1882,20 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## Madison Pettis
 
-## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
-## Madison Pettis
+## Austin Butler
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
 
 Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
 
 *Published on: Mon, 22 Jul 2024 08:00:42 GMT*
-
-
-## Madison Pettis
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
 ## Austin Butler
@@ -2152,29 +1972,20 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## Austin Butler
 
-## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
-## Austin Butler
+## Mark Zuckerberg
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
 
 Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
 
 *Published on: Mon, 22 Jul 2024 08:00:42 GMT*
-
-
-## Austin Butler
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
 ## Mark Zuckerberg
@@ -2251,29 +2062,20 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## Mark Zuckerberg
 
-## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
-## Mark Zuckerberg
+## Ariana Grande
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
 
 Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
 
 *Published on: Mon, 22 Jul 2024 08:00:42 GMT*
-
-
-## Mark Zuckerberg
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
 ## Ariana Grande
@@ -2350,29 +2152,20 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## Ariana Grande
 
-## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
-## Ariana Grande
+## Livvy Dunne
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
 
 Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
 
 *Published on: Mon, 22 Jul 2024 08:00:42 GMT*
-
-
-## Ariana Grande
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
 ## Livvy Dunne
@@ -2449,29 +2242,20 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## Livvy Dunne
 
-## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
-## Livvy Dunne
+## Ali Wong
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
 
 Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
 
 *Published on: Mon, 22 Jul 2024 08:00:42 GMT*
-
-
-## Livvy Dunne
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
 ## Ali Wong
@@ -2548,29 +2332,20 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## Ali Wong
 
-## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
-## Ali Wong
+## Lizzo
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
 
 Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
 
 *Published on: Mon, 22 Jul 2024 08:00:42 GMT*
-
-
-## Ali Wong
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
 ## Lizzo
@@ -2647,29 +2422,20 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## Lizzo
 
-## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
-## Lizzo
+## Alison Brie
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
 
 Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
 
 *Published on: Mon, 22 Jul 2024 08:00:42 GMT*
-
-
-## Lizzo
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
 ## Alison Brie
@@ -2746,29 +2512,20 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## Alison Brie
 
-## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
-## Alison Brie
+## Lil Wayne
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
 
 Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
 
 *Published on: Mon, 22 Jul 2024 08:00:42 GMT*
-
-
-## Alison Brie
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
 ## Lil Wayne
@@ -2845,29 +2602,20 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## Lil Wayne
 
-## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
-## Lil Wayne
+## Adele
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
 
 Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
 
 *Published on: Mon, 22 Jul 2024 08:00:42 GMT*
-
-
-## Lil Wayne
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
 ## Adele
@@ -2944,29 +2692,20 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## Adele
 
-## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
-## Adele
+## Lindsay Lohan
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
 
 Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
 
 *Published on: Mon, 22 Jul 2024 08:00:42 GMT*
-
-
-## Adele
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
 ## Lindsay Lohan
@@ -3043,29 +2782,20 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## Lindsay Lohan
 
-## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
-## Lindsay Lohan
+## Addison Rae
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
 
 Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
 
 *Published on: Mon, 22 Jul 2024 08:00:42 GMT*
-
-
-## Lindsay Lohan
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
 ## Addison Rae
@@ -3142,29 +2872,20 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## Addison Rae
 
-## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
-## Addison Rae
+## Latto
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
 
 Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
 
 *Published on: Mon, 22 Jul 2024 08:00:42 GMT*
-
-
-## Addison Rae
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
 ## Latto
@@ -3241,29 +2962,20 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## Latto
 
-## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
-## Latto
+## Aaron Paul
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
 
 Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
 
 *Published on: Mon, 22 Jul 2024 08:00:42 GMT*
-
-
-## Latto
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
 ## Aaron Paul
@@ -3340,29 +3052,20 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## Aaron Paul
 
-## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
-## Aaron Paul
+## LeBron James
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
 
 Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
 
 *Published on: Mon, 22 Jul 2024 08:00:42 GMT*
-
-
-## Aaron Paul
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
 ## LeBron James
@@ -3439,29 +3142,20 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## LeBron James
 
-## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
-## LeBron James
+## 50 Cent
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
 
 Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
 
 *Published on: Mon, 22 Jul 2024 08:00:42 GMT*
-
-
-## LeBron James
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
 ## 50 Cent
@@ -3538,29 +3232,20 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## 50 Cent
 
-## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
-## 50 Cent
+## Kesha
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
 
 Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
 
 *Published on: Mon, 22 Jul 2024 08:00:42 GMT*
-
-
-## 50 Cent
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
 ## Kesha
@@ -3637,29 +3322,20 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## Kesha
 
-## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
-## Kesha
+## 21 Savage
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
 
 Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
 
 *Published on: Mon, 22 Jul 2024 08:00:42 GMT*
-
-
-## Kesha
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
 ## 21 Savage
@@ -3736,29 +3412,20 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## 21 Savage
 
-## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
-## 21 Savage
+## Larry David
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
 
 Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
 
 *Published on: Mon, 22 Jul 2024 08:00:42 GMT*
-
-
-## 21 Savage
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
 ## Larry David
@@ -3835,29 +3502,20 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## Larry David
 
-## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
-## Larry David
+## Seth Rogan
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
 
 Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
 
 *Published on: Mon, 22 Jul 2024 08:00:42 GMT*
-
-
-## Larry David
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
 ## Seth Rogan
@@ -3934,29 +3592,20 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## Seth Rogan
 
-## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
-## Seth Rogan
+## Simone Biles
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
 
 Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
 
 *Published on: Mon, 22 Jul 2024 08:00:42 GMT*
-
-
-## Seth Rogan
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
 ## Simone Biles
@@ -4033,29 +3682,20 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## Simone Biles
 
-## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
-## Simone Biles
+## Pete Davidson
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
 
 Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
 
 *Published on: Mon, 22 Jul 2024 08:00:42 GMT*
-
-
-## Simone Biles
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
 ## Pete Davidson
@@ -4132,29 +3772,20 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## Pete Davidson
 
-## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
-## Pete Davidson
+## Prince Harry
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
 
 Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
 
 *Published on: Mon, 22 Jul 2024 08:00:42 GMT*
-
-
-## Pete Davidson
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
 ## Prince Harry
@@ -4231,29 +3862,20 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## Prince Harry
 
-## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
-## Prince Harry
+## Princess of Wales
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
 
 Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
 
 *Published on: Mon, 22 Jul 2024 08:00:42 GMT*
-
-
-## Prince Harry
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
 ## Princess of Wales
@@ -4330,29 +3952,20 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## Princess of Wales
 
-## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
-## Princess of Wales
+## Rachel McAdams
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
 
 Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
 
 *Published on: Mon, 22 Jul 2024 08:00:42 GMT*
-
-
-## Princess of Wales
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
 ## Rachel McAdams
@@ -4429,29 +4042,20 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## Rachel McAdams
 
-## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
-## Rachel McAdams
+## Reneé Rapp
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
 
 Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
 
 *Published on: Mon, 22 Jul 2024 08:00:42 GMT*
-
-
-## Rachel McAdams
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
 ## Reneé Rapp
@@ -4528,29 +4132,20 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## Reneé Rapp
 
-## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
-## Reneé Rapp
+## Rick Ross
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
 
 Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
 
 *Published on: Mon, 22 Jul 2024 08:00:42 GMT*
-
-
-## Reneé Rapp
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
 ## Rick Ross
@@ -4627,29 +4222,20 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## Rick Ross
 
-## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
-## Rick Ross
+## Sam Ashgari
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
 
 Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
 
 *Published on: Mon, 22 Jul 2024 08:00:42 GMT*
-
-
-## Rick Ross
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
 ## Sam Ashgari
@@ -4726,29 +4312,20 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## Sam Ashgari
 
-## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
-## Sam Ashgari
+## Sandra Oh
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
 
 Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
 
 *Published on: Mon, 22 Jul 2024 08:00:42 GMT*
-
-
-## Sam Ashgari
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
 ## Sandra Oh
@@ -4825,29 +4402,20 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## Sandra Oh
 
-## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
-## Sandra Oh
+## Donald Trump
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
 
 Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
 
 *Published on: Mon, 22 Jul 2024 08:00:42 GMT*
-
-
-## Sandra Oh
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
 ## Donald Trump
@@ -4924,29 +4492,20 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## Donald Trump
 
-## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
-## Donald Trump
+## Diddy
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
 
 Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
 
 *Published on: Mon, 22 Jul 2024 08:00:42 GMT*
-
-
-## Donald Trump
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
 ## Diddy
@@ -5023,29 +4582,20 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## Diddy
 
-## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
-## Diddy
+## City Girls
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
 
 Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
 
 *Published on: Mon, 22 Jul 2024 08:00:42 GMT*
-
-
-## Diddy
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
 ## City Girls
@@ -5122,29 +4672,20 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## City Girls
 
-## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
-## City Girls
+## Chloe Bailey
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
 
 Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
 
 *Published on: Mon, 22 Jul 2024 08:00:42 GMT*
-
-
-## City Girls
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
 ## Chloe Bailey
@@ -5221,29 +4762,20 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## Chloe Bailey
 
-## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
-## Chloe Bailey
+## Charli D Amelio
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
 
 Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
 
 *Published on: Mon, 22 Jul 2024 08:00:42 GMT*
-
-
-## Chloe Bailey
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
 ## Charli D Amelio
@@ -5320,29 +4852,20 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## Charli D Amelio
 
-## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
-## Charli D Amelio
+## Cardi B
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
 
 Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
 
 *Published on: Mon, 22 Jul 2024 08:00:42 GMT*
-
-
-## Charli D Amelio
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
 ## Cardi B
@@ -5419,29 +4942,20 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## Cardi B
 
-## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
-## Cardi B
+## Bryan Cranston
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
 
 Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
 
 *Published on: Mon, 22 Jul 2024 08:00:42 GMT*
-
-
-## Cardi B
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
 ## Bryan Cranston
@@ -5518,29 +5032,20 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## Bryan Cranston
 
-## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
-## Bryan Cranston
+## Brielle Biermann
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
 
 Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
 
 *Published on: Mon, 22 Jul 2024 08:00:42 GMT*
-
-
-## Bryan Cranston
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
 ## Brielle Biermann
@@ -5617,29 +5122,20 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## Brielle Biermann
 
-## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
-## Brielle Biermann
+## Dua Lipa
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
 
 Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
 
 *Published on: Mon, 22 Jul 2024 08:00:42 GMT*
-
-
-## Brielle Biermann
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
 ## Dua Lipa
@@ -5716,29 +5212,20 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## Dua Lipa
 
-## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
-## Dua Lipa
+## Drake
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
 
 Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
 
 *Published on: Mon, 22 Jul 2024 08:00:42 GMT*
-
-
-## Dua Lipa
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
 ## Drake
@@ -5815,29 +5302,20 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## Drake
 
-## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
-## Drake
+## Jenner
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
 
 Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
 
 *Published on: Mon, 22 Jul 2024 08:00:42 GMT*
-
-
-## Drake
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
 ## Jenner
@@ -5914,29 +5392,20 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## Jenner
 
-## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
-## Jenner
+## J. Cole
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
 
 Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
 
 *Published on: Mon, 22 Jul 2024 08:00:42 GMT*
-
-
-## Jenner
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
 ## J. Cole
@@ -6013,29 +5482,20 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## J. Cole
 
-## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
-## J. Cole
+## Jerrod Carmichael
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
 
 Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
 
 *Published on: Mon, 22 Jul 2024 08:00:42 GMT*
-
-
-## J. Cole
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
 ## Jerrod Carmichael
@@ -6112,29 +5572,20 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## Jerrod Carmichael
 
-## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
-## Jerrod Carmichael
+## Jennifer Lawrence
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
 
 Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
 
 *Published on: Mon, 22 Jul 2024 08:00:42 GMT*
-
-
-## Jerrod Carmichael
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
 ## Jennifer Lawrence
@@ -6211,29 +5662,20 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## Jennifer Lawrence
 
-## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
-## Jennifer Lawrence
+## Joe Biden
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
 
 Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
 
 *Published on: Mon, 22 Jul 2024 08:00:42 GMT*
-
-
-## Jennifer Lawrence
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
 ## Joe Biden
@@ -6310,29 +5752,20 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## Joe Biden
 
-## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
-## Joe Biden
+## J.K. Simmons
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
 
 Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
 
 *Published on: Mon, 22 Jul 2024 08:00:42 GMT*
-
-
-## Joe Biden
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
 ## J.K. Simmons
@@ -6409,29 +5842,20 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## J.K. Simmons
 
-## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
-## J.K. Simmons
+## Kamala Harris
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
 
 Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
 
 *Published on: Mon, 22 Jul 2024 08:00:42 GMT*
-
-
-## J.K. Simmons
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
 ## Kamala Harris
@@ -6508,29 +5932,20 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## Kamala Harris
 
-## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
-## Kamala Harris
+## John C Reilly
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
 
 Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
 
 *Published on: Mon, 22 Jul 2024 08:00:42 GMT*
-
-
-## Kamala Harris
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
 ## John C Reilly
@@ -6607,29 +6022,20 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## John C Reilly
 
-## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
-## John C Reilly
+## Kardashian
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
 
 Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
 
 *Published on: Mon, 22 Jul 2024 08:00:42 GMT*
-
-
-## John C Reilly
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
 ## Kardashian
@@ -6706,29 +6112,20 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## Kardashian
 
-## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
-## Kardashian
+## Kanye
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
 
 Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
 
 *Published on: Mon, 22 Jul 2024 08:00:42 GMT*
-
-
-## Kardashian
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
 ## Kanye
@@ -6805,29 +6202,20 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## Kanye
 
-## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
-## Kanye
+## Zendaya
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
 
 Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
 
 *Published on: Mon, 22 Jul 2024 08:00:42 GMT*
-
-
-## Kanye
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
 ## Zendaya
@@ -6904,29 +6292,20 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## Zendaya
 
-## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
-## Zendaya
+## Will Ferrell
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
 
 Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
 
 *Published on: Mon, 22 Jul 2024 08:00:42 GMT*
-
-
-## Zendaya
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
 ## Will Ferrell
@@ -7003,29 +6382,20 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## Will Ferrell
 
-## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
-## Will Ferrell
+## Zazie Beetz
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
 
 Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
 
 *Published on: Mon, 22 Jul 2024 08:00:42 GMT*
-
-
-## Will Ferrell
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
 ## Zazie Beetz
@@ -7102,29 +6472,20 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## Zazie Beetz
 
-## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
-## Zazie Beetz
+## Bob Odenkirk
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
 
 Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
 
 *Published on: Mon, 22 Jul 2024 08:00:42 GMT*
-
-
-## Zazie Beetz
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
 ## Bob Odenkirk
@@ -7201,29 +6562,20 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## Bob Odenkirk
 
-## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
-## Bob Odenkirk
+## Brad Pitt
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
 
 Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
 
 *Published on: Mon, 22 Jul 2024 08:00:42 GMT*
-
-
-## Bob Odenkirk
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
 ## Brad Pitt
@@ -7300,29 +6652,20 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## Brad Pitt
 
-## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
-## Brad Pitt
+## Beyoncé
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
 
 Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
 
 *Published on: Mon, 22 Jul 2024 08:00:42 GMT*
-
-
-## Brad Pitt
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
 ## Beyoncé
@@ -7399,29 +6742,20 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## Beyoncé
 
-## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
-## Beyoncé
+## Bia
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
 
 Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
 
 *Published on: Mon, 22 Jul 2024 08:00:42 GMT*
-
-
-## Beyoncé
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
 ## Bia
@@ -7498,29 +6832,20 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## Bia
 
-## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
-## Bia
+## Avantika
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
 
 Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
 
 *Published on: Mon, 22 Jul 2024 08:00:42 GMT*
-
-
-## Bia
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
 ## Avantika
@@ -7597,29 +6922,20 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## Avantika
 
-## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
-## Avantika
+## Bernie Sanders
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
 
 Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
 
 *Published on: Mon, 22 Jul 2024 08:00:42 GMT*
-
-
-## Avantika
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
 ## Bernie Sanders
@@ -7696,29 +7012,20 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## Bernie Sanders
 
-## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
-## Bernie Sanders
+## Big Sean
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
 
 Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
 
 *Published on: Mon, 22 Jul 2024 08:00:42 GMT*
-
-
-## Bernie Sanders
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
 ## Big Sean
@@ -7795,29 +7102,20 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## Big Sean
 
-## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
-## Big Sean
+## BlockBoy JB
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
 
 Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
 
 *Published on: Mon, 22 Jul 2024 08:00:42 GMT*
-
-
-## Big Sean
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
 ## BlockBoy JB
@@ -7894,29 +7192,20 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## BlockBoy JB
 
-## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
-## BlockBoy JB
+## Biden
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
 
 Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
 
 *Published on: Mon, 22 Jul 2024 08:00:42 GMT*
-
-
-## BlockBoy JB
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
 ## Biden
@@ -7993,29 +7282,20 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## Biden
 
-## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
-## Biden
+## Bieber
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
 
 Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
 
 *Published on: Mon, 22 Jul 2024 08:00:42 GMT*
-
-
-## Biden
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
 ## Bieber
@@ -8092,29 +7372,20 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## Bieber
 
-## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
-## Bieber
+## Paulina Porizkov
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
 
 Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
 
 *Published on: Mon, 22 Jul 2024 08:00:42 GMT*
-
-
-## Bieber
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
 ## Paulina Porizkov
@@ -8191,29 +7462,20 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## Paulina Porizkov
 
-## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
-## Paulina Porizkov
+## Paris Hilton
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
 
 Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
 
 *Published on: Mon, 22 Jul 2024 08:00:42 GMT*
-
-
-## Paulina Porizkov
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
 ## Paris Hilton
@@ -8290,29 +7552,20 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## Paris Hilton
 
-## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
-## Paris Hilton
+## Metro Boomin
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
 
 Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
 
 *Published on: Mon, 22 Jul 2024 08:00:42 GMT*
-
-
-## Paris Hilton
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
 ## Metro Boomin
@@ -8389,29 +7642,20 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## Metro Boomin
 
-## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
-## Metro Boomin
+## Meghan Markle
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
 
 Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
 
 *Published on: Mon, 22 Jul 2024 08:00:42 GMT*
-
-
-## Metro Boomin
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
 ## Meghan Markle
@@ -8488,29 +7732,20 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## Meghan Markle
 
-## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
-## Meghan Markle
+## Megan Thee Stallion
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
 
 Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
 
 *Published on: Mon, 22 Jul 2024 08:00:42 GMT*
-
-
-## Meghan Markle
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
 ## Megan Thee Stallion
@@ -8587,29 +7822,20 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## Megan Thee Stallion
 
-## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
-## Megan Thee Stallion
+## Maya Rudolph
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
 
 Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
 
 *Published on: Mon, 22 Jul 2024 08:00:42 GMT*
-
-
-## Megan Thee Stallion
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
 ## Maya Rudolph
@@ -8686,29 +7912,20 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## Maya Rudolph
 
-## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
-## Maya Rudolph
+## Olivia Rodrigo
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
 
 Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
 
 *Published on: Mon, 22 Jul 2024 08:00:42 GMT*
-
-
-## Maya Rudolph
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
 ## Olivia Rodrigo
@@ -8785,29 +8002,20 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## Olivia Rodrigo
 
-## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
-## Olivia Rodrigo
+## Obama
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
 
 Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
 
 *Published on: Mon, 22 Jul 2024 08:00:42 GMT*
-
-
-## Olivia Rodrigo
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
 ## Obama
@@ -8884,29 +8092,20 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## Obama
 
-## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
-## Obama
+## Nicki Minaj
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
 
 Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
 
 *Published on: Mon, 22 Jul 2024 08:00:42 GMT*
-
-
-## Obama
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
 ## Nicki Minaj
@@ -8983,29 +8182,20 @@ Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. T
 
 ## Nicki Minaj
 
-## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
 
-Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
+On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
 
-*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
+*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
-## Nicki Minaj
+## MrBeast
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
 
 Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
 
 *Published on: Mon, 22 Jul 2024 08:00:42 GMT*
-
-
-## Nicki Minaj
-
-## [Supreme's New Owner Changes Nothing — Yet](https://www.highsnobiety.com/p/supreme-essilorluxottica-owner/)
-
-On July 17, streetwear giant Supreme was sold to EssilorLuxottica for $1.5 billion (in cash, no less). This is $6 million less than what previous owner VF Corp…
-
-*Published on: Sun, 21 Jul 2024 20:31:00 GMT*
 
 
 ## MrBeast
@@ -9078,24 +8268,6 @@ Starface, beloved for its hydrocolloid pimple patches in bright colors and novel
 Skateboarding made a stylish entrance into the Olympic Games in Tokyo in 2021. The sport’s first time competing in the Olympics, Nike SB jumped on the opportun…
 
 *Published on: Mon, 22 Jul 2024 11:20:34 GMT*
-
-
-## MrBeast
-
-## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
-
-Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
-
-*Published on: Mon, 22 Jul 2024 14:34:17 GMT*
-
-
-## MrBeast
-
-## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
-
-Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
-
-*Published on: Mon, 22 Jul 2024 08:00:42 GMT*
 
 
 ## MrBeast
