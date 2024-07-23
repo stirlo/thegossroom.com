@@ -53,6 +53,24 @@ It’s no exaggeration to say that Birkenstock , the family-owned German sandal 
 *Published on: Tue, 23 Jul 2024 13:00:00 GMT*
 
 
+## Tim Cook
+
+## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
+
+Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
+
+*Published on: Tue, 23 Jul 2024 15:24:23 GMT*
+
+
+## Tim Cook
+
+## [KITH’s Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
+
+When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
+
+*Published on: Tue, 23 Jul 2024 15:32:26 GMT*
+
+
 ## Taylor Swift
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
@@ -105,6 +123,24 @@ One thing you can expect from any Joe Freshgoods x New Balance sneaker is color.
 It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
 
 *Published on: Tue, 23 Jul 2024 13:00:00 GMT*
+
+
+## Taylor Swift
+
+## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
+
+Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
+
+*Published on: Tue, 23 Jul 2024 15:24:23 GMT*
+
+
+## Taylor Swift
+
+## [KITH’s Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
+
+When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
+
+*Published on: Tue, 23 Jul 2024 15:32:26 GMT*
 
 
 ## Tom Brady
@@ -161,6 +197,24 @@ It’s no exaggeration to say that Birkenstock , the family-owned German sandal 
 *Published on: Tue, 23 Jul 2024 13:00:00 GMT*
 
 
+## Tom Brady
+
+## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
+
+Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
+
+*Published on: Tue, 23 Jul 2024 15:24:23 GMT*
+
+
+## Tom Brady
+
+## [KITH’s Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
+
+When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
+
+*Published on: Tue, 23 Jul 2024 15:32:26 GMT*
+
+
 ## Tina Fey
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
@@ -213,6 +267,24 @@ One thing you can expect from any Joe Freshgoods x New Balance sneaker is color.
 It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
 
 *Published on: Tue, 23 Jul 2024 13:00:00 GMT*
+
+
+## Tina Fey
+
+## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
+
+Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
+
+*Published on: Tue, 23 Jul 2024 15:24:23 GMT*
+
+
+## Tina Fey
+
+## [KITH’s Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
+
+When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
+
+*Published on: Tue, 23 Jul 2024 15:32:26 GMT*
 
 
 ## Steven Yuen
@@ -269,6 +341,24 @@ It’s no exaggeration to say that Birkenstock , the family-owned German sandal 
 *Published on: Tue, 23 Jul 2024 13:00:00 GMT*
 
 
+## Steven Yuen
+
+## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
+
+Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
+
+*Published on: Tue, 23 Jul 2024 15:24:23 GMT*
+
+
+## Steven Yuen
+
+## [KITH’s Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
+
+When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
+
+*Published on: Tue, 23 Jul 2024 15:32:26 GMT*
+
+
 ## Sommer Ray
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
@@ -321,6 +411,24 @@ One thing you can expect from any Joe Freshgoods x New Balance sneaker is color.
 It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
 
 *Published on: Tue, 23 Jul 2024 13:00:00 GMT*
+
+
+## Sommer Ray
+
+## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
+
+Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
+
+*Published on: Tue, 23 Jul 2024 15:24:23 GMT*
+
+
+## Sommer Ray
+
+## [KITH’s Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
+
+When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
+
+*Published on: Tue, 23 Jul 2024 15:32:26 GMT*
 
 
 ## Sza
@@ -377,6 +485,24 @@ It’s no exaggeration to say that Birkenstock , the family-owned German sandal 
 *Published on: Tue, 23 Jul 2024 13:00:00 GMT*
 
 
+## Sza
+
+## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
+
+Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
+
+*Published on: Tue, 23 Jul 2024 15:24:23 GMT*
+
+
+## Sza
+
+## [KITH’s Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
+
+When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
+
+*Published on: Tue, 23 Jul 2024 15:32:26 GMT*
+
+
 ## Sydney Sweeney
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
@@ -429,6 +555,24 @@ One thing you can expect from any Joe Freshgoods x New Balance sneaker is color.
 It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
 
 *Published on: Tue, 23 Jul 2024 13:00:00 GMT*
+
+
+## Sydney Sweeney
+
+## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
+
+Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
+
+*Published on: Tue, 23 Jul 2024 15:24:23 GMT*
+
+
+## Sydney Sweeney
+
+## [KITH’s Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
+
+When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
+
+*Published on: Tue, 23 Jul 2024 15:32:26 GMT*
 
 
 ## Walton Goggins
@@ -485,6 +629,24 @@ It’s no exaggeration to say that Birkenstock , the family-owned German sandal 
 *Published on: Tue, 23 Jul 2024 13:00:00 GMT*
 
 
+## Walton Goggins
+
+## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
+
+Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
+
+*Published on: Tue, 23 Jul 2024 15:24:23 GMT*
+
+
+## Walton Goggins
+
+## [KITH’s Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
+
+When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
+
+*Published on: Tue, 23 Jul 2024 15:32:26 GMT*
+
+
 ## Tom Holland
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
@@ -537,6 +699,24 @@ One thing you can expect from any Joe Freshgoods x New Balance sneaker is color.
 It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
 
 *Published on: Tue, 23 Jul 2024 13:00:00 GMT*
+
+
+## Tom Holland
+
+## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
+
+Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
+
+*Published on: Tue, 23 Jul 2024 15:24:23 GMT*
+
+
+## Tom Holland
+
+## [KITH’s Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
+
+When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
+
+*Published on: Tue, 23 Jul 2024 15:32:26 GMT*
 
 
 ## Gucci Mane
@@ -593,6 +773,24 @@ It’s no exaggeration to say that Birkenstock , the family-owned German sandal 
 *Published on: Tue, 23 Jul 2024 13:00:00 GMT*
 
 
+## Gucci Mane
+
+## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
+
+Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
+
+*Published on: Tue, 23 Jul 2024 15:24:23 GMT*
+
+
+## Gucci Mane
+
+## [KITH’s Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
+
+When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
+
+*Published on: Tue, 23 Jul 2024 15:32:26 GMT*
+
+
 ## Harry Styles
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
@@ -645,6 +843,24 @@ One thing you can expect from any Joe Freshgoods x New Balance sneaker is color.
 It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
 
 *Published on: Tue, 23 Jul 2024 13:00:00 GMT*
+
+
+## Harry Styles
+
+## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
+
+Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
+
+*Published on: Tue, 23 Jul 2024 15:24:23 GMT*
+
+
+## Harry Styles
+
+## [KITH’s Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
+
+When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
+
+*Published on: Tue, 23 Jul 2024 15:32:26 GMT*
 
 
 ## Jake Paul
@@ -701,6 +917,24 @@ It’s no exaggeration to say that Birkenstock , the family-owned German sandal 
 *Published on: Tue, 23 Jul 2024 13:00:00 GMT*
 
 
+## Jake Paul
+
+## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
+
+Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
+
+*Published on: Tue, 23 Jul 2024 15:24:23 GMT*
+
+
+## Jake Paul
+
+## [KITH’s Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
+
+When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
+
+*Published on: Tue, 23 Jul 2024 15:32:26 GMT*
+
+
 ## Jameela Jamil
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
@@ -753,6 +987,24 @@ One thing you can expect from any Joe Freshgoods x New Balance sneaker is color.
 It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
 
 *Published on: Tue, 23 Jul 2024 13:00:00 GMT*
+
+
+## Jameela Jamil
+
+## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
+
+Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
+
+*Published on: Tue, 23 Jul 2024 15:24:23 GMT*
+
+
+## Jameela Jamil
+
+## [KITH’s Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
+
+When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
+
+*Published on: Tue, 23 Jul 2024 15:32:26 GMT*
 
 
 ## Elon Musk
@@ -809,6 +1061,24 @@ It’s no exaggeration to say that Birkenstock , the family-owned German sandal 
 *Published on: Tue, 23 Jul 2024 13:00:00 GMT*
 
 
+## Elon Musk
+
+## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
+
+Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
+
+*Published on: Tue, 23 Jul 2024 15:24:23 GMT*
+
+
+## Elon Musk
+
+## [KITH’s Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
+
+When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
+
+*Published on: Tue, 23 Jul 2024 15:32:26 GMT*
+
+
 ## Gabrielle Union
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
@@ -861,6 +1131,24 @@ One thing you can expect from any Joe Freshgoods x New Balance sneaker is color.
 It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
 
 *Published on: Tue, 23 Jul 2024 13:00:00 GMT*
+
+
+## Gabrielle Union
+
+## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
+
+Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
+
+*Published on: Tue, 23 Jul 2024 15:24:23 GMT*
+
+
+## Gabrielle Union
+
+## [KITH’s Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
+
+When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
+
+*Published on: Tue, 23 Jul 2024 15:32:26 GMT*
 
 
 ## Giancarlo Esposito
@@ -917,6 +1205,24 @@ It’s no exaggeration to say that Birkenstock , the family-owned German sandal 
 *Published on: Tue, 23 Jul 2024 13:00:00 GMT*
 
 
+## Giancarlo Esposito
+
+## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
+
+Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
+
+*Published on: Tue, 23 Jul 2024 15:24:23 GMT*
+
+
+## Giancarlo Esposito
+
+## [KITH’s Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
+
+When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
+
+*Published on: Tue, 23 Jul 2024 15:32:26 GMT*
+
+
 ## Gillian Jacobs
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
@@ -969,6 +1275,24 @@ One thing you can expect from any Joe Freshgoods x New Balance sneaker is color.
 It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
 
 *Published on: Tue, 23 Jul 2024 13:00:00 GMT*
+
+
+## Gillian Jacobs
+
+## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
+
+Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
+
+*Published on: Tue, 23 Jul 2024 15:24:23 GMT*
+
+
+## Gillian Jacobs
+
+## [KITH’s Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
+
+When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
+
+*Published on: Tue, 23 Jul 2024 15:32:26 GMT*
 
 
 ## Jason Mantzoukas
@@ -1025,6 +1349,24 @@ It’s no exaggeration to say that Birkenstock , the family-owned German sandal 
 *Published on: Tue, 23 Jul 2024 13:00:00 GMT*
 
 
+## Jason Mantzoukas
+
+## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
+
+Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
+
+*Published on: Tue, 23 Jul 2024 15:24:23 GMT*
+
+
+## Jason Mantzoukas
+
+## [KITH’s Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
+
+When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
+
+*Published on: Tue, 23 Jul 2024 15:32:26 GMT*
+
+
 ## JB Smoove
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
@@ -1077,6 +1419,24 @@ One thing you can expect from any Joe Freshgoods x New Balance sneaker is color.
 It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
 
 *Published on: Tue, 23 Jul 2024 13:00:00 GMT*
+
+
+## JB Smoove
+
+## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
+
+Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
+
+*Published on: Tue, 23 Jul 2024 15:24:23 GMT*
+
+
+## JB Smoove
+
+## [KITH’s Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
+
+When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
+
+*Published on: Tue, 23 Jul 2024 15:32:26 GMT*
 
 
 ## Madison Pettis
@@ -1133,6 +1493,24 @@ It’s no exaggeration to say that Birkenstock , the family-owned German sandal 
 *Published on: Tue, 23 Jul 2024 13:00:00 GMT*
 
 
+## Madison Pettis
+
+## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
+
+Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
+
+*Published on: Tue, 23 Jul 2024 15:24:23 GMT*
+
+
+## Madison Pettis
+
+## [KITH’s Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
+
+When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
+
+*Published on: Tue, 23 Jul 2024 15:32:26 GMT*
+
+
 ## Austin Butler
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
@@ -1185,6 +1563,24 @@ One thing you can expect from any Joe Freshgoods x New Balance sneaker is color.
 It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
 
 *Published on: Tue, 23 Jul 2024 13:00:00 GMT*
+
+
+## Austin Butler
+
+## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
+
+Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
+
+*Published on: Tue, 23 Jul 2024 15:24:23 GMT*
+
+
+## Austin Butler
+
+## [KITH’s Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
+
+When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
+
+*Published on: Tue, 23 Jul 2024 15:32:26 GMT*
 
 
 ## Mark Zuckerberg
@@ -1241,6 +1637,24 @@ It’s no exaggeration to say that Birkenstock , the family-owned German sandal 
 *Published on: Tue, 23 Jul 2024 13:00:00 GMT*
 
 
+## Mark Zuckerberg
+
+## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
+
+Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
+
+*Published on: Tue, 23 Jul 2024 15:24:23 GMT*
+
+
+## Mark Zuckerberg
+
+## [KITH’s Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
+
+When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
+
+*Published on: Tue, 23 Jul 2024 15:32:26 GMT*
+
+
 ## Ariana Grande
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
@@ -1293,6 +1707,24 @@ One thing you can expect from any Joe Freshgoods x New Balance sneaker is color.
 It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
 
 *Published on: Tue, 23 Jul 2024 13:00:00 GMT*
+
+
+## Ariana Grande
+
+## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
+
+Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
+
+*Published on: Tue, 23 Jul 2024 15:24:23 GMT*
+
+
+## Ariana Grande
+
+## [KITH’s Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
+
+When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
+
+*Published on: Tue, 23 Jul 2024 15:32:26 GMT*
 
 
 ## Livvy Dunne
@@ -1349,6 +1781,24 @@ It’s no exaggeration to say that Birkenstock , the family-owned German sandal 
 *Published on: Tue, 23 Jul 2024 13:00:00 GMT*
 
 
+## Livvy Dunne
+
+## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
+
+Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
+
+*Published on: Tue, 23 Jul 2024 15:24:23 GMT*
+
+
+## Livvy Dunne
+
+## [KITH’s Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
+
+When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
+
+*Published on: Tue, 23 Jul 2024 15:32:26 GMT*
+
+
 ## Ali Wong
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
@@ -1401,6 +1851,24 @@ One thing you can expect from any Joe Freshgoods x New Balance sneaker is color.
 It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
 
 *Published on: Tue, 23 Jul 2024 13:00:00 GMT*
+
+
+## Ali Wong
+
+## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
+
+Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
+
+*Published on: Tue, 23 Jul 2024 15:24:23 GMT*
+
+
+## Ali Wong
+
+## [KITH’s Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
+
+When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
+
+*Published on: Tue, 23 Jul 2024 15:32:26 GMT*
 
 
 ## Lizzo
@@ -1457,6 +1925,24 @@ It’s no exaggeration to say that Birkenstock , the family-owned German sandal 
 *Published on: Tue, 23 Jul 2024 13:00:00 GMT*
 
 
+## Lizzo
+
+## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
+
+Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
+
+*Published on: Tue, 23 Jul 2024 15:24:23 GMT*
+
+
+## Lizzo
+
+## [KITH’s Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
+
+When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
+
+*Published on: Tue, 23 Jul 2024 15:32:26 GMT*
+
+
 ## Alison Brie
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
@@ -1509,6 +1995,24 @@ One thing you can expect from any Joe Freshgoods x New Balance sneaker is color.
 It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
 
 *Published on: Tue, 23 Jul 2024 13:00:00 GMT*
+
+
+## Alison Brie
+
+## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
+
+Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
+
+*Published on: Tue, 23 Jul 2024 15:24:23 GMT*
+
+
+## Alison Brie
+
+## [KITH’s Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
+
+When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
+
+*Published on: Tue, 23 Jul 2024 15:32:26 GMT*
 
 
 ## Lil Wayne
@@ -1565,6 +2069,24 @@ It’s no exaggeration to say that Birkenstock , the family-owned German sandal 
 *Published on: Tue, 23 Jul 2024 13:00:00 GMT*
 
 
+## Lil Wayne
+
+## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
+
+Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
+
+*Published on: Tue, 23 Jul 2024 15:24:23 GMT*
+
+
+## Lil Wayne
+
+## [KITH’s Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
+
+When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
+
+*Published on: Tue, 23 Jul 2024 15:32:26 GMT*
+
+
 ## Adele
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
@@ -1617,6 +2139,24 @@ One thing you can expect from any Joe Freshgoods x New Balance sneaker is color.
 It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
 
 *Published on: Tue, 23 Jul 2024 13:00:00 GMT*
+
+
+## Adele
+
+## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
+
+Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
+
+*Published on: Tue, 23 Jul 2024 15:24:23 GMT*
+
+
+## Adele
+
+## [KITH’s Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
+
+When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
+
+*Published on: Tue, 23 Jul 2024 15:32:26 GMT*
 
 
 ## Lindsay Lohan
@@ -1673,6 +2213,24 @@ It’s no exaggeration to say that Birkenstock , the family-owned German sandal 
 *Published on: Tue, 23 Jul 2024 13:00:00 GMT*
 
 
+## Lindsay Lohan
+
+## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
+
+Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
+
+*Published on: Tue, 23 Jul 2024 15:24:23 GMT*
+
+
+## Lindsay Lohan
+
+## [KITH’s Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
+
+When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
+
+*Published on: Tue, 23 Jul 2024 15:32:26 GMT*
+
+
 ## Addison Rae
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
@@ -1725,6 +2283,24 @@ One thing you can expect from any Joe Freshgoods x New Balance sneaker is color.
 It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
 
 *Published on: Tue, 23 Jul 2024 13:00:00 GMT*
+
+
+## Addison Rae
+
+## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
+
+Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
+
+*Published on: Tue, 23 Jul 2024 15:24:23 GMT*
+
+
+## Addison Rae
+
+## [KITH’s Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
+
+When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
+
+*Published on: Tue, 23 Jul 2024 15:32:26 GMT*
 
 
 ## Latto
@@ -1781,6 +2357,24 @@ It’s no exaggeration to say that Birkenstock , the family-owned German sandal 
 *Published on: Tue, 23 Jul 2024 13:00:00 GMT*
 
 
+## Latto
+
+## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
+
+Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
+
+*Published on: Tue, 23 Jul 2024 15:24:23 GMT*
+
+
+## Latto
+
+## [KITH’s Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
+
+When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
+
+*Published on: Tue, 23 Jul 2024 15:32:26 GMT*
+
+
 ## Aaron Paul
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
@@ -1833,6 +2427,24 @@ One thing you can expect from any Joe Freshgoods x New Balance sneaker is color.
 It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
 
 *Published on: Tue, 23 Jul 2024 13:00:00 GMT*
+
+
+## Aaron Paul
+
+## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
+
+Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
+
+*Published on: Tue, 23 Jul 2024 15:24:23 GMT*
+
+
+## Aaron Paul
+
+## [KITH’s Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
+
+When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
+
+*Published on: Tue, 23 Jul 2024 15:32:26 GMT*
 
 
 ## LeBron James
@@ -1889,6 +2501,24 @@ It’s no exaggeration to say that Birkenstock , the family-owned German sandal 
 *Published on: Tue, 23 Jul 2024 13:00:00 GMT*
 
 
+## LeBron James
+
+## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
+
+Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
+
+*Published on: Tue, 23 Jul 2024 15:24:23 GMT*
+
+
+## LeBron James
+
+## [KITH’s Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
+
+When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
+
+*Published on: Tue, 23 Jul 2024 15:32:26 GMT*
+
+
 ## 50 Cent
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
@@ -1941,6 +2571,24 @@ One thing you can expect from any Joe Freshgoods x New Balance sneaker is color.
 It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
 
 *Published on: Tue, 23 Jul 2024 13:00:00 GMT*
+
+
+## 50 Cent
+
+## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
+
+Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
+
+*Published on: Tue, 23 Jul 2024 15:24:23 GMT*
+
+
+## 50 Cent
+
+## [KITH’s Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
+
+When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
+
+*Published on: Tue, 23 Jul 2024 15:32:26 GMT*
 
 
 ## Kesha
@@ -1997,6 +2645,24 @@ It’s no exaggeration to say that Birkenstock , the family-owned German sandal 
 *Published on: Tue, 23 Jul 2024 13:00:00 GMT*
 
 
+## Kesha
+
+## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
+
+Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
+
+*Published on: Tue, 23 Jul 2024 15:24:23 GMT*
+
+
+## Kesha
+
+## [KITH’s Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
+
+When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
+
+*Published on: Tue, 23 Jul 2024 15:32:26 GMT*
+
+
 ## 21 Savage
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
@@ -2049,6 +2715,24 @@ One thing you can expect from any Joe Freshgoods x New Balance sneaker is color.
 It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
 
 *Published on: Tue, 23 Jul 2024 13:00:00 GMT*
+
+
+## 21 Savage
+
+## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
+
+Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
+
+*Published on: Tue, 23 Jul 2024 15:24:23 GMT*
+
+
+## 21 Savage
+
+## [KITH’s Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
+
+When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
+
+*Published on: Tue, 23 Jul 2024 15:32:26 GMT*
 
 
 ## Larry David
@@ -2105,6 +2789,24 @@ It’s no exaggeration to say that Birkenstock , the family-owned German sandal 
 *Published on: Tue, 23 Jul 2024 13:00:00 GMT*
 
 
+## Larry David
+
+## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
+
+Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
+
+*Published on: Tue, 23 Jul 2024 15:24:23 GMT*
+
+
+## Larry David
+
+## [KITH’s Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
+
+When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
+
+*Published on: Tue, 23 Jul 2024 15:32:26 GMT*
+
+
 ## Seth Rogan
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
@@ -2157,6 +2859,24 @@ One thing you can expect from any Joe Freshgoods x New Balance sneaker is color.
 It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
 
 *Published on: Tue, 23 Jul 2024 13:00:00 GMT*
+
+
+## Seth Rogan
+
+## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
+
+Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
+
+*Published on: Tue, 23 Jul 2024 15:24:23 GMT*
+
+
+## Seth Rogan
+
+## [KITH’s Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
+
+When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
+
+*Published on: Tue, 23 Jul 2024 15:32:26 GMT*
 
 
 ## Simone Biles
@@ -2213,6 +2933,24 @@ It’s no exaggeration to say that Birkenstock , the family-owned German sandal 
 *Published on: Tue, 23 Jul 2024 13:00:00 GMT*
 
 
+## Simone Biles
+
+## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
+
+Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
+
+*Published on: Tue, 23 Jul 2024 15:24:23 GMT*
+
+
+## Simone Biles
+
+## [KITH’s Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
+
+When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
+
+*Published on: Tue, 23 Jul 2024 15:32:26 GMT*
+
+
 ## Pete Davidson
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
@@ -2265,6 +3003,24 @@ One thing you can expect from any Joe Freshgoods x New Balance sneaker is color.
 It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
 
 *Published on: Tue, 23 Jul 2024 13:00:00 GMT*
+
+
+## Pete Davidson
+
+## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
+
+Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
+
+*Published on: Tue, 23 Jul 2024 15:24:23 GMT*
+
+
+## Pete Davidson
+
+## [KITH’s Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
+
+When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
+
+*Published on: Tue, 23 Jul 2024 15:32:26 GMT*
 
 
 ## Prince Harry
@@ -2321,6 +3077,24 @@ It’s no exaggeration to say that Birkenstock , the family-owned German sandal 
 *Published on: Tue, 23 Jul 2024 13:00:00 GMT*
 
 
+## Prince Harry
+
+## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
+
+Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
+
+*Published on: Tue, 23 Jul 2024 15:24:23 GMT*
+
+
+## Prince Harry
+
+## [KITH’s Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
+
+When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
+
+*Published on: Tue, 23 Jul 2024 15:32:26 GMT*
+
+
 ## Princess of Wales
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
@@ -2373,6 +3147,24 @@ One thing you can expect from any Joe Freshgoods x New Balance sneaker is color.
 It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
 
 *Published on: Tue, 23 Jul 2024 13:00:00 GMT*
+
+
+## Princess of Wales
+
+## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
+
+Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
+
+*Published on: Tue, 23 Jul 2024 15:24:23 GMT*
+
+
+## Princess of Wales
+
+## [KITH’s Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
+
+When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
+
+*Published on: Tue, 23 Jul 2024 15:32:26 GMT*
 
 
 ## Rachel McAdams
@@ -2429,6 +3221,24 @@ It’s no exaggeration to say that Birkenstock , the family-owned German sandal 
 *Published on: Tue, 23 Jul 2024 13:00:00 GMT*
 
 
+## Rachel McAdams
+
+## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
+
+Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
+
+*Published on: Tue, 23 Jul 2024 15:24:23 GMT*
+
+
+## Rachel McAdams
+
+## [KITH’s Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
+
+When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
+
+*Published on: Tue, 23 Jul 2024 15:32:26 GMT*
+
+
 ## Reneé Rapp
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
@@ -2481,6 +3291,24 @@ One thing you can expect from any Joe Freshgoods x New Balance sneaker is color.
 It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
 
 *Published on: Tue, 23 Jul 2024 13:00:00 GMT*
+
+
+## Reneé Rapp
+
+## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
+
+Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
+
+*Published on: Tue, 23 Jul 2024 15:24:23 GMT*
+
+
+## Reneé Rapp
+
+## [KITH’s Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
+
+When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
+
+*Published on: Tue, 23 Jul 2024 15:32:26 GMT*
 
 
 ## Rick Ross
@@ -2537,6 +3365,24 @@ It’s no exaggeration to say that Birkenstock , the family-owned German sandal 
 *Published on: Tue, 23 Jul 2024 13:00:00 GMT*
 
 
+## Rick Ross
+
+## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
+
+Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
+
+*Published on: Tue, 23 Jul 2024 15:24:23 GMT*
+
+
+## Rick Ross
+
+## [KITH’s Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
+
+When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
+
+*Published on: Tue, 23 Jul 2024 15:32:26 GMT*
+
+
 ## Sam Ashgari
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
@@ -2589,6 +3435,24 @@ One thing you can expect from any Joe Freshgoods x New Balance sneaker is color.
 It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
 
 *Published on: Tue, 23 Jul 2024 13:00:00 GMT*
+
+
+## Sam Ashgari
+
+## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
+
+Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
+
+*Published on: Tue, 23 Jul 2024 15:24:23 GMT*
+
+
+## Sam Ashgari
+
+## [KITH’s Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
+
+When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
+
+*Published on: Tue, 23 Jul 2024 15:32:26 GMT*
 
 
 ## Sandra Oh
@@ -2645,6 +3509,24 @@ It’s no exaggeration to say that Birkenstock , the family-owned German sandal 
 *Published on: Tue, 23 Jul 2024 13:00:00 GMT*
 
 
+## Sandra Oh
+
+## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
+
+Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
+
+*Published on: Tue, 23 Jul 2024 15:24:23 GMT*
+
+
+## Sandra Oh
+
+## [KITH’s Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
+
+When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
+
+*Published on: Tue, 23 Jul 2024 15:32:26 GMT*
+
+
 ## Donald Trump
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
@@ -2697,6 +3579,24 @@ One thing you can expect from any Joe Freshgoods x New Balance sneaker is color.
 It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
 
 *Published on: Tue, 23 Jul 2024 13:00:00 GMT*
+
+
+## Donald Trump
+
+## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
+
+Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
+
+*Published on: Tue, 23 Jul 2024 15:24:23 GMT*
+
+
+## Donald Trump
+
+## [KITH’s Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
+
+When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
+
+*Published on: Tue, 23 Jul 2024 15:32:26 GMT*
 
 
 ## Diddy
@@ -2753,6 +3653,24 @@ It’s no exaggeration to say that Birkenstock , the family-owned German sandal 
 *Published on: Tue, 23 Jul 2024 13:00:00 GMT*
 
 
+## Diddy
+
+## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
+
+Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
+
+*Published on: Tue, 23 Jul 2024 15:24:23 GMT*
+
+
+## Diddy
+
+## [KITH’s Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
+
+When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
+
+*Published on: Tue, 23 Jul 2024 15:32:26 GMT*
+
+
 ## City Girls
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
@@ -2805,6 +3723,24 @@ One thing you can expect from any Joe Freshgoods x New Balance sneaker is color.
 It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
 
 *Published on: Tue, 23 Jul 2024 13:00:00 GMT*
+
+
+## City Girls
+
+## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
+
+Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
+
+*Published on: Tue, 23 Jul 2024 15:24:23 GMT*
+
+
+## City Girls
+
+## [KITH’s Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
+
+When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
+
+*Published on: Tue, 23 Jul 2024 15:32:26 GMT*
 
 
 ## Chloe Bailey
@@ -2861,6 +3797,24 @@ It’s no exaggeration to say that Birkenstock , the family-owned German sandal 
 *Published on: Tue, 23 Jul 2024 13:00:00 GMT*
 
 
+## Chloe Bailey
+
+## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
+
+Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
+
+*Published on: Tue, 23 Jul 2024 15:24:23 GMT*
+
+
+## Chloe Bailey
+
+## [KITH’s Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
+
+When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
+
+*Published on: Tue, 23 Jul 2024 15:32:26 GMT*
+
+
 ## Charli D Amelio
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
@@ -2913,6 +3867,24 @@ One thing you can expect from any Joe Freshgoods x New Balance sneaker is color.
 It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
 
 *Published on: Tue, 23 Jul 2024 13:00:00 GMT*
+
+
+## Charli D Amelio
+
+## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
+
+Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
+
+*Published on: Tue, 23 Jul 2024 15:24:23 GMT*
+
+
+## Charli D Amelio
+
+## [KITH’s Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
+
+When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
+
+*Published on: Tue, 23 Jul 2024 15:32:26 GMT*
 
 
 ## Cardi B
@@ -2969,6 +3941,24 @@ It’s no exaggeration to say that Birkenstock , the family-owned German sandal 
 *Published on: Tue, 23 Jul 2024 13:00:00 GMT*
 
 
+## Cardi B
+
+## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
+
+Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
+
+*Published on: Tue, 23 Jul 2024 15:24:23 GMT*
+
+
+## Cardi B
+
+## [KITH’s Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
+
+When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
+
+*Published on: Tue, 23 Jul 2024 15:32:26 GMT*
+
+
 ## Bryan Cranston
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
@@ -3021,6 +4011,24 @@ One thing you can expect from any Joe Freshgoods x New Balance sneaker is color.
 It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
 
 *Published on: Tue, 23 Jul 2024 13:00:00 GMT*
+
+
+## Bryan Cranston
+
+## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
+
+Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
+
+*Published on: Tue, 23 Jul 2024 15:24:23 GMT*
+
+
+## Bryan Cranston
+
+## [KITH’s Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
+
+When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
+
+*Published on: Tue, 23 Jul 2024 15:32:26 GMT*
 
 
 ## Brielle Biermann
@@ -3077,6 +4085,24 @@ It’s no exaggeration to say that Birkenstock , the family-owned German sandal 
 *Published on: Tue, 23 Jul 2024 13:00:00 GMT*
 
 
+## Brielle Biermann
+
+## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
+
+Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
+
+*Published on: Tue, 23 Jul 2024 15:24:23 GMT*
+
+
+## Brielle Biermann
+
+## [KITH’s Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
+
+When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
+
+*Published on: Tue, 23 Jul 2024 15:32:26 GMT*
+
+
 ## Dua Lipa
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
@@ -3129,6 +4155,24 @@ One thing you can expect from any Joe Freshgoods x New Balance sneaker is color.
 It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
 
 *Published on: Tue, 23 Jul 2024 13:00:00 GMT*
+
+
+## Dua Lipa
+
+## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
+
+Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
+
+*Published on: Tue, 23 Jul 2024 15:24:23 GMT*
+
+
+## Dua Lipa
+
+## [KITH’s Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
+
+When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
+
+*Published on: Tue, 23 Jul 2024 15:32:26 GMT*
 
 
 ## Drake
@@ -3185,6 +4229,24 @@ It’s no exaggeration to say that Birkenstock , the family-owned German sandal 
 *Published on: Tue, 23 Jul 2024 13:00:00 GMT*
 
 
+## Drake
+
+## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
+
+Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
+
+*Published on: Tue, 23 Jul 2024 15:24:23 GMT*
+
+
+## Drake
+
+## [KITH’s Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
+
+When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
+
+*Published on: Tue, 23 Jul 2024 15:32:26 GMT*
+
+
 ## Jenner
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
@@ -3237,6 +4299,24 @@ One thing you can expect from any Joe Freshgoods x New Balance sneaker is color.
 It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
 
 *Published on: Tue, 23 Jul 2024 13:00:00 GMT*
+
+
+## Jenner
+
+## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
+
+Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
+
+*Published on: Tue, 23 Jul 2024 15:24:23 GMT*
+
+
+## Jenner
+
+## [KITH’s Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
+
+When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
+
+*Published on: Tue, 23 Jul 2024 15:32:26 GMT*
 
 
 ## J. Cole
@@ -3293,6 +4373,24 @@ It’s no exaggeration to say that Birkenstock , the family-owned German sandal 
 *Published on: Tue, 23 Jul 2024 13:00:00 GMT*
 
 
+## J. Cole
+
+## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
+
+Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
+
+*Published on: Tue, 23 Jul 2024 15:24:23 GMT*
+
+
+## J. Cole
+
+## [KITH’s Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
+
+When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
+
+*Published on: Tue, 23 Jul 2024 15:32:26 GMT*
+
+
 ## Jerrod Carmichael
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
@@ -3345,6 +4443,24 @@ One thing you can expect from any Joe Freshgoods x New Balance sneaker is color.
 It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
 
 *Published on: Tue, 23 Jul 2024 13:00:00 GMT*
+
+
+## Jerrod Carmichael
+
+## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
+
+Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
+
+*Published on: Tue, 23 Jul 2024 15:24:23 GMT*
+
+
+## Jerrod Carmichael
+
+## [KITH’s Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
+
+When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
+
+*Published on: Tue, 23 Jul 2024 15:32:26 GMT*
 
 
 ## Jennifer Lawrence
@@ -3401,6 +4517,24 @@ It’s no exaggeration to say that Birkenstock , the family-owned German sandal 
 *Published on: Tue, 23 Jul 2024 13:00:00 GMT*
 
 
+## Jennifer Lawrence
+
+## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
+
+Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
+
+*Published on: Tue, 23 Jul 2024 15:24:23 GMT*
+
+
+## Jennifer Lawrence
+
+## [KITH’s Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
+
+When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
+
+*Published on: Tue, 23 Jul 2024 15:32:26 GMT*
+
+
 ## Joe Biden
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
@@ -3453,6 +4587,24 @@ One thing you can expect from any Joe Freshgoods x New Balance sneaker is color.
 It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
 
 *Published on: Tue, 23 Jul 2024 13:00:00 GMT*
+
+
+## Joe Biden
+
+## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
+
+Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
+
+*Published on: Tue, 23 Jul 2024 15:24:23 GMT*
+
+
+## Joe Biden
+
+## [KITH’s Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
+
+When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
+
+*Published on: Tue, 23 Jul 2024 15:32:26 GMT*
 
 
 ## J.K. Simmons
@@ -3509,6 +4661,24 @@ It’s no exaggeration to say that Birkenstock , the family-owned German sandal 
 *Published on: Tue, 23 Jul 2024 13:00:00 GMT*
 
 
+## J.K. Simmons
+
+## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
+
+Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
+
+*Published on: Tue, 23 Jul 2024 15:24:23 GMT*
+
+
+## J.K. Simmons
+
+## [KITH’s Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
+
+When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
+
+*Published on: Tue, 23 Jul 2024 15:32:26 GMT*
+
+
 ## Kamala Harris
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
@@ -3561,6 +4731,24 @@ One thing you can expect from any Joe Freshgoods x New Balance sneaker is color.
 It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
 
 *Published on: Tue, 23 Jul 2024 13:00:00 GMT*
+
+
+## Kamala Harris
+
+## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
+
+Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
+
+*Published on: Tue, 23 Jul 2024 15:24:23 GMT*
+
+
+## Kamala Harris
+
+## [KITH’s Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
+
+When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
+
+*Published on: Tue, 23 Jul 2024 15:32:26 GMT*
 
 
 ## John C Reilly
@@ -3617,6 +4805,24 @@ It’s no exaggeration to say that Birkenstock , the family-owned German sandal 
 *Published on: Tue, 23 Jul 2024 13:00:00 GMT*
 
 
+## John C Reilly
+
+## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
+
+Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
+
+*Published on: Tue, 23 Jul 2024 15:24:23 GMT*
+
+
+## John C Reilly
+
+## [KITH’s Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
+
+When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
+
+*Published on: Tue, 23 Jul 2024 15:32:26 GMT*
+
+
 ## Kardashian
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
@@ -3669,6 +4875,24 @@ One thing you can expect from any Joe Freshgoods x New Balance sneaker is color.
 It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
 
 *Published on: Tue, 23 Jul 2024 13:00:00 GMT*
+
+
+## Kardashian
+
+## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
+
+Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
+
+*Published on: Tue, 23 Jul 2024 15:24:23 GMT*
+
+
+## Kardashian
+
+## [KITH’s Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
+
+When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
+
+*Published on: Tue, 23 Jul 2024 15:32:26 GMT*
 
 
 ## Kanye
@@ -3725,6 +4949,24 @@ It’s no exaggeration to say that Birkenstock , the family-owned German sandal 
 *Published on: Tue, 23 Jul 2024 13:00:00 GMT*
 
 
+## Kanye
+
+## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
+
+Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
+
+*Published on: Tue, 23 Jul 2024 15:24:23 GMT*
+
+
+## Kanye
+
+## [KITH’s Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
+
+When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
+
+*Published on: Tue, 23 Jul 2024 15:32:26 GMT*
+
+
 ## Zendaya
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
@@ -3777,6 +5019,24 @@ One thing you can expect from any Joe Freshgoods x New Balance sneaker is color.
 It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
 
 *Published on: Tue, 23 Jul 2024 13:00:00 GMT*
+
+
+## Zendaya
+
+## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
+
+Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
+
+*Published on: Tue, 23 Jul 2024 15:24:23 GMT*
+
+
+## Zendaya
+
+## [KITH’s Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
+
+When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
+
+*Published on: Tue, 23 Jul 2024 15:32:26 GMT*
 
 
 ## Will Ferrell
@@ -3833,6 +5093,24 @@ It’s no exaggeration to say that Birkenstock , the family-owned German sandal 
 *Published on: Tue, 23 Jul 2024 13:00:00 GMT*
 
 
+## Will Ferrell
+
+## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
+
+Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
+
+*Published on: Tue, 23 Jul 2024 15:24:23 GMT*
+
+
+## Will Ferrell
+
+## [KITH’s Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
+
+When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
+
+*Published on: Tue, 23 Jul 2024 15:32:26 GMT*
+
+
 ## Zazie Beetz
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
@@ -3885,6 +5163,24 @@ One thing you can expect from any Joe Freshgoods x New Balance sneaker is color.
 It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
 
 *Published on: Tue, 23 Jul 2024 13:00:00 GMT*
+
+
+## Zazie Beetz
+
+## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
+
+Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
+
+*Published on: Tue, 23 Jul 2024 15:24:23 GMT*
+
+
+## Zazie Beetz
+
+## [KITH’s Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
+
+When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
+
+*Published on: Tue, 23 Jul 2024 15:32:26 GMT*
 
 
 ## Bob Odenkirk
@@ -3941,6 +5237,24 @@ It’s no exaggeration to say that Birkenstock , the family-owned German sandal 
 *Published on: Tue, 23 Jul 2024 13:00:00 GMT*
 
 
+## Bob Odenkirk
+
+## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
+
+Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
+
+*Published on: Tue, 23 Jul 2024 15:24:23 GMT*
+
+
+## Bob Odenkirk
+
+## [KITH’s Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
+
+When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
+
+*Published on: Tue, 23 Jul 2024 15:32:26 GMT*
+
+
 ## Brad Pitt
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
@@ -3993,6 +5307,24 @@ One thing you can expect from any Joe Freshgoods x New Balance sneaker is color.
 It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
 
 *Published on: Tue, 23 Jul 2024 13:00:00 GMT*
+
+
+## Brad Pitt
+
+## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
+
+Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
+
+*Published on: Tue, 23 Jul 2024 15:24:23 GMT*
+
+
+## Brad Pitt
+
+## [KITH’s Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
+
+When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
+
+*Published on: Tue, 23 Jul 2024 15:32:26 GMT*
 
 
 ## Beyoncé
@@ -4049,6 +5381,24 @@ It’s no exaggeration to say that Birkenstock , the family-owned German sandal 
 *Published on: Tue, 23 Jul 2024 13:00:00 GMT*
 
 
+## Beyoncé
+
+## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
+
+Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
+
+*Published on: Tue, 23 Jul 2024 15:24:23 GMT*
+
+
+## Beyoncé
+
+## [KITH’s Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
+
+When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
+
+*Published on: Tue, 23 Jul 2024 15:32:26 GMT*
+
+
 ## Bia
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
@@ -4101,6 +5451,24 @@ One thing you can expect from any Joe Freshgoods x New Balance sneaker is color.
 It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
 
 *Published on: Tue, 23 Jul 2024 13:00:00 GMT*
+
+
+## Bia
+
+## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
+
+Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
+
+*Published on: Tue, 23 Jul 2024 15:24:23 GMT*
+
+
+## Bia
+
+## [KITH’s Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
+
+When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
+
+*Published on: Tue, 23 Jul 2024 15:32:26 GMT*
 
 
 ## Avantika
@@ -4157,6 +5525,24 @@ It’s no exaggeration to say that Birkenstock , the family-owned German sandal 
 *Published on: Tue, 23 Jul 2024 13:00:00 GMT*
 
 
+## Avantika
+
+## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
+
+Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
+
+*Published on: Tue, 23 Jul 2024 15:24:23 GMT*
+
+
+## Avantika
+
+## [KITH’s Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
+
+When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
+
+*Published on: Tue, 23 Jul 2024 15:32:26 GMT*
+
+
 ## Bernie Sanders
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
@@ -4209,6 +5595,24 @@ One thing you can expect from any Joe Freshgoods x New Balance sneaker is color.
 It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
 
 *Published on: Tue, 23 Jul 2024 13:00:00 GMT*
+
+
+## Bernie Sanders
+
+## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
+
+Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
+
+*Published on: Tue, 23 Jul 2024 15:24:23 GMT*
+
+
+## Bernie Sanders
+
+## [KITH’s Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
+
+When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
+
+*Published on: Tue, 23 Jul 2024 15:32:26 GMT*
 
 
 ## Big Sean
@@ -4265,6 +5669,24 @@ It’s no exaggeration to say that Birkenstock , the family-owned German sandal 
 *Published on: Tue, 23 Jul 2024 13:00:00 GMT*
 
 
+## Big Sean
+
+## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
+
+Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
+
+*Published on: Tue, 23 Jul 2024 15:24:23 GMT*
+
+
+## Big Sean
+
+## [KITH’s Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
+
+When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
+
+*Published on: Tue, 23 Jul 2024 15:32:26 GMT*
+
+
 ## BlockBoy JB
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
@@ -4317,6 +5739,24 @@ One thing you can expect from any Joe Freshgoods x New Balance sneaker is color.
 It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
 
 *Published on: Tue, 23 Jul 2024 13:00:00 GMT*
+
+
+## BlockBoy JB
+
+## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
+
+Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
+
+*Published on: Tue, 23 Jul 2024 15:24:23 GMT*
+
+
+## BlockBoy JB
+
+## [KITH’s Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
+
+When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
+
+*Published on: Tue, 23 Jul 2024 15:32:26 GMT*
 
 
 ## Biden
@@ -4373,6 +5813,24 @@ It’s no exaggeration to say that Birkenstock , the family-owned German sandal 
 *Published on: Tue, 23 Jul 2024 13:00:00 GMT*
 
 
+## Biden
+
+## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
+
+Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
+
+*Published on: Tue, 23 Jul 2024 15:24:23 GMT*
+
+
+## Biden
+
+## [KITH’s Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
+
+When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
+
+*Published on: Tue, 23 Jul 2024 15:32:26 GMT*
+
+
 ## Bieber
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
@@ -4425,6 +5883,24 @@ One thing you can expect from any Joe Freshgoods x New Balance sneaker is color.
 It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
 
 *Published on: Tue, 23 Jul 2024 13:00:00 GMT*
+
+
+## Bieber
+
+## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
+
+Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
+
+*Published on: Tue, 23 Jul 2024 15:24:23 GMT*
+
+
+## Bieber
+
+## [KITH’s Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
+
+When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
+
+*Published on: Tue, 23 Jul 2024 15:32:26 GMT*
 
 
 ## Paulina Porizkov
@@ -4481,6 +5957,24 @@ It’s no exaggeration to say that Birkenstock , the family-owned German sandal 
 *Published on: Tue, 23 Jul 2024 13:00:00 GMT*
 
 
+## Paulina Porizkov
+
+## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
+
+Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
+
+*Published on: Tue, 23 Jul 2024 15:24:23 GMT*
+
+
+## Paulina Porizkov
+
+## [KITH’s Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
+
+When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
+
+*Published on: Tue, 23 Jul 2024 15:32:26 GMT*
+
+
 ## Paris Hilton
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
@@ -4533,6 +6027,24 @@ One thing you can expect from any Joe Freshgoods x New Balance sneaker is color.
 It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
 
 *Published on: Tue, 23 Jul 2024 13:00:00 GMT*
+
+
+## Paris Hilton
+
+## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
+
+Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
+
+*Published on: Tue, 23 Jul 2024 15:24:23 GMT*
+
+
+## Paris Hilton
+
+## [KITH’s Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
+
+When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
+
+*Published on: Tue, 23 Jul 2024 15:32:26 GMT*
 
 
 ## Metro Boomin
@@ -4589,6 +6101,24 @@ It’s no exaggeration to say that Birkenstock , the family-owned German sandal 
 *Published on: Tue, 23 Jul 2024 13:00:00 GMT*
 
 
+## Metro Boomin
+
+## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
+
+Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
+
+*Published on: Tue, 23 Jul 2024 15:24:23 GMT*
+
+
+## Metro Boomin
+
+## [KITH’s Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
+
+When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
+
+*Published on: Tue, 23 Jul 2024 15:32:26 GMT*
+
+
 ## Meghan Markle
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
@@ -4641,6 +6171,24 @@ One thing you can expect from any Joe Freshgoods x New Balance sneaker is color.
 It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
 
 *Published on: Tue, 23 Jul 2024 13:00:00 GMT*
+
+
+## Meghan Markle
+
+## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
+
+Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
+
+*Published on: Tue, 23 Jul 2024 15:24:23 GMT*
+
+
+## Meghan Markle
+
+## [KITH’s Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
+
+When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
+
+*Published on: Tue, 23 Jul 2024 15:32:26 GMT*
 
 
 ## Megan Thee Stallion
@@ -4697,6 +6245,24 @@ It’s no exaggeration to say that Birkenstock , the family-owned German sandal 
 *Published on: Tue, 23 Jul 2024 13:00:00 GMT*
 
 
+## Megan Thee Stallion
+
+## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
+
+Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
+
+*Published on: Tue, 23 Jul 2024 15:24:23 GMT*
+
+
+## Megan Thee Stallion
+
+## [KITH’s Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
+
+When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
+
+*Published on: Tue, 23 Jul 2024 15:32:26 GMT*
+
+
 ## Maya Rudolph
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
@@ -4751,6 +6317,24 @@ It’s no exaggeration to say that Birkenstock , the family-owned German sandal 
 *Published on: Tue, 23 Jul 2024 13:00:00 GMT*
 
 
+## Maya Rudolph
+
+## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
+
+Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
+
+*Published on: Tue, 23 Jul 2024 15:24:23 GMT*
+
+
+## Maya Rudolph
+
+## [KITH’s Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
+
+When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
+
+*Published on: Tue, 23 Jul 2024 15:32:26 GMT*
+
+
 ## Olivia Rodrigo
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
@@ -4805,6 +6389,24 @@ It’s no exaggeration to say that Birkenstock , the family-owned German sandal 
 *Published on: Tue, 23 Jul 2024 13:00:00 GMT*
 
 
+## Olivia Rodrigo
+
+## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
+
+Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
+
+*Published on: Tue, 23 Jul 2024 15:24:23 GMT*
+
+
+## Olivia Rodrigo
+
+## [KITH’s Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
+
+When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
+
+*Published on: Tue, 23 Jul 2024 15:32:26 GMT*
+
+
 ## Obama
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
@@ -4859,6 +6461,24 @@ It’s no exaggeration to say that Birkenstock , the family-owned German sandal 
 *Published on: Tue, 23 Jul 2024 13:00:00 GMT*
 
 
+## Obama
+
+## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
+
+Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
+
+*Published on: Tue, 23 Jul 2024 15:24:23 GMT*
+
+
+## Obama
+
+## [KITH’s Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
+
+When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
+
+*Published on: Tue, 23 Jul 2024 15:32:26 GMT*
+
+
 ## Nicki Minaj
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
@@ -4913,6 +6533,24 @@ It’s no exaggeration to say that Birkenstock , the family-owned German sandal 
 *Published on: Tue, 23 Jul 2024 13:00:00 GMT*
 
 
+## Nicki Minaj
+
+## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
+
+Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
+
+*Published on: Tue, 23 Jul 2024 15:24:23 GMT*
+
+
+## Nicki Minaj
+
+## [KITH’s Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
+
+When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
+
+*Published on: Tue, 23 Jul 2024 15:32:26 GMT*
+
+
 ## MrBeast
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
@@ -4965,5 +6603,23 @@ One thing you can expect from any Joe Freshgoods x New Balance sneaker is color.
 It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
 
 *Published on: Tue, 23 Jul 2024 13:00:00 GMT*
+
+
+## MrBeast
+
+## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
+
+Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
+
+*Published on: Tue, 23 Jul 2024 15:24:23 GMT*
+
+
+## MrBeast
+
+## [KITH’s Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
+
+When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
+
+*Published on: Tue, 23 Jul 2024 15:32:26 GMT*
 
 
