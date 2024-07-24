@@ -62,6 +62,15 @@ On July 1, a new Connecticut law requiring that cosmetology and barber schools i
 *Published on: Wed, 24 Jul 2024 15:53:27 GMT*
 
 
+## Tim Cook
+
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+
+This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+
+*Published on: Wed, 24 Jul 2024 21:23:17 GMT*
+
+
 ## Taylor Swift
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
@@ -123,6 +132,15 @@ Martine Rose’s fashion shows always have a deep community focus.For example, w
 On July 1, a new Connecticut law requiring that cosmetology and barber schools include textured hair in their curriculum went into effect.The mandate is a step…
 
 *Published on: Wed, 24 Jul 2024 15:53:27 GMT*
+
+
+## Taylor Swift
+
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+
+This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+
+*Published on: Wed, 24 Jul 2024 21:23:17 GMT*
 
 
 ## Tom Brady
@@ -188,6 +206,15 @@ On July 1, a new Connecticut law requiring that cosmetology and barber schools i
 *Published on: Wed, 24 Jul 2024 15:53:27 GMT*
 
 
+## Tom Brady
+
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+
+This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+
+*Published on: Wed, 24 Jul 2024 21:23:17 GMT*
+
+
 ## Tina Fey
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
@@ -249,6 +276,15 @@ Martine Rose’s fashion shows always have a deep community focus.For example, w
 On July 1, a new Connecticut law requiring that cosmetology and barber schools include textured hair in their curriculum went into effect.The mandate is a step…
 
 *Published on: Wed, 24 Jul 2024 15:53:27 GMT*
+
+
+## Tina Fey
+
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+
+This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+
+*Published on: Wed, 24 Jul 2024 21:23:17 GMT*
 
 
 ## Steven Yuen
@@ -314,6 +350,15 @@ On July 1, a new Connecticut law requiring that cosmetology and barber schools i
 *Published on: Wed, 24 Jul 2024 15:53:27 GMT*
 
 
+## Steven Yuen
+
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+
+This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+
+*Published on: Wed, 24 Jul 2024 21:23:17 GMT*
+
+
 ## Sommer Ray
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
@@ -375,6 +420,15 @@ Martine Rose’s fashion shows always have a deep community focus.For example, w
 On July 1, a new Connecticut law requiring that cosmetology and barber schools include textured hair in their curriculum went into effect.The mandate is a step…
 
 *Published on: Wed, 24 Jul 2024 15:53:27 GMT*
+
+
+## Sommer Ray
+
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+
+This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+
+*Published on: Wed, 24 Jul 2024 21:23:17 GMT*
 
 
 ## Sza
@@ -440,6 +494,15 @@ On July 1, a new Connecticut law requiring that cosmetology and barber schools i
 *Published on: Wed, 24 Jul 2024 15:53:27 GMT*
 
 
+## Sza
+
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+
+This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+
+*Published on: Wed, 24 Jul 2024 21:23:17 GMT*
+
+
 ## Sydney Sweeney
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
@@ -501,6 +564,15 @@ Martine Rose’s fashion shows always have a deep community focus.For example, w
 On July 1, a new Connecticut law requiring that cosmetology and barber schools include textured hair in their curriculum went into effect.The mandate is a step…
 
 *Published on: Wed, 24 Jul 2024 15:53:27 GMT*
+
+
+## Sydney Sweeney
+
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+
+This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+
+*Published on: Wed, 24 Jul 2024 21:23:17 GMT*
 
 
 ## Walton Goggins
@@ -566,6 +638,15 @@ On July 1, a new Connecticut law requiring that cosmetology and barber schools i
 *Published on: Wed, 24 Jul 2024 15:53:27 GMT*
 
 
+## Walton Goggins
+
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+
+This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+
+*Published on: Wed, 24 Jul 2024 21:23:17 GMT*
+
+
 ## Tom Holland
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
@@ -627,6 +708,15 @@ Martine Rose’s fashion shows always have a deep community focus.For example, w
 On July 1, a new Connecticut law requiring that cosmetology and barber schools include textured hair in their curriculum went into effect.The mandate is a step…
 
 *Published on: Wed, 24 Jul 2024 15:53:27 GMT*
+
+
+## Tom Holland
+
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+
+This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+
+*Published on: Wed, 24 Jul 2024 21:23:17 GMT*
 
 
 ## Gucci Mane
@@ -692,6 +782,15 @@ On July 1, a new Connecticut law requiring that cosmetology and barber schools i
 *Published on: Wed, 24 Jul 2024 15:53:27 GMT*
 
 
+## Gucci Mane
+
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+
+This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+
+*Published on: Wed, 24 Jul 2024 21:23:17 GMT*
+
+
 ## Harry Styles
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
@@ -753,6 +852,15 @@ Martine Rose’s fashion shows always have a deep community focus.For example, w
 On July 1, a new Connecticut law requiring that cosmetology and barber schools include textured hair in their curriculum went into effect.The mandate is a step…
 
 *Published on: Wed, 24 Jul 2024 15:53:27 GMT*
+
+
+## Harry Styles
+
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+
+This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+
+*Published on: Wed, 24 Jul 2024 21:23:17 GMT*
 
 
 ## Jake Paul
@@ -818,6 +926,15 @@ On July 1, a new Connecticut law requiring that cosmetology and barber schools i
 *Published on: Wed, 24 Jul 2024 15:53:27 GMT*
 
 
+## Jake Paul
+
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+
+This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+
+*Published on: Wed, 24 Jul 2024 21:23:17 GMT*
+
+
 ## Jameela Jamil
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
@@ -879,6 +996,15 @@ Martine Rose’s fashion shows always have a deep community focus.For example, w
 On July 1, a new Connecticut law requiring that cosmetology and barber schools include textured hair in their curriculum went into effect.The mandate is a step…
 
 *Published on: Wed, 24 Jul 2024 15:53:27 GMT*
+
+
+## Jameela Jamil
+
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+
+This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+
+*Published on: Wed, 24 Jul 2024 21:23:17 GMT*
 
 
 ## Elon Musk
@@ -944,6 +1070,15 @@ On July 1, a new Connecticut law requiring that cosmetology and barber schools i
 *Published on: Wed, 24 Jul 2024 15:53:27 GMT*
 
 
+## Elon Musk
+
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+
+This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+
+*Published on: Wed, 24 Jul 2024 21:23:17 GMT*
+
+
 ## Gabrielle Union
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
@@ -1005,6 +1140,15 @@ Martine Rose’s fashion shows always have a deep community focus.For example, w
 On July 1, a new Connecticut law requiring that cosmetology and barber schools include textured hair in their curriculum went into effect.The mandate is a step…
 
 *Published on: Wed, 24 Jul 2024 15:53:27 GMT*
+
+
+## Gabrielle Union
+
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+
+This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+
+*Published on: Wed, 24 Jul 2024 21:23:17 GMT*
 
 
 ## Giancarlo Esposito
@@ -1070,6 +1214,15 @@ On July 1, a new Connecticut law requiring that cosmetology and barber schools i
 *Published on: Wed, 24 Jul 2024 15:53:27 GMT*
 
 
+## Giancarlo Esposito
+
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+
+This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+
+*Published on: Wed, 24 Jul 2024 21:23:17 GMT*
+
+
 ## Gillian Jacobs
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
@@ -1131,6 +1284,15 @@ Martine Rose’s fashion shows always have a deep community focus.For example, w
 On July 1, a new Connecticut law requiring that cosmetology and barber schools include textured hair in their curriculum went into effect.The mandate is a step…
 
 *Published on: Wed, 24 Jul 2024 15:53:27 GMT*
+
+
+## Gillian Jacobs
+
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+
+This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+
+*Published on: Wed, 24 Jul 2024 21:23:17 GMT*
 
 
 ## Jason Mantzoukas
@@ -1196,6 +1358,15 @@ On July 1, a new Connecticut law requiring that cosmetology and barber schools i
 *Published on: Wed, 24 Jul 2024 15:53:27 GMT*
 
 
+## Jason Mantzoukas
+
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+
+This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+
+*Published on: Wed, 24 Jul 2024 21:23:17 GMT*
+
+
 ## JB Smoove
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
@@ -1257,6 +1428,15 @@ Martine Rose’s fashion shows always have a deep community focus.For example, w
 On July 1, a new Connecticut law requiring that cosmetology and barber schools include textured hair in their curriculum went into effect.The mandate is a step…
 
 *Published on: Wed, 24 Jul 2024 15:53:27 GMT*
+
+
+## JB Smoove
+
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+
+This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+
+*Published on: Wed, 24 Jul 2024 21:23:17 GMT*
 
 
 ## Madison Pettis
@@ -1322,6 +1502,15 @@ On July 1, a new Connecticut law requiring that cosmetology and barber schools i
 *Published on: Wed, 24 Jul 2024 15:53:27 GMT*
 
 
+## Madison Pettis
+
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+
+This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+
+*Published on: Wed, 24 Jul 2024 21:23:17 GMT*
+
+
 ## Austin Butler
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
@@ -1383,6 +1572,15 @@ Martine Rose’s fashion shows always have a deep community focus.For example, w
 On July 1, a new Connecticut law requiring that cosmetology and barber schools include textured hair in their curriculum went into effect.The mandate is a step…
 
 *Published on: Wed, 24 Jul 2024 15:53:27 GMT*
+
+
+## Austin Butler
+
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+
+This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+
+*Published on: Wed, 24 Jul 2024 21:23:17 GMT*
 
 
 ## Mark Zuckerberg
@@ -1448,6 +1646,15 @@ On July 1, a new Connecticut law requiring that cosmetology and barber schools i
 *Published on: Wed, 24 Jul 2024 15:53:27 GMT*
 
 
+## Mark Zuckerberg
+
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+
+This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+
+*Published on: Wed, 24 Jul 2024 21:23:17 GMT*
+
+
 ## Ariana Grande
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
@@ -1509,6 +1716,15 @@ Martine Rose’s fashion shows always have a deep community focus.For example, w
 On July 1, a new Connecticut law requiring that cosmetology and barber schools include textured hair in their curriculum went into effect.The mandate is a step…
 
 *Published on: Wed, 24 Jul 2024 15:53:27 GMT*
+
+
+## Ariana Grande
+
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+
+This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+
+*Published on: Wed, 24 Jul 2024 21:23:17 GMT*
 
 
 ## Livvy Dunne
@@ -1574,6 +1790,15 @@ On July 1, a new Connecticut law requiring that cosmetology and barber schools i
 *Published on: Wed, 24 Jul 2024 15:53:27 GMT*
 
 
+## Livvy Dunne
+
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+
+This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+
+*Published on: Wed, 24 Jul 2024 21:23:17 GMT*
+
+
 ## Ali Wong
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
@@ -1635,6 +1860,15 @@ Martine Rose’s fashion shows always have a deep community focus.For example, w
 On July 1, a new Connecticut law requiring that cosmetology and barber schools include textured hair in their curriculum went into effect.The mandate is a step…
 
 *Published on: Wed, 24 Jul 2024 15:53:27 GMT*
+
+
+## Ali Wong
+
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+
+This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+
+*Published on: Wed, 24 Jul 2024 21:23:17 GMT*
 
 
 ## Lizzo
@@ -1700,6 +1934,15 @@ On July 1, a new Connecticut law requiring that cosmetology and barber schools i
 *Published on: Wed, 24 Jul 2024 15:53:27 GMT*
 
 
+## Lizzo
+
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+
+This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+
+*Published on: Wed, 24 Jul 2024 21:23:17 GMT*
+
+
 ## Alison Brie
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
@@ -1761,6 +2004,15 @@ Martine Rose’s fashion shows always have a deep community focus.For example, w
 On July 1, a new Connecticut law requiring that cosmetology and barber schools include textured hair in their curriculum went into effect.The mandate is a step…
 
 *Published on: Wed, 24 Jul 2024 15:53:27 GMT*
+
+
+## Alison Brie
+
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+
+This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+
+*Published on: Wed, 24 Jul 2024 21:23:17 GMT*
 
 
 ## Lil Wayne
@@ -1826,6 +2078,15 @@ On July 1, a new Connecticut law requiring that cosmetology and barber schools i
 *Published on: Wed, 24 Jul 2024 15:53:27 GMT*
 
 
+## Lil Wayne
+
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+
+This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+
+*Published on: Wed, 24 Jul 2024 21:23:17 GMT*
+
+
 ## Adele
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
@@ -1887,6 +2148,15 @@ Martine Rose’s fashion shows always have a deep community focus.For example, w
 On July 1, a new Connecticut law requiring that cosmetology and barber schools include textured hair in their curriculum went into effect.The mandate is a step…
 
 *Published on: Wed, 24 Jul 2024 15:53:27 GMT*
+
+
+## Adele
+
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+
+This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+
+*Published on: Wed, 24 Jul 2024 21:23:17 GMT*
 
 
 ## Lindsay Lohan
@@ -1952,6 +2222,15 @@ On July 1, a new Connecticut law requiring that cosmetology and barber schools i
 *Published on: Wed, 24 Jul 2024 15:53:27 GMT*
 
 
+## Lindsay Lohan
+
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+
+This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+
+*Published on: Wed, 24 Jul 2024 21:23:17 GMT*
+
+
 ## Addison Rae
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
@@ -2013,6 +2292,15 @@ Martine Rose’s fashion shows always have a deep community focus.For example, w
 On July 1, a new Connecticut law requiring that cosmetology and barber schools include textured hair in their curriculum went into effect.The mandate is a step…
 
 *Published on: Wed, 24 Jul 2024 15:53:27 GMT*
+
+
+## Addison Rae
+
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+
+This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+
+*Published on: Wed, 24 Jul 2024 21:23:17 GMT*
 
 
 ## Latto
@@ -2078,6 +2366,15 @@ On July 1, a new Connecticut law requiring that cosmetology and barber schools i
 *Published on: Wed, 24 Jul 2024 15:53:27 GMT*
 
 
+## Latto
+
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+
+This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+
+*Published on: Wed, 24 Jul 2024 21:23:17 GMT*
+
+
 ## Aaron Paul
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
@@ -2139,6 +2436,15 @@ Martine Rose’s fashion shows always have a deep community focus.For example, w
 On July 1, a new Connecticut law requiring that cosmetology and barber schools include textured hair in their curriculum went into effect.The mandate is a step…
 
 *Published on: Wed, 24 Jul 2024 15:53:27 GMT*
+
+
+## Aaron Paul
+
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+
+This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+
+*Published on: Wed, 24 Jul 2024 21:23:17 GMT*
 
 
 ## LeBron James
@@ -2204,6 +2510,15 @@ On July 1, a new Connecticut law requiring that cosmetology and barber schools i
 *Published on: Wed, 24 Jul 2024 15:53:27 GMT*
 
 
+## LeBron James
+
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+
+This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+
+*Published on: Wed, 24 Jul 2024 21:23:17 GMT*
+
+
 ## 50 Cent
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
@@ -2265,6 +2580,15 @@ Martine Rose’s fashion shows always have a deep community focus.For example, w
 On July 1, a new Connecticut law requiring that cosmetology and barber schools include textured hair in their curriculum went into effect.The mandate is a step…
 
 *Published on: Wed, 24 Jul 2024 15:53:27 GMT*
+
+
+## 50 Cent
+
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+
+This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+
+*Published on: Wed, 24 Jul 2024 21:23:17 GMT*
 
 
 ## Kesha
@@ -2330,6 +2654,15 @@ On July 1, a new Connecticut law requiring that cosmetology and barber schools i
 *Published on: Wed, 24 Jul 2024 15:53:27 GMT*
 
 
+## Kesha
+
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+
+This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+
+*Published on: Wed, 24 Jul 2024 21:23:17 GMT*
+
+
 ## 21 Savage
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
@@ -2391,6 +2724,15 @@ Martine Rose’s fashion shows always have a deep community focus.For example, w
 On July 1, a new Connecticut law requiring that cosmetology and barber schools include textured hair in their curriculum went into effect.The mandate is a step…
 
 *Published on: Wed, 24 Jul 2024 15:53:27 GMT*
+
+
+## 21 Savage
+
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+
+This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+
+*Published on: Wed, 24 Jul 2024 21:23:17 GMT*
 
 
 ## Larry David
@@ -2456,6 +2798,15 @@ On July 1, a new Connecticut law requiring that cosmetology and barber schools i
 *Published on: Wed, 24 Jul 2024 15:53:27 GMT*
 
 
+## Larry David
+
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+
+This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+
+*Published on: Wed, 24 Jul 2024 21:23:17 GMT*
+
+
 ## Seth Rogan
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
@@ -2517,6 +2868,15 @@ Martine Rose’s fashion shows always have a deep community focus.For example, w
 On July 1, a new Connecticut law requiring that cosmetology and barber schools include textured hair in their curriculum went into effect.The mandate is a step…
 
 *Published on: Wed, 24 Jul 2024 15:53:27 GMT*
+
+
+## Seth Rogan
+
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+
+This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+
+*Published on: Wed, 24 Jul 2024 21:23:17 GMT*
 
 
 ## Simone Biles
@@ -2582,6 +2942,15 @@ On July 1, a new Connecticut law requiring that cosmetology and barber schools i
 *Published on: Wed, 24 Jul 2024 15:53:27 GMT*
 
 
+## Simone Biles
+
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+
+This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+
+*Published on: Wed, 24 Jul 2024 21:23:17 GMT*
+
+
 ## Pete Davidson
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
@@ -2643,6 +3012,15 @@ Martine Rose’s fashion shows always have a deep community focus.For example, w
 On July 1, a new Connecticut law requiring that cosmetology and barber schools include textured hair in their curriculum went into effect.The mandate is a step…
 
 *Published on: Wed, 24 Jul 2024 15:53:27 GMT*
+
+
+## Pete Davidson
+
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+
+This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+
+*Published on: Wed, 24 Jul 2024 21:23:17 GMT*
 
 
 ## Prince Harry
@@ -2708,6 +3086,15 @@ On July 1, a new Connecticut law requiring that cosmetology and barber schools i
 *Published on: Wed, 24 Jul 2024 15:53:27 GMT*
 
 
+## Prince Harry
+
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+
+This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+
+*Published on: Wed, 24 Jul 2024 21:23:17 GMT*
+
+
 ## Princess of Wales
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
@@ -2769,6 +3156,15 @@ Martine Rose’s fashion shows always have a deep community focus.For example, w
 On July 1, a new Connecticut law requiring that cosmetology and barber schools include textured hair in their curriculum went into effect.The mandate is a step…
 
 *Published on: Wed, 24 Jul 2024 15:53:27 GMT*
+
+
+## Princess of Wales
+
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+
+This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+
+*Published on: Wed, 24 Jul 2024 21:23:17 GMT*
 
 
 ## Rachel McAdams
@@ -2834,6 +3230,15 @@ On July 1, a new Connecticut law requiring that cosmetology and barber schools i
 *Published on: Wed, 24 Jul 2024 15:53:27 GMT*
 
 
+## Rachel McAdams
+
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+
+This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+
+*Published on: Wed, 24 Jul 2024 21:23:17 GMT*
+
+
 ## Reneé Rapp
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
@@ -2895,6 +3300,15 @@ Martine Rose’s fashion shows always have a deep community focus.For example, w
 On July 1, a new Connecticut law requiring that cosmetology and barber schools include textured hair in their curriculum went into effect.The mandate is a step…
 
 *Published on: Wed, 24 Jul 2024 15:53:27 GMT*
+
+
+## Reneé Rapp
+
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+
+This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+
+*Published on: Wed, 24 Jul 2024 21:23:17 GMT*
 
 
 ## Rick Ross
@@ -2960,6 +3374,15 @@ On July 1, a new Connecticut law requiring that cosmetology and barber schools i
 *Published on: Wed, 24 Jul 2024 15:53:27 GMT*
 
 
+## Rick Ross
+
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+
+This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+
+*Published on: Wed, 24 Jul 2024 21:23:17 GMT*
+
+
 ## Sam Ashgari
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
@@ -3021,6 +3444,15 @@ Martine Rose’s fashion shows always have a deep community focus.For example, w
 On July 1, a new Connecticut law requiring that cosmetology and barber schools include textured hair in their curriculum went into effect.The mandate is a step…
 
 *Published on: Wed, 24 Jul 2024 15:53:27 GMT*
+
+
+## Sam Ashgari
+
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+
+This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+
+*Published on: Wed, 24 Jul 2024 21:23:17 GMT*
 
 
 ## Sandra Oh
@@ -3086,6 +3518,15 @@ On July 1, a new Connecticut law requiring that cosmetology and barber schools i
 *Published on: Wed, 24 Jul 2024 15:53:27 GMT*
 
 
+## Sandra Oh
+
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+
+This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+
+*Published on: Wed, 24 Jul 2024 21:23:17 GMT*
+
+
 ## Donald Trump
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
@@ -3147,6 +3588,15 @@ Martine Rose’s fashion shows always have a deep community focus.For example, w
 On July 1, a new Connecticut law requiring that cosmetology and barber schools include textured hair in their curriculum went into effect.The mandate is a step…
 
 *Published on: Wed, 24 Jul 2024 15:53:27 GMT*
+
+
+## Donald Trump
+
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+
+This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+
+*Published on: Wed, 24 Jul 2024 21:23:17 GMT*
 
 
 ## Diddy
@@ -3212,6 +3662,15 @@ On July 1, a new Connecticut law requiring that cosmetology and barber schools i
 *Published on: Wed, 24 Jul 2024 15:53:27 GMT*
 
 
+## Diddy
+
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+
+This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+
+*Published on: Wed, 24 Jul 2024 21:23:17 GMT*
+
+
 ## City Girls
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
@@ -3273,6 +3732,15 @@ Martine Rose’s fashion shows always have a deep community focus.For example, w
 On July 1, a new Connecticut law requiring that cosmetology and barber schools include textured hair in their curriculum went into effect.The mandate is a step…
 
 *Published on: Wed, 24 Jul 2024 15:53:27 GMT*
+
+
+## City Girls
+
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+
+This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+
+*Published on: Wed, 24 Jul 2024 21:23:17 GMT*
 
 
 ## Chloe Bailey
@@ -3338,6 +3806,15 @@ On July 1, a new Connecticut law requiring that cosmetology and barber schools i
 *Published on: Wed, 24 Jul 2024 15:53:27 GMT*
 
 
+## Chloe Bailey
+
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+
+This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+
+*Published on: Wed, 24 Jul 2024 21:23:17 GMT*
+
+
 ## Charli D Amelio
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
@@ -3399,6 +3876,15 @@ Martine Rose’s fashion shows always have a deep community focus.For example, w
 On July 1, a new Connecticut law requiring that cosmetology and barber schools include textured hair in their curriculum went into effect.The mandate is a step…
 
 *Published on: Wed, 24 Jul 2024 15:53:27 GMT*
+
+
+## Charli D Amelio
+
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+
+This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+
+*Published on: Wed, 24 Jul 2024 21:23:17 GMT*
 
 
 ## Cardi B
@@ -3464,6 +3950,15 @@ On July 1, a new Connecticut law requiring that cosmetology and barber schools i
 *Published on: Wed, 24 Jul 2024 15:53:27 GMT*
 
 
+## Cardi B
+
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+
+This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+
+*Published on: Wed, 24 Jul 2024 21:23:17 GMT*
+
+
 ## Bryan Cranston
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
@@ -3525,6 +4020,15 @@ Martine Rose’s fashion shows always have a deep community focus.For example, w
 On July 1, a new Connecticut law requiring that cosmetology and barber schools include textured hair in their curriculum went into effect.The mandate is a step…
 
 *Published on: Wed, 24 Jul 2024 15:53:27 GMT*
+
+
+## Bryan Cranston
+
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+
+This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+
+*Published on: Wed, 24 Jul 2024 21:23:17 GMT*
 
 
 ## Brielle Biermann
@@ -3590,6 +4094,15 @@ On July 1, a new Connecticut law requiring that cosmetology and barber schools i
 *Published on: Wed, 24 Jul 2024 15:53:27 GMT*
 
 
+## Brielle Biermann
+
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+
+This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+
+*Published on: Wed, 24 Jul 2024 21:23:17 GMT*
+
+
 ## Dua Lipa
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
@@ -3651,6 +4164,15 @@ Martine Rose’s fashion shows always have a deep community focus.For example, w
 On July 1, a new Connecticut law requiring that cosmetology and barber schools include textured hair in their curriculum went into effect.The mandate is a step…
 
 *Published on: Wed, 24 Jul 2024 15:53:27 GMT*
+
+
+## Dua Lipa
+
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+
+This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+
+*Published on: Wed, 24 Jul 2024 21:23:17 GMT*
 
 
 ## Drake
@@ -3716,6 +4238,15 @@ On July 1, a new Connecticut law requiring that cosmetology and barber schools i
 *Published on: Wed, 24 Jul 2024 15:53:27 GMT*
 
 
+## Drake
+
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+
+This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+
+*Published on: Wed, 24 Jul 2024 21:23:17 GMT*
+
+
 ## Jenner
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
@@ -3777,6 +4308,15 @@ Martine Rose’s fashion shows always have a deep community focus.For example, w
 On July 1, a new Connecticut law requiring that cosmetology and barber schools include textured hair in their curriculum went into effect.The mandate is a step…
 
 *Published on: Wed, 24 Jul 2024 15:53:27 GMT*
+
+
+## Jenner
+
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+
+This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+
+*Published on: Wed, 24 Jul 2024 21:23:17 GMT*
 
 
 ## J. Cole
@@ -3842,6 +4382,15 @@ On July 1, a new Connecticut law requiring that cosmetology and barber schools i
 *Published on: Wed, 24 Jul 2024 15:53:27 GMT*
 
 
+## J. Cole
+
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+
+This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+
+*Published on: Wed, 24 Jul 2024 21:23:17 GMT*
+
+
 ## Jerrod Carmichael
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
@@ -3903,6 +4452,15 @@ Martine Rose’s fashion shows always have a deep community focus.For example, w
 On July 1, a new Connecticut law requiring that cosmetology and barber schools include textured hair in their curriculum went into effect.The mandate is a step…
 
 *Published on: Wed, 24 Jul 2024 15:53:27 GMT*
+
+
+## Jerrod Carmichael
+
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+
+This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+
+*Published on: Wed, 24 Jul 2024 21:23:17 GMT*
 
 
 ## Jennifer Lawrence
@@ -3968,6 +4526,15 @@ On July 1, a new Connecticut law requiring that cosmetology and barber schools i
 *Published on: Wed, 24 Jul 2024 15:53:27 GMT*
 
 
+## Jennifer Lawrence
+
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+
+This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+
+*Published on: Wed, 24 Jul 2024 21:23:17 GMT*
+
+
 ## Joe Biden
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
@@ -4029,6 +4596,15 @@ Martine Rose’s fashion shows always have a deep community focus.For example, w
 On July 1, a new Connecticut law requiring that cosmetology and barber schools include textured hair in their curriculum went into effect.The mandate is a step…
 
 *Published on: Wed, 24 Jul 2024 15:53:27 GMT*
+
+
+## Joe Biden
+
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+
+This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+
+*Published on: Wed, 24 Jul 2024 21:23:17 GMT*
 
 
 ## J.K. Simmons
@@ -4094,6 +4670,15 @@ On July 1, a new Connecticut law requiring that cosmetology and barber schools i
 *Published on: Wed, 24 Jul 2024 15:53:27 GMT*
 
 
+## J.K. Simmons
+
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+
+This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+
+*Published on: Wed, 24 Jul 2024 21:23:17 GMT*
+
+
 ## Kamala Harris
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
@@ -4155,6 +4740,15 @@ Martine Rose’s fashion shows always have a deep community focus.For example, w
 On July 1, a new Connecticut law requiring that cosmetology and barber schools include textured hair in their curriculum went into effect.The mandate is a step…
 
 *Published on: Wed, 24 Jul 2024 15:53:27 GMT*
+
+
+## Kamala Harris
+
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+
+This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+
+*Published on: Wed, 24 Jul 2024 21:23:17 GMT*
 
 
 ## John C Reilly
@@ -4220,6 +4814,15 @@ On July 1, a new Connecticut law requiring that cosmetology and barber schools i
 *Published on: Wed, 24 Jul 2024 15:53:27 GMT*
 
 
+## John C Reilly
+
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+
+This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+
+*Published on: Wed, 24 Jul 2024 21:23:17 GMT*
+
+
 ## Kardashian
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
@@ -4281,6 +4884,15 @@ Martine Rose’s fashion shows always have a deep community focus.For example, w
 On July 1, a new Connecticut law requiring that cosmetology and barber schools include textured hair in their curriculum went into effect.The mandate is a step…
 
 *Published on: Wed, 24 Jul 2024 15:53:27 GMT*
+
+
+## Kardashian
+
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+
+This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+
+*Published on: Wed, 24 Jul 2024 21:23:17 GMT*
 
 
 ## Kanye
@@ -4346,6 +4958,15 @@ On July 1, a new Connecticut law requiring that cosmetology and barber schools i
 *Published on: Wed, 24 Jul 2024 15:53:27 GMT*
 
 
+## Kanye
+
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+
+This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+
+*Published on: Wed, 24 Jul 2024 21:23:17 GMT*
+
+
 ## Zendaya
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
@@ -4407,6 +5028,15 @@ Martine Rose’s fashion shows always have a deep community focus.For example, w
 On July 1, a new Connecticut law requiring that cosmetology and barber schools include textured hair in their curriculum went into effect.The mandate is a step…
 
 *Published on: Wed, 24 Jul 2024 15:53:27 GMT*
+
+
+## Zendaya
+
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+
+This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+
+*Published on: Wed, 24 Jul 2024 21:23:17 GMT*
 
 
 ## Will Ferrell
@@ -4472,6 +5102,15 @@ On July 1, a new Connecticut law requiring that cosmetology and barber schools i
 *Published on: Wed, 24 Jul 2024 15:53:27 GMT*
 
 
+## Will Ferrell
+
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+
+This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+
+*Published on: Wed, 24 Jul 2024 21:23:17 GMT*
+
+
 ## Zazie Beetz
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
@@ -4533,6 +5172,15 @@ Martine Rose’s fashion shows always have a deep community focus.For example, w
 On July 1, a new Connecticut law requiring that cosmetology and barber schools include textured hair in their curriculum went into effect.The mandate is a step…
 
 *Published on: Wed, 24 Jul 2024 15:53:27 GMT*
+
+
+## Zazie Beetz
+
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+
+This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+
+*Published on: Wed, 24 Jul 2024 21:23:17 GMT*
 
 
 ## Bob Odenkirk
@@ -4598,6 +5246,15 @@ On July 1, a new Connecticut law requiring that cosmetology and barber schools i
 *Published on: Wed, 24 Jul 2024 15:53:27 GMT*
 
 
+## Bob Odenkirk
+
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+
+This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+
+*Published on: Wed, 24 Jul 2024 21:23:17 GMT*
+
+
 ## Brad Pitt
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
@@ -4659,6 +5316,15 @@ Martine Rose’s fashion shows always have a deep community focus.For example, w
 On July 1, a new Connecticut law requiring that cosmetology and barber schools include textured hair in their curriculum went into effect.The mandate is a step…
 
 *Published on: Wed, 24 Jul 2024 15:53:27 GMT*
+
+
+## Brad Pitt
+
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+
+This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+
+*Published on: Wed, 24 Jul 2024 21:23:17 GMT*
 
 
 ## Beyoncé
@@ -4724,6 +5390,15 @@ On July 1, a new Connecticut law requiring that cosmetology and barber schools i
 *Published on: Wed, 24 Jul 2024 15:53:27 GMT*
 
 
+## Beyoncé
+
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+
+This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+
+*Published on: Wed, 24 Jul 2024 21:23:17 GMT*
+
+
 ## Bia
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
@@ -4785,6 +5460,15 @@ Martine Rose’s fashion shows always have a deep community focus.For example, w
 On July 1, a new Connecticut law requiring that cosmetology and barber schools include textured hair in their curriculum went into effect.The mandate is a step…
 
 *Published on: Wed, 24 Jul 2024 15:53:27 GMT*
+
+
+## Bia
+
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+
+This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+
+*Published on: Wed, 24 Jul 2024 21:23:17 GMT*
 
 
 ## Avantika
@@ -4850,6 +5534,15 @@ On July 1, a new Connecticut law requiring that cosmetology and barber schools i
 *Published on: Wed, 24 Jul 2024 15:53:27 GMT*
 
 
+## Avantika
+
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+
+This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+
+*Published on: Wed, 24 Jul 2024 21:23:17 GMT*
+
+
 ## Bernie Sanders
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
@@ -4911,6 +5604,15 @@ Martine Rose’s fashion shows always have a deep community focus.For example, w
 On July 1, a new Connecticut law requiring that cosmetology and barber schools include textured hair in their curriculum went into effect.The mandate is a step…
 
 *Published on: Wed, 24 Jul 2024 15:53:27 GMT*
+
+
+## Bernie Sanders
+
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+
+This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+
+*Published on: Wed, 24 Jul 2024 21:23:17 GMT*
 
 
 ## Big Sean
@@ -4976,6 +5678,15 @@ On July 1, a new Connecticut law requiring that cosmetology and barber schools i
 *Published on: Wed, 24 Jul 2024 15:53:27 GMT*
 
 
+## Big Sean
+
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+
+This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+
+*Published on: Wed, 24 Jul 2024 21:23:17 GMT*
+
+
 ## BlockBoy JB
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
@@ -5037,6 +5748,15 @@ Martine Rose’s fashion shows always have a deep community focus.For example, w
 On July 1, a new Connecticut law requiring that cosmetology and barber schools include textured hair in their curriculum went into effect.The mandate is a step…
 
 *Published on: Wed, 24 Jul 2024 15:53:27 GMT*
+
+
+## BlockBoy JB
+
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+
+This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+
+*Published on: Wed, 24 Jul 2024 21:23:17 GMT*
 
 
 ## Biden
@@ -5102,6 +5822,15 @@ On July 1, a new Connecticut law requiring that cosmetology and barber schools i
 *Published on: Wed, 24 Jul 2024 15:53:27 GMT*
 
 
+## Biden
+
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+
+This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+
+*Published on: Wed, 24 Jul 2024 21:23:17 GMT*
+
+
 ## Bieber
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
@@ -5163,6 +5892,15 @@ Martine Rose’s fashion shows always have a deep community focus.For example, w
 On July 1, a new Connecticut law requiring that cosmetology and barber schools include textured hair in their curriculum went into effect.The mandate is a step…
 
 *Published on: Wed, 24 Jul 2024 15:53:27 GMT*
+
+
+## Bieber
+
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+
+This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+
+*Published on: Wed, 24 Jul 2024 21:23:17 GMT*
 
 
 ## Paulina Porizkov
@@ -5228,6 +5966,15 @@ On July 1, a new Connecticut law requiring that cosmetology and barber schools i
 *Published on: Wed, 24 Jul 2024 15:53:27 GMT*
 
 
+## Paulina Porizkov
+
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+
+This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+
+*Published on: Wed, 24 Jul 2024 21:23:17 GMT*
+
+
 ## Paris Hilton
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
@@ -5289,6 +6036,15 @@ Martine Rose’s fashion shows always have a deep community focus.For example, w
 On July 1, a new Connecticut law requiring that cosmetology and barber schools include textured hair in their curriculum went into effect.The mandate is a step…
 
 *Published on: Wed, 24 Jul 2024 15:53:27 GMT*
+
+
+## Paris Hilton
+
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+
+This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+
+*Published on: Wed, 24 Jul 2024 21:23:17 GMT*
 
 
 ## Metro Boomin
@@ -5354,6 +6110,15 @@ On July 1, a new Connecticut law requiring that cosmetology and barber schools i
 *Published on: Wed, 24 Jul 2024 15:53:27 GMT*
 
 
+## Metro Boomin
+
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+
+This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+
+*Published on: Wed, 24 Jul 2024 21:23:17 GMT*
+
+
 ## Meghan Markle
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
@@ -5415,6 +6180,15 @@ Martine Rose’s fashion shows always have a deep community focus.For example, w
 On July 1, a new Connecticut law requiring that cosmetology and barber schools include textured hair in their curriculum went into effect.The mandate is a step…
 
 *Published on: Wed, 24 Jul 2024 15:53:27 GMT*
+
+
+## Meghan Markle
+
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+
+This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+
+*Published on: Wed, 24 Jul 2024 21:23:17 GMT*
 
 
 ## Megan Thee Stallion
@@ -5480,6 +6254,15 @@ On July 1, a new Connecticut law requiring that cosmetology and barber schools i
 *Published on: Wed, 24 Jul 2024 15:53:27 GMT*
 
 
+## Megan Thee Stallion
+
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+
+This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+
+*Published on: Wed, 24 Jul 2024 21:23:17 GMT*
+
+
 ## Maya Rudolph
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
@@ -5543,6 +6326,15 @@ On July 1, a new Connecticut law requiring that cosmetology and barber schools i
 *Published on: Wed, 24 Jul 2024 15:53:27 GMT*
 
 
+## Maya Rudolph
+
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+
+This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+
+*Published on: Wed, 24 Jul 2024 21:23:17 GMT*
+
+
 ## Olivia Rodrigo
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
@@ -5606,6 +6398,15 @@ On July 1, a new Connecticut law requiring that cosmetology and barber schools i
 *Published on: Wed, 24 Jul 2024 15:53:27 GMT*
 
 
+## Olivia Rodrigo
+
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+
+This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+
+*Published on: Wed, 24 Jul 2024 21:23:17 GMT*
+
+
 ## Obama
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
@@ -5669,6 +6470,15 @@ On July 1, a new Connecticut law requiring that cosmetology and barber schools i
 *Published on: Wed, 24 Jul 2024 15:53:27 GMT*
 
 
+## Obama
+
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+
+This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+
+*Published on: Wed, 24 Jul 2024 21:23:17 GMT*
+
+
 ## Nicki Minaj
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
@@ -5732,6 +6542,15 @@ On July 1, a new Connecticut law requiring that cosmetology and barber schools i
 *Published on: Wed, 24 Jul 2024 15:53:27 GMT*
 
 
+## Nicki Minaj
+
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+
+This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+
+*Published on: Wed, 24 Jul 2024 21:23:17 GMT*
+
+
 ## MrBeast
 
 ## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
@@ -5793,5 +6612,14 @@ Martine Rose’s fashion shows always have a deep community focus.For example, w
 On July 1, a new Connecticut law requiring that cosmetology and barber schools include textured hair in their curriculum went into effect.The mandate is a step…
 
 *Published on: Wed, 24 Jul 2024 15:53:27 GMT*
+
+
+## MrBeast
+
+## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
+
+This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+
+*Published on: Wed, 24 Jul 2024 21:23:17 GMT*
 
 
