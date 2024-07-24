@@ -62,6 +62,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Tue, 23 Jul 2024 16:02:45 GMT*
 
 
+## Tim Cook
+
+## [Data Confirms: Fashion's Hottest Sneaker Is No Longer the Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
+
+It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
+
+*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
+
+
 ## Taylor Swift
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
@@ -123,6 +132,15 @@ When you produce as many collaborations as Ronnie Fieg and his label Kith do, so
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Tue, 23 Jul 2024 16:02:45 GMT*
+
+
+## Taylor Swift
+
+## [Data Confirms: Fashion's Hottest Sneaker Is No Longer the Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
+
+It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
+
+*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
 
 
 ## Tom Brady
@@ -188,6 +206,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Tue, 23 Jul 2024 16:02:45 GMT*
 
 
+## Tom Brady
+
+## [Data Confirms: Fashion's Hottest Sneaker Is No Longer the Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
+
+It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
+
+*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
+
+
 ## Tina Fey
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
@@ -249,6 +276,15 @@ When you produce as many collaborations as Ronnie Fieg and his label Kith do, so
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Tue, 23 Jul 2024 16:02:45 GMT*
+
+
+## Tina Fey
+
+## [Data Confirms: Fashion's Hottest Sneaker Is No Longer the Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
+
+It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
+
+*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
 
 
 ## Steven Yuen
@@ -314,6 +350,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Tue, 23 Jul 2024 16:02:45 GMT*
 
 
+## Steven Yuen
+
+## [Data Confirms: Fashion's Hottest Sneaker Is No Longer the Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
+
+It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
+
+*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
+
+
 ## Sommer Ray
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
@@ -375,6 +420,15 @@ When you produce as many collaborations as Ronnie Fieg and his label Kith do, so
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Tue, 23 Jul 2024 16:02:45 GMT*
+
+
+## Sommer Ray
+
+## [Data Confirms: Fashion's Hottest Sneaker Is No Longer the Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
+
+It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
+
+*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
 
 
 ## Sza
@@ -440,6 +494,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Tue, 23 Jul 2024 16:02:45 GMT*
 
 
+## Sza
+
+## [Data Confirms: Fashion's Hottest Sneaker Is No Longer the Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
+
+It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
+
+*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
+
+
 ## Sydney Sweeney
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
@@ -501,6 +564,15 @@ When you produce as many collaborations as Ronnie Fieg and his label Kith do, so
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Tue, 23 Jul 2024 16:02:45 GMT*
+
+
+## Sydney Sweeney
+
+## [Data Confirms: Fashion's Hottest Sneaker Is No Longer the Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
+
+It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
+
+*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
 
 
 ## Walton Goggins
@@ -566,6 +638,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Tue, 23 Jul 2024 16:02:45 GMT*
 
 
+## Walton Goggins
+
+## [Data Confirms: Fashion's Hottest Sneaker Is No Longer the Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
+
+It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
+
+*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
+
+
 ## Tom Holland
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
@@ -627,6 +708,15 @@ When you produce as many collaborations as Ronnie Fieg and his label Kith do, so
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Tue, 23 Jul 2024 16:02:45 GMT*
+
+
+## Tom Holland
+
+## [Data Confirms: Fashion's Hottest Sneaker Is No Longer the Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
+
+It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
+
+*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
 
 
 ## Gucci Mane
@@ -692,6 +782,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Tue, 23 Jul 2024 16:02:45 GMT*
 
 
+## Gucci Mane
+
+## [Data Confirms: Fashion's Hottest Sneaker Is No Longer the Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
+
+It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
+
+*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
+
+
 ## Harry Styles
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
@@ -753,6 +852,15 @@ When you produce as many collaborations as Ronnie Fieg and his label Kith do, so
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Tue, 23 Jul 2024 16:02:45 GMT*
+
+
+## Harry Styles
+
+## [Data Confirms: Fashion's Hottest Sneaker Is No Longer the Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
+
+It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
+
+*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
 
 
 ## Jake Paul
@@ -818,6 +926,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Tue, 23 Jul 2024 16:02:45 GMT*
 
 
+## Jake Paul
+
+## [Data Confirms: Fashion's Hottest Sneaker Is No Longer the Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
+
+It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
+
+*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
+
+
 ## Jameela Jamil
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
@@ -879,6 +996,15 @@ When you produce as many collaborations as Ronnie Fieg and his label Kith do, so
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Tue, 23 Jul 2024 16:02:45 GMT*
+
+
+## Jameela Jamil
+
+## [Data Confirms: Fashion's Hottest Sneaker Is No Longer the Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
+
+It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
+
+*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
 
 
 ## Elon Musk
@@ -944,6 +1070,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Tue, 23 Jul 2024 16:02:45 GMT*
 
 
+## Elon Musk
+
+## [Data Confirms: Fashion's Hottest Sneaker Is No Longer the Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
+
+It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
+
+*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
+
+
 ## Gabrielle Union
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
@@ -1005,6 +1140,15 @@ When you produce as many collaborations as Ronnie Fieg and his label Kith do, so
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Tue, 23 Jul 2024 16:02:45 GMT*
+
+
+## Gabrielle Union
+
+## [Data Confirms: Fashion's Hottest Sneaker Is No Longer the Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
+
+It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
+
+*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
 
 
 ## Giancarlo Esposito
@@ -1070,6 +1214,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Tue, 23 Jul 2024 16:02:45 GMT*
 
 
+## Giancarlo Esposito
+
+## [Data Confirms: Fashion's Hottest Sneaker Is No Longer the Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
+
+It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
+
+*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
+
+
 ## Gillian Jacobs
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
@@ -1131,6 +1284,15 @@ When you produce as many collaborations as Ronnie Fieg and his label Kith do, so
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Tue, 23 Jul 2024 16:02:45 GMT*
+
+
+## Gillian Jacobs
+
+## [Data Confirms: Fashion's Hottest Sneaker Is No Longer the Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
+
+It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
+
+*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
 
 
 ## Jason Mantzoukas
@@ -1196,6 +1358,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Tue, 23 Jul 2024 16:02:45 GMT*
 
 
+## Jason Mantzoukas
+
+## [Data Confirms: Fashion's Hottest Sneaker Is No Longer the Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
+
+It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
+
+*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
+
+
 ## JB Smoove
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
@@ -1257,6 +1428,15 @@ When you produce as many collaborations as Ronnie Fieg and his label Kith do, so
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Tue, 23 Jul 2024 16:02:45 GMT*
+
+
+## JB Smoove
+
+## [Data Confirms: Fashion's Hottest Sneaker Is No Longer the Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
+
+It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
+
+*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
 
 
 ## Madison Pettis
@@ -1322,6 +1502,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Tue, 23 Jul 2024 16:02:45 GMT*
 
 
+## Madison Pettis
+
+## [Data Confirms: Fashion's Hottest Sneaker Is No Longer the Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
+
+It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
+
+*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
+
+
 ## Austin Butler
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
@@ -1383,6 +1572,15 @@ When you produce as many collaborations as Ronnie Fieg and his label Kith do, so
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Tue, 23 Jul 2024 16:02:45 GMT*
+
+
+## Austin Butler
+
+## [Data Confirms: Fashion's Hottest Sneaker Is No Longer the Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
+
+It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
+
+*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
 
 
 ## Mark Zuckerberg
@@ -1448,6 +1646,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Tue, 23 Jul 2024 16:02:45 GMT*
 
 
+## Mark Zuckerberg
+
+## [Data Confirms: Fashion's Hottest Sneaker Is No Longer the Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
+
+It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
+
+*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
+
+
 ## Ariana Grande
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
@@ -1509,6 +1716,15 @@ When you produce as many collaborations as Ronnie Fieg and his label Kith do, so
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Tue, 23 Jul 2024 16:02:45 GMT*
+
+
+## Ariana Grande
+
+## [Data Confirms: Fashion's Hottest Sneaker Is No Longer the Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
+
+It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
+
+*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
 
 
 ## Livvy Dunne
@@ -1574,6 +1790,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Tue, 23 Jul 2024 16:02:45 GMT*
 
 
+## Livvy Dunne
+
+## [Data Confirms: Fashion's Hottest Sneaker Is No Longer the Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
+
+It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
+
+*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
+
+
 ## Ali Wong
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
@@ -1635,6 +1860,15 @@ When you produce as many collaborations as Ronnie Fieg and his label Kith do, so
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Tue, 23 Jul 2024 16:02:45 GMT*
+
+
+## Ali Wong
+
+## [Data Confirms: Fashion's Hottest Sneaker Is No Longer the Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
+
+It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
+
+*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
 
 
 ## Lizzo
@@ -1700,6 +1934,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Tue, 23 Jul 2024 16:02:45 GMT*
 
 
+## Lizzo
+
+## [Data Confirms: Fashion's Hottest Sneaker Is No Longer the Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
+
+It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
+
+*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
+
+
 ## Alison Brie
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
@@ -1761,6 +2004,15 @@ When you produce as many collaborations as Ronnie Fieg and his label Kith do, so
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Tue, 23 Jul 2024 16:02:45 GMT*
+
+
+## Alison Brie
+
+## [Data Confirms: Fashion's Hottest Sneaker Is No Longer the Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
+
+It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
+
+*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
 
 
 ## Lil Wayne
@@ -1826,6 +2078,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Tue, 23 Jul 2024 16:02:45 GMT*
 
 
+## Lil Wayne
+
+## [Data Confirms: Fashion's Hottest Sneaker Is No Longer the Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
+
+It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
+
+*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
+
+
 ## Adele
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
@@ -1887,6 +2148,15 @@ When you produce as many collaborations as Ronnie Fieg and his label Kith do, so
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Tue, 23 Jul 2024 16:02:45 GMT*
+
+
+## Adele
+
+## [Data Confirms: Fashion's Hottest Sneaker Is No Longer the Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
+
+It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
+
+*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
 
 
 ## Lindsay Lohan
@@ -1952,6 +2222,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Tue, 23 Jul 2024 16:02:45 GMT*
 
 
+## Lindsay Lohan
+
+## [Data Confirms: Fashion's Hottest Sneaker Is No Longer the Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
+
+It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
+
+*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
+
+
 ## Addison Rae
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
@@ -2013,6 +2292,15 @@ When you produce as many collaborations as Ronnie Fieg and his label Kith do, so
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Tue, 23 Jul 2024 16:02:45 GMT*
+
+
+## Addison Rae
+
+## [Data Confirms: Fashion's Hottest Sneaker Is No Longer the Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
+
+It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
+
+*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
 
 
 ## Latto
@@ -2078,6 +2366,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Tue, 23 Jul 2024 16:02:45 GMT*
 
 
+## Latto
+
+## [Data Confirms: Fashion's Hottest Sneaker Is No Longer the Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
+
+It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
+
+*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
+
+
 ## Aaron Paul
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
@@ -2139,6 +2436,15 @@ When you produce as many collaborations as Ronnie Fieg and his label Kith do, so
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Tue, 23 Jul 2024 16:02:45 GMT*
+
+
+## Aaron Paul
+
+## [Data Confirms: Fashion's Hottest Sneaker Is No Longer the Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
+
+It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
+
+*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
 
 
 ## LeBron James
@@ -2204,6 +2510,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Tue, 23 Jul 2024 16:02:45 GMT*
 
 
+## LeBron James
+
+## [Data Confirms: Fashion's Hottest Sneaker Is No Longer the Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
+
+It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
+
+*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
+
+
 ## 50 Cent
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
@@ -2265,6 +2580,15 @@ When you produce as many collaborations as Ronnie Fieg and his label Kith do, so
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Tue, 23 Jul 2024 16:02:45 GMT*
+
+
+## 50 Cent
+
+## [Data Confirms: Fashion's Hottest Sneaker Is No Longer the Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
+
+It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
+
+*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
 
 
 ## Kesha
@@ -2330,6 +2654,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Tue, 23 Jul 2024 16:02:45 GMT*
 
 
+## Kesha
+
+## [Data Confirms: Fashion's Hottest Sneaker Is No Longer the Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
+
+It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
+
+*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
+
+
 ## 21 Savage
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
@@ -2391,6 +2724,15 @@ When you produce as many collaborations as Ronnie Fieg and his label Kith do, so
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Tue, 23 Jul 2024 16:02:45 GMT*
+
+
+## 21 Savage
+
+## [Data Confirms: Fashion's Hottest Sneaker Is No Longer the Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
+
+It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
+
+*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
 
 
 ## Larry David
@@ -2456,6 +2798,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Tue, 23 Jul 2024 16:02:45 GMT*
 
 
+## Larry David
+
+## [Data Confirms: Fashion's Hottest Sneaker Is No Longer the Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
+
+It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
+
+*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
+
+
 ## Seth Rogan
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
@@ -2517,6 +2868,15 @@ When you produce as many collaborations as Ronnie Fieg and his label Kith do, so
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Tue, 23 Jul 2024 16:02:45 GMT*
+
+
+## Seth Rogan
+
+## [Data Confirms: Fashion's Hottest Sneaker Is No Longer the Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
+
+It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
+
+*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
 
 
 ## Simone Biles
@@ -2582,6 +2942,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Tue, 23 Jul 2024 16:02:45 GMT*
 
 
+## Simone Biles
+
+## [Data Confirms: Fashion's Hottest Sneaker Is No Longer the Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
+
+It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
+
+*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
+
+
 ## Pete Davidson
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
@@ -2643,6 +3012,15 @@ When you produce as many collaborations as Ronnie Fieg and his label Kith do, so
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Tue, 23 Jul 2024 16:02:45 GMT*
+
+
+## Pete Davidson
+
+## [Data Confirms: Fashion's Hottest Sneaker Is No Longer the Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
+
+It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
+
+*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
 
 
 ## Prince Harry
@@ -2708,6 +3086,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Tue, 23 Jul 2024 16:02:45 GMT*
 
 
+## Prince Harry
+
+## [Data Confirms: Fashion's Hottest Sneaker Is No Longer the Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
+
+It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
+
+*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
+
+
 ## Princess of Wales
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
@@ -2769,6 +3156,15 @@ When you produce as many collaborations as Ronnie Fieg and his label Kith do, so
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Tue, 23 Jul 2024 16:02:45 GMT*
+
+
+## Princess of Wales
+
+## [Data Confirms: Fashion's Hottest Sneaker Is No Longer the Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
+
+It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
+
+*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
 
 
 ## Rachel McAdams
@@ -2834,6 +3230,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Tue, 23 Jul 2024 16:02:45 GMT*
 
 
+## Rachel McAdams
+
+## [Data Confirms: Fashion's Hottest Sneaker Is No Longer the Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
+
+It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
+
+*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
+
+
 ## Reneé Rapp
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
@@ -2895,6 +3300,15 @@ When you produce as many collaborations as Ronnie Fieg and his label Kith do, so
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Tue, 23 Jul 2024 16:02:45 GMT*
+
+
+## Reneé Rapp
+
+## [Data Confirms: Fashion's Hottest Sneaker Is No Longer the Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
+
+It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
+
+*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
 
 
 ## Rick Ross
@@ -2960,6 +3374,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Tue, 23 Jul 2024 16:02:45 GMT*
 
 
+## Rick Ross
+
+## [Data Confirms: Fashion's Hottest Sneaker Is No Longer the Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
+
+It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
+
+*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
+
+
 ## Sam Ashgari
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
@@ -3021,6 +3444,15 @@ When you produce as many collaborations as Ronnie Fieg and his label Kith do, so
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Tue, 23 Jul 2024 16:02:45 GMT*
+
+
+## Sam Ashgari
+
+## [Data Confirms: Fashion's Hottest Sneaker Is No Longer the Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
+
+It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
+
+*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
 
 
 ## Sandra Oh
@@ -3086,6 +3518,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Tue, 23 Jul 2024 16:02:45 GMT*
 
 
+## Sandra Oh
+
+## [Data Confirms: Fashion's Hottest Sneaker Is No Longer the Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
+
+It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
+
+*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
+
+
 ## Donald Trump
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
@@ -3147,6 +3588,15 @@ When you produce as many collaborations as Ronnie Fieg and his label Kith do, so
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Tue, 23 Jul 2024 16:02:45 GMT*
+
+
+## Donald Trump
+
+## [Data Confirms: Fashion's Hottest Sneaker Is No Longer the Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
+
+It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
+
+*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
 
 
 ## Diddy
@@ -3212,6 +3662,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Tue, 23 Jul 2024 16:02:45 GMT*
 
 
+## Diddy
+
+## [Data Confirms: Fashion's Hottest Sneaker Is No Longer the Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
+
+It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
+
+*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
+
+
 ## City Girls
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
@@ -3273,6 +3732,15 @@ When you produce as many collaborations as Ronnie Fieg and his label Kith do, so
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Tue, 23 Jul 2024 16:02:45 GMT*
+
+
+## City Girls
+
+## [Data Confirms: Fashion's Hottest Sneaker Is No Longer the Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
+
+It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
+
+*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
 
 
 ## Chloe Bailey
@@ -3338,6 +3806,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Tue, 23 Jul 2024 16:02:45 GMT*
 
 
+## Chloe Bailey
+
+## [Data Confirms: Fashion's Hottest Sneaker Is No Longer the Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
+
+It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
+
+*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
+
+
 ## Charli D Amelio
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
@@ -3399,6 +3876,15 @@ When you produce as many collaborations as Ronnie Fieg and his label Kith do, so
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Tue, 23 Jul 2024 16:02:45 GMT*
+
+
+## Charli D Amelio
+
+## [Data Confirms: Fashion's Hottest Sneaker Is No Longer the Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
+
+It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
+
+*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
 
 
 ## Cardi B
@@ -3464,6 +3950,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Tue, 23 Jul 2024 16:02:45 GMT*
 
 
+## Cardi B
+
+## [Data Confirms: Fashion's Hottest Sneaker Is No Longer the Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
+
+It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
+
+*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
+
+
 ## Bryan Cranston
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
@@ -3525,6 +4020,15 @@ When you produce as many collaborations as Ronnie Fieg and his label Kith do, so
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Tue, 23 Jul 2024 16:02:45 GMT*
+
+
+## Bryan Cranston
+
+## [Data Confirms: Fashion's Hottest Sneaker Is No Longer the Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
+
+It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
+
+*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
 
 
 ## Brielle Biermann
@@ -3590,6 +4094,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Tue, 23 Jul 2024 16:02:45 GMT*
 
 
+## Brielle Biermann
+
+## [Data Confirms: Fashion's Hottest Sneaker Is No Longer the Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
+
+It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
+
+*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
+
+
 ## Dua Lipa
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
@@ -3651,6 +4164,15 @@ When you produce as many collaborations as Ronnie Fieg and his label Kith do, so
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Tue, 23 Jul 2024 16:02:45 GMT*
+
+
+## Dua Lipa
+
+## [Data Confirms: Fashion's Hottest Sneaker Is No Longer the Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
+
+It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
+
+*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
 
 
 ## Drake
@@ -3716,6 +4238,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Tue, 23 Jul 2024 16:02:45 GMT*
 
 
+## Drake
+
+## [Data Confirms: Fashion's Hottest Sneaker Is No Longer the Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
+
+It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
+
+*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
+
+
 ## Jenner
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
@@ -3777,6 +4308,15 @@ When you produce as many collaborations as Ronnie Fieg and his label Kith do, so
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Tue, 23 Jul 2024 16:02:45 GMT*
+
+
+## Jenner
+
+## [Data Confirms: Fashion's Hottest Sneaker Is No Longer the Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
+
+It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
+
+*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
 
 
 ## J. Cole
@@ -3842,6 +4382,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Tue, 23 Jul 2024 16:02:45 GMT*
 
 
+## J. Cole
+
+## [Data Confirms: Fashion's Hottest Sneaker Is No Longer the Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
+
+It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
+
+*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
+
+
 ## Jerrod Carmichael
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
@@ -3903,6 +4452,15 @@ When you produce as many collaborations as Ronnie Fieg and his label Kith do, so
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Tue, 23 Jul 2024 16:02:45 GMT*
+
+
+## Jerrod Carmichael
+
+## [Data Confirms: Fashion's Hottest Sneaker Is No Longer the Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
+
+It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
+
+*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
 
 
 ## Jennifer Lawrence
@@ -3968,6 +4526,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Tue, 23 Jul 2024 16:02:45 GMT*
 
 
+## Jennifer Lawrence
+
+## [Data Confirms: Fashion's Hottest Sneaker Is No Longer the Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
+
+It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
+
+*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
+
+
 ## Joe Biden
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
@@ -4029,6 +4596,15 @@ When you produce as many collaborations as Ronnie Fieg and his label Kith do, so
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Tue, 23 Jul 2024 16:02:45 GMT*
+
+
+## Joe Biden
+
+## [Data Confirms: Fashion's Hottest Sneaker Is No Longer the Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
+
+It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
+
+*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
 
 
 ## J.K. Simmons
@@ -4094,6 +4670,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Tue, 23 Jul 2024 16:02:45 GMT*
 
 
+## J.K. Simmons
+
+## [Data Confirms: Fashion's Hottest Sneaker Is No Longer the Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
+
+It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
+
+*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
+
+
 ## Kamala Harris
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
@@ -4155,6 +4740,15 @@ When you produce as many collaborations as Ronnie Fieg and his label Kith do, so
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Tue, 23 Jul 2024 16:02:45 GMT*
+
+
+## Kamala Harris
+
+## [Data Confirms: Fashion's Hottest Sneaker Is No Longer the Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
+
+It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
+
+*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
 
 
 ## John C Reilly
@@ -4220,6 +4814,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Tue, 23 Jul 2024 16:02:45 GMT*
 
 
+## John C Reilly
+
+## [Data Confirms: Fashion's Hottest Sneaker Is No Longer the Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
+
+It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
+
+*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
+
+
 ## Kardashian
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
@@ -4281,6 +4884,15 @@ When you produce as many collaborations as Ronnie Fieg and his label Kith do, so
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Tue, 23 Jul 2024 16:02:45 GMT*
+
+
+## Kardashian
+
+## [Data Confirms: Fashion's Hottest Sneaker Is No Longer the Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
+
+It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
+
+*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
 
 
 ## Kanye
@@ -4346,6 +4958,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Tue, 23 Jul 2024 16:02:45 GMT*
 
 
+## Kanye
+
+## [Data Confirms: Fashion's Hottest Sneaker Is No Longer the Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
+
+It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
+
+*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
+
+
 ## Zendaya
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
@@ -4407,6 +5028,15 @@ When you produce as many collaborations as Ronnie Fieg and his label Kith do, so
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Tue, 23 Jul 2024 16:02:45 GMT*
+
+
+## Zendaya
+
+## [Data Confirms: Fashion's Hottest Sneaker Is No Longer the Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
+
+It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
+
+*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
 
 
 ## Will Ferrell
@@ -4472,6 +5102,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Tue, 23 Jul 2024 16:02:45 GMT*
 
 
+## Will Ferrell
+
+## [Data Confirms: Fashion's Hottest Sneaker Is No Longer the Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
+
+It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
+
+*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
+
+
 ## Zazie Beetz
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
@@ -4533,6 +5172,15 @@ When you produce as many collaborations as Ronnie Fieg and his label Kith do, so
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Tue, 23 Jul 2024 16:02:45 GMT*
+
+
+## Zazie Beetz
+
+## [Data Confirms: Fashion's Hottest Sneaker Is No Longer the Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
+
+It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
+
+*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
 
 
 ## Bob Odenkirk
@@ -4598,6 +5246,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Tue, 23 Jul 2024 16:02:45 GMT*
 
 
+## Bob Odenkirk
+
+## [Data Confirms: Fashion's Hottest Sneaker Is No Longer the Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
+
+It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
+
+*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
+
+
 ## Brad Pitt
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
@@ -4659,6 +5316,15 @@ When you produce as many collaborations as Ronnie Fieg and his label Kith do, so
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Tue, 23 Jul 2024 16:02:45 GMT*
+
+
+## Brad Pitt
+
+## [Data Confirms: Fashion's Hottest Sneaker Is No Longer the Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
+
+It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
+
+*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
 
 
 ## Beyoncé
@@ -4724,6 +5390,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Tue, 23 Jul 2024 16:02:45 GMT*
 
 
+## Beyoncé
+
+## [Data Confirms: Fashion's Hottest Sneaker Is No Longer the Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
+
+It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
+
+*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
+
+
 ## Bia
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
@@ -4785,6 +5460,15 @@ When you produce as many collaborations as Ronnie Fieg and his label Kith do, so
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Tue, 23 Jul 2024 16:02:45 GMT*
+
+
+## Bia
+
+## [Data Confirms: Fashion's Hottest Sneaker Is No Longer the Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
+
+It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
+
+*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
 
 
 ## Avantika
@@ -4850,6 +5534,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Tue, 23 Jul 2024 16:02:45 GMT*
 
 
+## Avantika
+
+## [Data Confirms: Fashion's Hottest Sneaker Is No Longer the Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
+
+It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
+
+*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
+
+
 ## Bernie Sanders
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
@@ -4911,6 +5604,15 @@ When you produce as many collaborations as Ronnie Fieg and his label Kith do, so
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Tue, 23 Jul 2024 16:02:45 GMT*
+
+
+## Bernie Sanders
+
+## [Data Confirms: Fashion's Hottest Sneaker Is No Longer the Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
+
+It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
+
+*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
 
 
 ## Big Sean
@@ -4976,6 +5678,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Tue, 23 Jul 2024 16:02:45 GMT*
 
 
+## Big Sean
+
+## [Data Confirms: Fashion's Hottest Sneaker Is No Longer the Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
+
+It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
+
+*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
+
+
 ## BlockBoy JB
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
@@ -5037,6 +5748,15 @@ When you produce as many collaborations as Ronnie Fieg and his label Kith do, so
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Tue, 23 Jul 2024 16:02:45 GMT*
+
+
+## BlockBoy JB
+
+## [Data Confirms: Fashion's Hottest Sneaker Is No Longer the Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
+
+It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
+
+*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
 
 
 ## Biden
@@ -5102,6 +5822,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Tue, 23 Jul 2024 16:02:45 GMT*
 
 
+## Biden
+
+## [Data Confirms: Fashion's Hottest Sneaker Is No Longer the Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
+
+It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
+
+*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
+
+
 ## Bieber
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
@@ -5163,6 +5892,15 @@ When you produce as many collaborations as Ronnie Fieg and his label Kith do, so
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Tue, 23 Jul 2024 16:02:45 GMT*
+
+
+## Bieber
+
+## [Data Confirms: Fashion's Hottest Sneaker Is No Longer the Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
+
+It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
+
+*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
 
 
 ## Paulina Porizkov
@@ -5228,6 +5966,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Tue, 23 Jul 2024 16:02:45 GMT*
 
 
+## Paulina Porizkov
+
+## [Data Confirms: Fashion's Hottest Sneaker Is No Longer the Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
+
+It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
+
+*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
+
+
 ## Paris Hilton
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
@@ -5289,6 +6036,15 @@ When you produce as many collaborations as Ronnie Fieg and his label Kith do, so
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Tue, 23 Jul 2024 16:02:45 GMT*
+
+
+## Paris Hilton
+
+## [Data Confirms: Fashion's Hottest Sneaker Is No Longer the Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
+
+It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
+
+*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
 
 
 ## Metro Boomin
@@ -5354,6 +6110,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Tue, 23 Jul 2024 16:02:45 GMT*
 
 
+## Metro Boomin
+
+## [Data Confirms: Fashion's Hottest Sneaker Is No Longer the Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
+
+It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
+
+*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
+
+
 ## Meghan Markle
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
@@ -5415,6 +6180,15 @@ When you produce as many collaborations as Ronnie Fieg and his label Kith do, so
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Tue, 23 Jul 2024 16:02:45 GMT*
+
+
+## Meghan Markle
+
+## [Data Confirms: Fashion's Hottest Sneaker Is No Longer the Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
+
+It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
+
+*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
 
 
 ## Megan Thee Stallion
@@ -5480,6 +6254,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Tue, 23 Jul 2024 16:02:45 GMT*
 
 
+## Megan Thee Stallion
+
+## [Data Confirms: Fashion's Hottest Sneaker Is No Longer the Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
+
+It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
+
+*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
+
+
 ## Maya Rudolph
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
@@ -5543,6 +6326,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Tue, 23 Jul 2024 16:02:45 GMT*
 
 
+## Maya Rudolph
+
+## [Data Confirms: Fashion's Hottest Sneaker Is No Longer the Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
+
+It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
+
+*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
+
+
 ## Olivia Rodrigo
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
@@ -5606,6 +6398,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Tue, 23 Jul 2024 16:02:45 GMT*
 
 
+## Olivia Rodrigo
+
+## [Data Confirms: Fashion's Hottest Sneaker Is No Longer the Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
+
+It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
+
+*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
+
+
 ## Obama
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
@@ -5669,6 +6470,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Tue, 23 Jul 2024 16:02:45 GMT*
 
 
+## Obama
+
+## [Data Confirms: Fashion's Hottest Sneaker Is No Longer the Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
+
+It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
+
+*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
+
+
 ## Nicki Minaj
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
@@ -5732,6 +6542,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Tue, 23 Jul 2024 16:02:45 GMT*
 
 
+## Nicki Minaj
+
+## [Data Confirms: Fashion's Hottest Sneaker Is No Longer the Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
+
+It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
+
+*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
+
+
 ## MrBeast
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
@@ -5793,5 +6612,14 @@ When you produce as many collaborations as Ronnie Fieg and his label Kith do, so
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Tue, 23 Jul 2024 16:02:45 GMT*
+
+
+## MrBeast
+
+## [Data Confirms: Fashion's Hottest Sneaker Is No Longer the Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
+
+It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
+
+*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
 
 
