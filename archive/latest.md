@@ -1,15 +1,6 @@
 # Latest Stories
 ## Tim Cook
 
-## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
-
-It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
-
-*Published on: Tue, 23 Jul 2024 13:00:00 GMT*
-
-
-## Tim Cook
-
 ## [From ASICS to Converse, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-5/)
 
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
@@ -71,13 +62,13 @@ Martine Rose’s fashion shows always have a deep community focus.For example, w
 *Published on: Wed, 24 Jul 2024 10:51:41 GMT*
 
 
-## Taylor Swift
+## Tim Cook
 
-## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
+## [New Hair Education Laws Are Tackling the 'Texture Gap'](https://www.highsnobiety.com/p/textured-hair-education-law/)
 
-It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
+On July 1, a new Connecticut law requiring that cosmetology and barber schools include textured hair in their curriculum went into effect.The mandate is a step…
 
-*Published on: Tue, 23 Jul 2024 13:00:00 GMT*
+*Published on: Wed, 24 Jul 2024 15:53:27 GMT*
 
 
 ## Taylor Swift
@@ -135,6 +126,78 @@ When you produce as many collaborations as Ronnie Fieg and his label Kith do, so
 
 
 ## Taylor Swift
+
+## [Martine Rose Is Putting Her Community First](https://www.highsnobiety.com/p/martine-rose-fw24-lookbook/)
+
+Martine Rose’s fashion shows always have a deep community focus.For example, when the designer took over a street in Chalk Farm, London, for one of her early s…
+
+*Published on: Wed, 24 Jul 2024 10:51:41 GMT*
+
+
+## Taylor Swift
+
+## [New Hair Education Laws Are Tackling the 'Texture Gap'](https://www.highsnobiety.com/p/textured-hair-education-law/)
+
+On July 1, a new Connecticut law requiring that cosmetology and barber schools include textured hair in their curriculum went into effect.The mandate is a step…
+
+*Published on: Wed, 24 Jul 2024 15:53:27 GMT*
+
+
+## Tom Brady
+
+## [From ASICS to Converse, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-5/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Tue, 23 Jul 2024 16:02:45 GMT*
+
+
+## Tom Brady
+
+## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
+
+Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
+
+*Published on: Wed, 24 Jul 2024 06:30:42 GMT*
+
+
+## Tom Brady
+
+## [Data Confirms: Fashion's Hottest Sneaker Is No Longer adidas' Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
+
+It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
+
+*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
+
+
+## Tom Brady
+
+## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
+
+Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
+
+*Published on: Wed, 24 Jul 2024 08:24:23 GMT*
+
+
+## Tom Brady
+
+## [Clarks  GOLF WANG Make Their Love Official](https://www.highsnobiety.com/p/clarks-golf-wang-release-date/)
+
+Tyler, The Creator has made no secret of his love for Clarks shoes. If you happen to peer down at the multi-talented musician’s feet, there’s a good chance he’…
+
+*Published on: Wed, 24 Jul 2024 09:10:59 GMT*
+
+
+## Tom Brady
+
+## [Kith's Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
+
+When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
+
+*Published on: Wed, 24 Jul 2024 09:32:26 GMT*
+
+
+## Tom Brady
 
 ## [Martine Rose Is Putting Her Community First](https://www.highsnobiety.com/p/martine-rose-fw24-lookbook/)
 
@@ -145,83 +208,11 @@ Martine Rose’s fashion shows always have a deep community focus.For example, w
 
 ## Tom Brady
 
-## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
+## [New Hair Education Laws Are Tackling the 'Texture Gap'](https://www.highsnobiety.com/p/textured-hair-education-law/)
 
-It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
+On July 1, a new Connecticut law requiring that cosmetology and barber schools include textured hair in their curriculum went into effect.The mandate is a step…
 
-*Published on: Tue, 23 Jul 2024 13:00:00 GMT*
-
-
-## Tom Brady
-
-## [From ASICS to Converse, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-5/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Tue, 23 Jul 2024 16:02:45 GMT*
-
-
-## Tom Brady
-
-## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
-
-Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
-
-*Published on: Wed, 24 Jul 2024 06:30:42 GMT*
-
-
-## Tom Brady
-
-## [Data Confirms: Fashion's Hottest Sneaker Is No Longer adidas' Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
-
-It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
-
-*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
-
-
-## Tom Brady
-
-## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
-
-Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
-
-*Published on: Wed, 24 Jul 2024 08:24:23 GMT*
-
-
-## Tom Brady
-
-## [Clarks  GOLF WANG Make Their Love Official](https://www.highsnobiety.com/p/clarks-golf-wang-release-date/)
-
-Tyler, The Creator has made no secret of his love for Clarks shoes. If you happen to peer down at the multi-talented musician’s feet, there’s a good chance he’…
-
-*Published on: Wed, 24 Jul 2024 09:10:59 GMT*
-
-
-## Tom Brady
-
-## [Kith's Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
-
-When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
-
-*Published on: Wed, 24 Jul 2024 09:32:26 GMT*
-
-
-## Tom Brady
-
-## [Martine Rose Is Putting Her Community First](https://www.highsnobiety.com/p/martine-rose-fw24-lookbook/)
-
-Martine Rose’s fashion shows always have a deep community focus.For example, when the designer took over a street in Chalk Farm, London, for one of her early s…
-
-*Published on: Wed, 24 Jul 2024 10:51:41 GMT*
-
-
-## Tina Fey
-
-## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
-
-It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
-
-*Published on: Tue, 23 Jul 2024 13:00:00 GMT*
+*Published on: Wed, 24 Jul 2024 15:53:27 GMT*
 
 
 ## Tina Fey
@@ -287,13 +278,13 @@ Martine Rose’s fashion shows always have a deep community focus.For example, w
 *Published on: Wed, 24 Jul 2024 10:51:41 GMT*
 
 
-## Steven Yuen
+## Tina Fey
 
-## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
+## [New Hair Education Laws Are Tackling the 'Texture Gap'](https://www.highsnobiety.com/p/textured-hair-education-law/)
 
-It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
+On July 1, a new Connecticut law requiring that cosmetology and barber schools include textured hair in their curriculum went into effect.The mandate is a step…
 
-*Published on: Tue, 23 Jul 2024 13:00:00 GMT*
+*Published on: Wed, 24 Jul 2024 15:53:27 GMT*
 
 
 ## Steven Yuen
@@ -351,6 +342,78 @@ When you produce as many collaborations as Ronnie Fieg and his label Kith do, so
 
 
 ## Steven Yuen
+
+## [Martine Rose Is Putting Her Community First](https://www.highsnobiety.com/p/martine-rose-fw24-lookbook/)
+
+Martine Rose’s fashion shows always have a deep community focus.For example, when the designer took over a street in Chalk Farm, London, for one of her early s…
+
+*Published on: Wed, 24 Jul 2024 10:51:41 GMT*
+
+
+## Steven Yuen
+
+## [New Hair Education Laws Are Tackling the 'Texture Gap'](https://www.highsnobiety.com/p/textured-hair-education-law/)
+
+On July 1, a new Connecticut law requiring that cosmetology and barber schools include textured hair in their curriculum went into effect.The mandate is a step…
+
+*Published on: Wed, 24 Jul 2024 15:53:27 GMT*
+
+
+## Sommer Ray
+
+## [From ASICS to Converse, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-5/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Tue, 23 Jul 2024 16:02:45 GMT*
+
+
+## Sommer Ray
+
+## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
+
+Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
+
+*Published on: Wed, 24 Jul 2024 06:30:42 GMT*
+
+
+## Sommer Ray
+
+## [Data Confirms: Fashion's Hottest Sneaker Is No Longer adidas' Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
+
+It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
+
+*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
+
+
+## Sommer Ray
+
+## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
+
+Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
+
+*Published on: Wed, 24 Jul 2024 08:24:23 GMT*
+
+
+## Sommer Ray
+
+## [Clarks  GOLF WANG Make Their Love Official](https://www.highsnobiety.com/p/clarks-golf-wang-release-date/)
+
+Tyler, The Creator has made no secret of his love for Clarks shoes. If you happen to peer down at the multi-talented musician’s feet, there’s a good chance he’…
+
+*Published on: Wed, 24 Jul 2024 09:10:59 GMT*
+
+
+## Sommer Ray
+
+## [Kith's Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
+
+When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
+
+*Published on: Wed, 24 Jul 2024 09:32:26 GMT*
+
+
+## Sommer Ray
 
 ## [Martine Rose Is Putting Her Community First](https://www.highsnobiety.com/p/martine-rose-fw24-lookbook/)
 
@@ -361,83 +424,11 @@ Martine Rose’s fashion shows always have a deep community focus.For example, w
 
 ## Sommer Ray
 
-## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
+## [New Hair Education Laws Are Tackling the 'Texture Gap'](https://www.highsnobiety.com/p/textured-hair-education-law/)
 
-It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
+On July 1, a new Connecticut law requiring that cosmetology and barber schools include textured hair in their curriculum went into effect.The mandate is a step…
 
-*Published on: Tue, 23 Jul 2024 13:00:00 GMT*
-
-
-## Sommer Ray
-
-## [From ASICS to Converse, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-5/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Tue, 23 Jul 2024 16:02:45 GMT*
-
-
-## Sommer Ray
-
-## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
-
-Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
-
-*Published on: Wed, 24 Jul 2024 06:30:42 GMT*
-
-
-## Sommer Ray
-
-## [Data Confirms: Fashion's Hottest Sneaker Is No Longer adidas' Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
-
-It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
-
-*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
-
-
-## Sommer Ray
-
-## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
-
-Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
-
-*Published on: Wed, 24 Jul 2024 08:24:23 GMT*
-
-
-## Sommer Ray
-
-## [Clarks  GOLF WANG Make Their Love Official](https://www.highsnobiety.com/p/clarks-golf-wang-release-date/)
-
-Tyler, The Creator has made no secret of his love for Clarks shoes. If you happen to peer down at the multi-talented musician’s feet, there’s a good chance he’…
-
-*Published on: Wed, 24 Jul 2024 09:10:59 GMT*
-
-
-## Sommer Ray
-
-## [Kith's Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
-
-When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
-
-*Published on: Wed, 24 Jul 2024 09:32:26 GMT*
-
-
-## Sommer Ray
-
-## [Martine Rose Is Putting Her Community First](https://www.highsnobiety.com/p/martine-rose-fw24-lookbook/)
-
-Martine Rose’s fashion shows always have a deep community focus.For example, when the designer took over a street in Chalk Farm, London, for one of her early s…
-
-*Published on: Wed, 24 Jul 2024 10:51:41 GMT*
-
-
-## Sza
-
-## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
-
-It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
-
-*Published on: Tue, 23 Jul 2024 13:00:00 GMT*
+*Published on: Wed, 24 Jul 2024 15:53:27 GMT*
 
 
 ## Sza
@@ -503,13 +494,13 @@ Martine Rose’s fashion shows always have a deep community focus.For example, w
 *Published on: Wed, 24 Jul 2024 10:51:41 GMT*
 
 
-## Sydney Sweeney
+## Sza
 
-## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
+## [New Hair Education Laws Are Tackling the 'Texture Gap'](https://www.highsnobiety.com/p/textured-hair-education-law/)
 
-It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
+On July 1, a new Connecticut law requiring that cosmetology and barber schools include textured hair in their curriculum went into effect.The mandate is a step…
 
-*Published on: Tue, 23 Jul 2024 13:00:00 GMT*
+*Published on: Wed, 24 Jul 2024 15:53:27 GMT*
 
 
 ## Sydney Sweeney
@@ -567,6 +558,78 @@ When you produce as many collaborations as Ronnie Fieg and his label Kith do, so
 
 
 ## Sydney Sweeney
+
+## [Martine Rose Is Putting Her Community First](https://www.highsnobiety.com/p/martine-rose-fw24-lookbook/)
+
+Martine Rose’s fashion shows always have a deep community focus.For example, when the designer took over a street in Chalk Farm, London, for one of her early s…
+
+*Published on: Wed, 24 Jul 2024 10:51:41 GMT*
+
+
+## Sydney Sweeney
+
+## [New Hair Education Laws Are Tackling the 'Texture Gap'](https://www.highsnobiety.com/p/textured-hair-education-law/)
+
+On July 1, a new Connecticut law requiring that cosmetology and barber schools include textured hair in their curriculum went into effect.The mandate is a step…
+
+*Published on: Wed, 24 Jul 2024 15:53:27 GMT*
+
+
+## Walton Goggins
+
+## [From ASICS to Converse, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-5/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Tue, 23 Jul 2024 16:02:45 GMT*
+
+
+## Walton Goggins
+
+## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
+
+Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
+
+*Published on: Wed, 24 Jul 2024 06:30:42 GMT*
+
+
+## Walton Goggins
+
+## [Data Confirms: Fashion's Hottest Sneaker Is No Longer adidas' Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
+
+It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
+
+*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
+
+
+## Walton Goggins
+
+## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
+
+Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
+
+*Published on: Wed, 24 Jul 2024 08:24:23 GMT*
+
+
+## Walton Goggins
+
+## [Clarks  GOLF WANG Make Their Love Official](https://www.highsnobiety.com/p/clarks-golf-wang-release-date/)
+
+Tyler, The Creator has made no secret of his love for Clarks shoes. If you happen to peer down at the multi-talented musician’s feet, there’s a good chance he’…
+
+*Published on: Wed, 24 Jul 2024 09:10:59 GMT*
+
+
+## Walton Goggins
+
+## [Kith's Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
+
+When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
+
+*Published on: Wed, 24 Jul 2024 09:32:26 GMT*
+
+
+## Walton Goggins
 
 ## [Martine Rose Is Putting Her Community First](https://www.highsnobiety.com/p/martine-rose-fw24-lookbook/)
 
@@ -577,83 +640,11 @@ Martine Rose’s fashion shows always have a deep community focus.For example, w
 
 ## Walton Goggins
 
-## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
+## [New Hair Education Laws Are Tackling the 'Texture Gap'](https://www.highsnobiety.com/p/textured-hair-education-law/)
 
-It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
+On July 1, a new Connecticut law requiring that cosmetology and barber schools include textured hair in their curriculum went into effect.The mandate is a step…
 
-*Published on: Tue, 23 Jul 2024 13:00:00 GMT*
-
-
-## Walton Goggins
-
-## [From ASICS to Converse, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-5/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Tue, 23 Jul 2024 16:02:45 GMT*
-
-
-## Walton Goggins
-
-## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
-
-Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
-
-*Published on: Wed, 24 Jul 2024 06:30:42 GMT*
-
-
-## Walton Goggins
-
-## [Data Confirms: Fashion's Hottest Sneaker Is No Longer adidas' Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
-
-It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
-
-*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
-
-
-## Walton Goggins
-
-## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
-
-Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
-
-*Published on: Wed, 24 Jul 2024 08:24:23 GMT*
-
-
-## Walton Goggins
-
-## [Clarks  GOLF WANG Make Their Love Official](https://www.highsnobiety.com/p/clarks-golf-wang-release-date/)
-
-Tyler, The Creator has made no secret of his love for Clarks shoes. If you happen to peer down at the multi-talented musician’s feet, there’s a good chance he’…
-
-*Published on: Wed, 24 Jul 2024 09:10:59 GMT*
-
-
-## Walton Goggins
-
-## [Kith's Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
-
-When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
-
-*Published on: Wed, 24 Jul 2024 09:32:26 GMT*
-
-
-## Walton Goggins
-
-## [Martine Rose Is Putting Her Community First](https://www.highsnobiety.com/p/martine-rose-fw24-lookbook/)
-
-Martine Rose’s fashion shows always have a deep community focus.For example, when the designer took over a street in Chalk Farm, London, for one of her early s…
-
-*Published on: Wed, 24 Jul 2024 10:51:41 GMT*
-
-
-## Tom Holland
-
-## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
-
-It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
-
-*Published on: Tue, 23 Jul 2024 13:00:00 GMT*
+*Published on: Wed, 24 Jul 2024 15:53:27 GMT*
 
 
 ## Tom Holland
@@ -719,13 +710,13 @@ Martine Rose’s fashion shows always have a deep community focus.For example, w
 *Published on: Wed, 24 Jul 2024 10:51:41 GMT*
 
 
-## Gucci Mane
+## Tom Holland
 
-## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
+## [New Hair Education Laws Are Tackling the 'Texture Gap'](https://www.highsnobiety.com/p/textured-hair-education-law/)
 
-It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
+On July 1, a new Connecticut law requiring that cosmetology and barber schools include textured hair in their curriculum went into effect.The mandate is a step…
 
-*Published on: Tue, 23 Jul 2024 13:00:00 GMT*
+*Published on: Wed, 24 Jul 2024 15:53:27 GMT*
 
 
 ## Gucci Mane
@@ -783,6 +774,78 @@ When you produce as many collaborations as Ronnie Fieg and his label Kith do, so
 
 
 ## Gucci Mane
+
+## [Martine Rose Is Putting Her Community First](https://www.highsnobiety.com/p/martine-rose-fw24-lookbook/)
+
+Martine Rose’s fashion shows always have a deep community focus.For example, when the designer took over a street in Chalk Farm, London, for one of her early s…
+
+*Published on: Wed, 24 Jul 2024 10:51:41 GMT*
+
+
+## Gucci Mane
+
+## [New Hair Education Laws Are Tackling the 'Texture Gap'](https://www.highsnobiety.com/p/textured-hair-education-law/)
+
+On July 1, a new Connecticut law requiring that cosmetology and barber schools include textured hair in their curriculum went into effect.The mandate is a step…
+
+*Published on: Wed, 24 Jul 2024 15:53:27 GMT*
+
+
+## Harry Styles
+
+## [From ASICS to Converse, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-5/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Tue, 23 Jul 2024 16:02:45 GMT*
+
+
+## Harry Styles
+
+## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
+
+Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
+
+*Published on: Wed, 24 Jul 2024 06:30:42 GMT*
+
+
+## Harry Styles
+
+## [Data Confirms: Fashion's Hottest Sneaker Is No Longer adidas' Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
+
+It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
+
+*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
+
+
+## Harry Styles
+
+## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
+
+Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
+
+*Published on: Wed, 24 Jul 2024 08:24:23 GMT*
+
+
+## Harry Styles
+
+## [Clarks  GOLF WANG Make Their Love Official](https://www.highsnobiety.com/p/clarks-golf-wang-release-date/)
+
+Tyler, The Creator has made no secret of his love for Clarks shoes. If you happen to peer down at the multi-talented musician’s feet, there’s a good chance he’…
+
+*Published on: Wed, 24 Jul 2024 09:10:59 GMT*
+
+
+## Harry Styles
+
+## [Kith's Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
+
+When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
+
+*Published on: Wed, 24 Jul 2024 09:32:26 GMT*
+
+
+## Harry Styles
 
 ## [Martine Rose Is Putting Her Community First](https://www.highsnobiety.com/p/martine-rose-fw24-lookbook/)
 
@@ -793,83 +856,11 @@ Martine Rose’s fashion shows always have a deep community focus.For example, w
 
 ## Harry Styles
 
-## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
+## [New Hair Education Laws Are Tackling the 'Texture Gap'](https://www.highsnobiety.com/p/textured-hair-education-law/)
 
-It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
+On July 1, a new Connecticut law requiring that cosmetology and barber schools include textured hair in their curriculum went into effect.The mandate is a step…
 
-*Published on: Tue, 23 Jul 2024 13:00:00 GMT*
-
-
-## Harry Styles
-
-## [From ASICS to Converse, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-5/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Tue, 23 Jul 2024 16:02:45 GMT*
-
-
-## Harry Styles
-
-## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
-
-Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
-
-*Published on: Wed, 24 Jul 2024 06:30:42 GMT*
-
-
-## Harry Styles
-
-## [Data Confirms: Fashion's Hottest Sneaker Is No Longer adidas' Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
-
-It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
-
-*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
-
-
-## Harry Styles
-
-## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
-
-Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
-
-*Published on: Wed, 24 Jul 2024 08:24:23 GMT*
-
-
-## Harry Styles
-
-## [Clarks  GOLF WANG Make Their Love Official](https://www.highsnobiety.com/p/clarks-golf-wang-release-date/)
-
-Tyler, The Creator has made no secret of his love for Clarks shoes. If you happen to peer down at the multi-talented musician’s feet, there’s a good chance he’…
-
-*Published on: Wed, 24 Jul 2024 09:10:59 GMT*
-
-
-## Harry Styles
-
-## [Kith's Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
-
-When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
-
-*Published on: Wed, 24 Jul 2024 09:32:26 GMT*
-
-
-## Harry Styles
-
-## [Martine Rose Is Putting Her Community First](https://www.highsnobiety.com/p/martine-rose-fw24-lookbook/)
-
-Martine Rose’s fashion shows always have a deep community focus.For example, when the designer took over a street in Chalk Farm, London, for one of her early s…
-
-*Published on: Wed, 24 Jul 2024 10:51:41 GMT*
-
-
-## Jake Paul
-
-## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
-
-It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
-
-*Published on: Tue, 23 Jul 2024 13:00:00 GMT*
+*Published on: Wed, 24 Jul 2024 15:53:27 GMT*
 
 
 ## Jake Paul
@@ -935,13 +926,13 @@ Martine Rose’s fashion shows always have a deep community focus.For example, w
 *Published on: Wed, 24 Jul 2024 10:51:41 GMT*
 
 
-## Jameela Jamil
+## Jake Paul
 
-## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
+## [New Hair Education Laws Are Tackling the 'Texture Gap'](https://www.highsnobiety.com/p/textured-hair-education-law/)
 
-It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
+On July 1, a new Connecticut law requiring that cosmetology and barber schools include textured hair in their curriculum went into effect.The mandate is a step…
 
-*Published on: Tue, 23 Jul 2024 13:00:00 GMT*
+*Published on: Wed, 24 Jul 2024 15:53:27 GMT*
 
 
 ## Jameela Jamil
@@ -999,6 +990,78 @@ When you produce as many collaborations as Ronnie Fieg and his label Kith do, so
 
 
 ## Jameela Jamil
+
+## [Martine Rose Is Putting Her Community First](https://www.highsnobiety.com/p/martine-rose-fw24-lookbook/)
+
+Martine Rose’s fashion shows always have a deep community focus.For example, when the designer took over a street in Chalk Farm, London, for one of her early s…
+
+*Published on: Wed, 24 Jul 2024 10:51:41 GMT*
+
+
+## Jameela Jamil
+
+## [New Hair Education Laws Are Tackling the 'Texture Gap'](https://www.highsnobiety.com/p/textured-hair-education-law/)
+
+On July 1, a new Connecticut law requiring that cosmetology and barber schools include textured hair in their curriculum went into effect.The mandate is a step…
+
+*Published on: Wed, 24 Jul 2024 15:53:27 GMT*
+
+
+## Elon Musk
+
+## [From ASICS to Converse, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-5/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Tue, 23 Jul 2024 16:02:45 GMT*
+
+
+## Elon Musk
+
+## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
+
+Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
+
+*Published on: Wed, 24 Jul 2024 06:30:42 GMT*
+
+
+## Elon Musk
+
+## [Data Confirms: Fashion's Hottest Sneaker Is No Longer adidas' Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
+
+It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
+
+*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
+
+
+## Elon Musk
+
+## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
+
+Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
+
+*Published on: Wed, 24 Jul 2024 08:24:23 GMT*
+
+
+## Elon Musk
+
+## [Clarks  GOLF WANG Make Their Love Official](https://www.highsnobiety.com/p/clarks-golf-wang-release-date/)
+
+Tyler, The Creator has made no secret of his love for Clarks shoes. If you happen to peer down at the multi-talented musician’s feet, there’s a good chance he’…
+
+*Published on: Wed, 24 Jul 2024 09:10:59 GMT*
+
+
+## Elon Musk
+
+## [Kith's Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
+
+When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
+
+*Published on: Wed, 24 Jul 2024 09:32:26 GMT*
+
+
+## Elon Musk
 
 ## [Martine Rose Is Putting Her Community First](https://www.highsnobiety.com/p/martine-rose-fw24-lookbook/)
 
@@ -1009,83 +1072,11 @@ Martine Rose’s fashion shows always have a deep community focus.For example, w
 
 ## Elon Musk
 
-## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
+## [New Hair Education Laws Are Tackling the 'Texture Gap'](https://www.highsnobiety.com/p/textured-hair-education-law/)
 
-It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
+On July 1, a new Connecticut law requiring that cosmetology and barber schools include textured hair in their curriculum went into effect.The mandate is a step…
 
-*Published on: Tue, 23 Jul 2024 13:00:00 GMT*
-
-
-## Elon Musk
-
-## [From ASICS to Converse, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-5/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Tue, 23 Jul 2024 16:02:45 GMT*
-
-
-## Elon Musk
-
-## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
-
-Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
-
-*Published on: Wed, 24 Jul 2024 06:30:42 GMT*
-
-
-## Elon Musk
-
-## [Data Confirms: Fashion's Hottest Sneaker Is No Longer adidas' Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
-
-It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
-
-*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
-
-
-## Elon Musk
-
-## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
-
-Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
-
-*Published on: Wed, 24 Jul 2024 08:24:23 GMT*
-
-
-## Elon Musk
-
-## [Clarks  GOLF WANG Make Their Love Official](https://www.highsnobiety.com/p/clarks-golf-wang-release-date/)
-
-Tyler, The Creator has made no secret of his love for Clarks shoes. If you happen to peer down at the multi-talented musician’s feet, there’s a good chance he’…
-
-*Published on: Wed, 24 Jul 2024 09:10:59 GMT*
-
-
-## Elon Musk
-
-## [Kith's Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
-
-When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
-
-*Published on: Wed, 24 Jul 2024 09:32:26 GMT*
-
-
-## Elon Musk
-
-## [Martine Rose Is Putting Her Community First](https://www.highsnobiety.com/p/martine-rose-fw24-lookbook/)
-
-Martine Rose’s fashion shows always have a deep community focus.For example, when the designer took over a street in Chalk Farm, London, for one of her early s…
-
-*Published on: Wed, 24 Jul 2024 10:51:41 GMT*
-
-
-## Gabrielle Union
-
-## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
-
-It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
-
-*Published on: Tue, 23 Jul 2024 13:00:00 GMT*
+*Published on: Wed, 24 Jul 2024 15:53:27 GMT*
 
 
 ## Gabrielle Union
@@ -1151,13 +1142,13 @@ Martine Rose’s fashion shows always have a deep community focus.For example, w
 *Published on: Wed, 24 Jul 2024 10:51:41 GMT*
 
 
-## Giancarlo Esposito
+## Gabrielle Union
 
-## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
+## [New Hair Education Laws Are Tackling the 'Texture Gap'](https://www.highsnobiety.com/p/textured-hair-education-law/)
 
-It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
+On July 1, a new Connecticut law requiring that cosmetology and barber schools include textured hair in their curriculum went into effect.The mandate is a step…
 
-*Published on: Tue, 23 Jul 2024 13:00:00 GMT*
+*Published on: Wed, 24 Jul 2024 15:53:27 GMT*
 
 
 ## Giancarlo Esposito
@@ -1215,6 +1206,78 @@ When you produce as many collaborations as Ronnie Fieg and his label Kith do, so
 
 
 ## Giancarlo Esposito
+
+## [Martine Rose Is Putting Her Community First](https://www.highsnobiety.com/p/martine-rose-fw24-lookbook/)
+
+Martine Rose’s fashion shows always have a deep community focus.For example, when the designer took over a street in Chalk Farm, London, for one of her early s…
+
+*Published on: Wed, 24 Jul 2024 10:51:41 GMT*
+
+
+## Giancarlo Esposito
+
+## [New Hair Education Laws Are Tackling the 'Texture Gap'](https://www.highsnobiety.com/p/textured-hair-education-law/)
+
+On July 1, a new Connecticut law requiring that cosmetology and barber schools include textured hair in their curriculum went into effect.The mandate is a step…
+
+*Published on: Wed, 24 Jul 2024 15:53:27 GMT*
+
+
+## Gillian Jacobs
+
+## [From ASICS to Converse, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-5/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Tue, 23 Jul 2024 16:02:45 GMT*
+
+
+## Gillian Jacobs
+
+## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
+
+Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
+
+*Published on: Wed, 24 Jul 2024 06:30:42 GMT*
+
+
+## Gillian Jacobs
+
+## [Data Confirms: Fashion's Hottest Sneaker Is No Longer adidas' Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
+
+It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
+
+*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
+
+
+## Gillian Jacobs
+
+## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
+
+Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
+
+*Published on: Wed, 24 Jul 2024 08:24:23 GMT*
+
+
+## Gillian Jacobs
+
+## [Clarks  GOLF WANG Make Their Love Official](https://www.highsnobiety.com/p/clarks-golf-wang-release-date/)
+
+Tyler, The Creator has made no secret of his love for Clarks shoes. If you happen to peer down at the multi-talented musician’s feet, there’s a good chance he’…
+
+*Published on: Wed, 24 Jul 2024 09:10:59 GMT*
+
+
+## Gillian Jacobs
+
+## [Kith's Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
+
+When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
+
+*Published on: Wed, 24 Jul 2024 09:32:26 GMT*
+
+
+## Gillian Jacobs
 
 ## [Martine Rose Is Putting Her Community First](https://www.highsnobiety.com/p/martine-rose-fw24-lookbook/)
 
@@ -1225,83 +1288,11 @@ Martine Rose’s fashion shows always have a deep community focus.For example, w
 
 ## Gillian Jacobs
 
-## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
+## [New Hair Education Laws Are Tackling the 'Texture Gap'](https://www.highsnobiety.com/p/textured-hair-education-law/)
 
-It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
+On July 1, a new Connecticut law requiring that cosmetology and barber schools include textured hair in their curriculum went into effect.The mandate is a step…
 
-*Published on: Tue, 23 Jul 2024 13:00:00 GMT*
-
-
-## Gillian Jacobs
-
-## [From ASICS to Converse, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-5/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Tue, 23 Jul 2024 16:02:45 GMT*
-
-
-## Gillian Jacobs
-
-## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
-
-Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
-
-*Published on: Wed, 24 Jul 2024 06:30:42 GMT*
-
-
-## Gillian Jacobs
-
-## [Data Confirms: Fashion's Hottest Sneaker Is No Longer adidas' Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
-
-It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
-
-*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
-
-
-## Gillian Jacobs
-
-## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
-
-Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
-
-*Published on: Wed, 24 Jul 2024 08:24:23 GMT*
-
-
-## Gillian Jacobs
-
-## [Clarks  GOLF WANG Make Their Love Official](https://www.highsnobiety.com/p/clarks-golf-wang-release-date/)
-
-Tyler, The Creator has made no secret of his love for Clarks shoes. If you happen to peer down at the multi-talented musician’s feet, there’s a good chance he’…
-
-*Published on: Wed, 24 Jul 2024 09:10:59 GMT*
-
-
-## Gillian Jacobs
-
-## [Kith's Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
-
-When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
-
-*Published on: Wed, 24 Jul 2024 09:32:26 GMT*
-
-
-## Gillian Jacobs
-
-## [Martine Rose Is Putting Her Community First](https://www.highsnobiety.com/p/martine-rose-fw24-lookbook/)
-
-Martine Rose’s fashion shows always have a deep community focus.For example, when the designer took over a street in Chalk Farm, London, for one of her early s…
-
-*Published on: Wed, 24 Jul 2024 10:51:41 GMT*
-
-
-## Jason Mantzoukas
-
-## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
-
-It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
-
-*Published on: Tue, 23 Jul 2024 13:00:00 GMT*
+*Published on: Wed, 24 Jul 2024 15:53:27 GMT*
 
 
 ## Jason Mantzoukas
@@ -1367,13 +1358,13 @@ Martine Rose’s fashion shows always have a deep community focus.For example, w
 *Published on: Wed, 24 Jul 2024 10:51:41 GMT*
 
 
-## JB Smoove
+## Jason Mantzoukas
 
-## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
+## [New Hair Education Laws Are Tackling the 'Texture Gap'](https://www.highsnobiety.com/p/textured-hair-education-law/)
 
-It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
+On July 1, a new Connecticut law requiring that cosmetology and barber schools include textured hair in their curriculum went into effect.The mandate is a step…
 
-*Published on: Tue, 23 Jul 2024 13:00:00 GMT*
+*Published on: Wed, 24 Jul 2024 15:53:27 GMT*
 
 
 ## JB Smoove
@@ -1431,6 +1422,78 @@ When you produce as many collaborations as Ronnie Fieg and his label Kith do, so
 
 
 ## JB Smoove
+
+## [Martine Rose Is Putting Her Community First](https://www.highsnobiety.com/p/martine-rose-fw24-lookbook/)
+
+Martine Rose’s fashion shows always have a deep community focus.For example, when the designer took over a street in Chalk Farm, London, for one of her early s…
+
+*Published on: Wed, 24 Jul 2024 10:51:41 GMT*
+
+
+## JB Smoove
+
+## [New Hair Education Laws Are Tackling the 'Texture Gap'](https://www.highsnobiety.com/p/textured-hair-education-law/)
+
+On July 1, a new Connecticut law requiring that cosmetology and barber schools include textured hair in their curriculum went into effect.The mandate is a step…
+
+*Published on: Wed, 24 Jul 2024 15:53:27 GMT*
+
+
+## Madison Pettis
+
+## [From ASICS to Converse, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-5/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Tue, 23 Jul 2024 16:02:45 GMT*
+
+
+## Madison Pettis
+
+## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
+
+Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
+
+*Published on: Wed, 24 Jul 2024 06:30:42 GMT*
+
+
+## Madison Pettis
+
+## [Data Confirms: Fashion's Hottest Sneaker Is No Longer adidas' Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
+
+It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
+
+*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
+
+
+## Madison Pettis
+
+## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
+
+Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
+
+*Published on: Wed, 24 Jul 2024 08:24:23 GMT*
+
+
+## Madison Pettis
+
+## [Clarks  GOLF WANG Make Their Love Official](https://www.highsnobiety.com/p/clarks-golf-wang-release-date/)
+
+Tyler, The Creator has made no secret of his love for Clarks shoes. If you happen to peer down at the multi-talented musician’s feet, there’s a good chance he’…
+
+*Published on: Wed, 24 Jul 2024 09:10:59 GMT*
+
+
+## Madison Pettis
+
+## [Kith's Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
+
+When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
+
+*Published on: Wed, 24 Jul 2024 09:32:26 GMT*
+
+
+## Madison Pettis
 
 ## [Martine Rose Is Putting Her Community First](https://www.highsnobiety.com/p/martine-rose-fw24-lookbook/)
 
@@ -1441,83 +1504,11 @@ Martine Rose’s fashion shows always have a deep community focus.For example, w
 
 ## Madison Pettis
 
-## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
+## [New Hair Education Laws Are Tackling the 'Texture Gap'](https://www.highsnobiety.com/p/textured-hair-education-law/)
 
-It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
+On July 1, a new Connecticut law requiring that cosmetology and barber schools include textured hair in their curriculum went into effect.The mandate is a step…
 
-*Published on: Tue, 23 Jul 2024 13:00:00 GMT*
-
-
-## Madison Pettis
-
-## [From ASICS to Converse, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-5/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Tue, 23 Jul 2024 16:02:45 GMT*
-
-
-## Madison Pettis
-
-## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
-
-Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
-
-*Published on: Wed, 24 Jul 2024 06:30:42 GMT*
-
-
-## Madison Pettis
-
-## [Data Confirms: Fashion's Hottest Sneaker Is No Longer adidas' Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
-
-It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
-
-*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
-
-
-## Madison Pettis
-
-## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
-
-Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
-
-*Published on: Wed, 24 Jul 2024 08:24:23 GMT*
-
-
-## Madison Pettis
-
-## [Clarks  GOLF WANG Make Their Love Official](https://www.highsnobiety.com/p/clarks-golf-wang-release-date/)
-
-Tyler, The Creator has made no secret of his love for Clarks shoes. If you happen to peer down at the multi-talented musician’s feet, there’s a good chance he’…
-
-*Published on: Wed, 24 Jul 2024 09:10:59 GMT*
-
-
-## Madison Pettis
-
-## [Kith's Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
-
-When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
-
-*Published on: Wed, 24 Jul 2024 09:32:26 GMT*
-
-
-## Madison Pettis
-
-## [Martine Rose Is Putting Her Community First](https://www.highsnobiety.com/p/martine-rose-fw24-lookbook/)
-
-Martine Rose’s fashion shows always have a deep community focus.For example, when the designer took over a street in Chalk Farm, London, for one of her early s…
-
-*Published on: Wed, 24 Jul 2024 10:51:41 GMT*
-
-
-## Austin Butler
-
-## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
-
-It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
-
-*Published on: Tue, 23 Jul 2024 13:00:00 GMT*
+*Published on: Wed, 24 Jul 2024 15:53:27 GMT*
 
 
 ## Austin Butler
@@ -1583,13 +1574,13 @@ Martine Rose’s fashion shows always have a deep community focus.For example, w
 *Published on: Wed, 24 Jul 2024 10:51:41 GMT*
 
 
-## Mark Zuckerberg
+## Austin Butler
 
-## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
+## [New Hair Education Laws Are Tackling the 'Texture Gap'](https://www.highsnobiety.com/p/textured-hair-education-law/)
 
-It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
+On July 1, a new Connecticut law requiring that cosmetology and barber schools include textured hair in their curriculum went into effect.The mandate is a step…
 
-*Published on: Tue, 23 Jul 2024 13:00:00 GMT*
+*Published on: Wed, 24 Jul 2024 15:53:27 GMT*
 
 
 ## Mark Zuckerberg
@@ -1647,6 +1638,78 @@ When you produce as many collaborations as Ronnie Fieg and his label Kith do, so
 
 
 ## Mark Zuckerberg
+
+## [Martine Rose Is Putting Her Community First](https://www.highsnobiety.com/p/martine-rose-fw24-lookbook/)
+
+Martine Rose’s fashion shows always have a deep community focus.For example, when the designer took over a street in Chalk Farm, London, for one of her early s…
+
+*Published on: Wed, 24 Jul 2024 10:51:41 GMT*
+
+
+## Mark Zuckerberg
+
+## [New Hair Education Laws Are Tackling the 'Texture Gap'](https://www.highsnobiety.com/p/textured-hair-education-law/)
+
+On July 1, a new Connecticut law requiring that cosmetology and barber schools include textured hair in their curriculum went into effect.The mandate is a step…
+
+*Published on: Wed, 24 Jul 2024 15:53:27 GMT*
+
+
+## Ariana Grande
+
+## [From ASICS to Converse, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-5/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Tue, 23 Jul 2024 16:02:45 GMT*
+
+
+## Ariana Grande
+
+## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
+
+Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
+
+*Published on: Wed, 24 Jul 2024 06:30:42 GMT*
+
+
+## Ariana Grande
+
+## [Data Confirms: Fashion's Hottest Sneaker Is No Longer adidas' Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
+
+It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
+
+*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
+
+
+## Ariana Grande
+
+## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
+
+Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
+
+*Published on: Wed, 24 Jul 2024 08:24:23 GMT*
+
+
+## Ariana Grande
+
+## [Clarks  GOLF WANG Make Their Love Official](https://www.highsnobiety.com/p/clarks-golf-wang-release-date/)
+
+Tyler, The Creator has made no secret of his love for Clarks shoes. If you happen to peer down at the multi-talented musician’s feet, there’s a good chance he’…
+
+*Published on: Wed, 24 Jul 2024 09:10:59 GMT*
+
+
+## Ariana Grande
+
+## [Kith's Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
+
+When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
+
+*Published on: Wed, 24 Jul 2024 09:32:26 GMT*
+
+
+## Ariana Grande
 
 ## [Martine Rose Is Putting Her Community First](https://www.highsnobiety.com/p/martine-rose-fw24-lookbook/)
 
@@ -1657,83 +1720,11 @@ Martine Rose’s fashion shows always have a deep community focus.For example, w
 
 ## Ariana Grande
 
-## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
+## [New Hair Education Laws Are Tackling the 'Texture Gap'](https://www.highsnobiety.com/p/textured-hair-education-law/)
 
-It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
+On July 1, a new Connecticut law requiring that cosmetology and barber schools include textured hair in their curriculum went into effect.The mandate is a step…
 
-*Published on: Tue, 23 Jul 2024 13:00:00 GMT*
-
-
-## Ariana Grande
-
-## [From ASICS to Converse, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-5/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Tue, 23 Jul 2024 16:02:45 GMT*
-
-
-## Ariana Grande
-
-## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
-
-Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
-
-*Published on: Wed, 24 Jul 2024 06:30:42 GMT*
-
-
-## Ariana Grande
-
-## [Data Confirms: Fashion's Hottest Sneaker Is No Longer adidas' Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
-
-It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
-
-*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
-
-
-## Ariana Grande
-
-## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
-
-Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
-
-*Published on: Wed, 24 Jul 2024 08:24:23 GMT*
-
-
-## Ariana Grande
-
-## [Clarks  GOLF WANG Make Their Love Official](https://www.highsnobiety.com/p/clarks-golf-wang-release-date/)
-
-Tyler, The Creator has made no secret of his love for Clarks shoes. If you happen to peer down at the multi-talented musician’s feet, there’s a good chance he’…
-
-*Published on: Wed, 24 Jul 2024 09:10:59 GMT*
-
-
-## Ariana Grande
-
-## [Kith's Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
-
-When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
-
-*Published on: Wed, 24 Jul 2024 09:32:26 GMT*
-
-
-## Ariana Grande
-
-## [Martine Rose Is Putting Her Community First](https://www.highsnobiety.com/p/martine-rose-fw24-lookbook/)
-
-Martine Rose’s fashion shows always have a deep community focus.For example, when the designer took over a street in Chalk Farm, London, for one of her early s…
-
-*Published on: Wed, 24 Jul 2024 10:51:41 GMT*
-
-
-## Livvy Dunne
-
-## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
-
-It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
-
-*Published on: Tue, 23 Jul 2024 13:00:00 GMT*
+*Published on: Wed, 24 Jul 2024 15:53:27 GMT*
 
 
 ## Livvy Dunne
@@ -1799,13 +1790,13 @@ Martine Rose’s fashion shows always have a deep community focus.For example, w
 *Published on: Wed, 24 Jul 2024 10:51:41 GMT*
 
 
-## Ali Wong
+## Livvy Dunne
 
-## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
+## [New Hair Education Laws Are Tackling the 'Texture Gap'](https://www.highsnobiety.com/p/textured-hair-education-law/)
 
-It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
+On July 1, a new Connecticut law requiring that cosmetology and barber schools include textured hair in their curriculum went into effect.The mandate is a step…
 
-*Published on: Tue, 23 Jul 2024 13:00:00 GMT*
+*Published on: Wed, 24 Jul 2024 15:53:27 GMT*
 
 
 ## Ali Wong
@@ -1863,6 +1854,78 @@ When you produce as many collaborations as Ronnie Fieg and his label Kith do, so
 
 
 ## Ali Wong
+
+## [Martine Rose Is Putting Her Community First](https://www.highsnobiety.com/p/martine-rose-fw24-lookbook/)
+
+Martine Rose’s fashion shows always have a deep community focus.For example, when the designer took over a street in Chalk Farm, London, for one of her early s…
+
+*Published on: Wed, 24 Jul 2024 10:51:41 GMT*
+
+
+## Ali Wong
+
+## [New Hair Education Laws Are Tackling the 'Texture Gap'](https://www.highsnobiety.com/p/textured-hair-education-law/)
+
+On July 1, a new Connecticut law requiring that cosmetology and barber schools include textured hair in their curriculum went into effect.The mandate is a step…
+
+*Published on: Wed, 24 Jul 2024 15:53:27 GMT*
+
+
+## Lizzo
+
+## [From ASICS to Converse, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-5/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Tue, 23 Jul 2024 16:02:45 GMT*
+
+
+## Lizzo
+
+## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
+
+Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
+
+*Published on: Wed, 24 Jul 2024 06:30:42 GMT*
+
+
+## Lizzo
+
+## [Data Confirms: Fashion's Hottest Sneaker Is No Longer adidas' Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
+
+It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
+
+*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
+
+
+## Lizzo
+
+## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
+
+Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
+
+*Published on: Wed, 24 Jul 2024 08:24:23 GMT*
+
+
+## Lizzo
+
+## [Clarks  GOLF WANG Make Their Love Official](https://www.highsnobiety.com/p/clarks-golf-wang-release-date/)
+
+Tyler, The Creator has made no secret of his love for Clarks shoes. If you happen to peer down at the multi-talented musician’s feet, there’s a good chance he’…
+
+*Published on: Wed, 24 Jul 2024 09:10:59 GMT*
+
+
+## Lizzo
+
+## [Kith's Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
+
+When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
+
+*Published on: Wed, 24 Jul 2024 09:32:26 GMT*
+
+
+## Lizzo
 
 ## [Martine Rose Is Putting Her Community First](https://www.highsnobiety.com/p/martine-rose-fw24-lookbook/)
 
@@ -1873,83 +1936,11 @@ Martine Rose’s fashion shows always have a deep community focus.For example, w
 
 ## Lizzo
 
-## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
+## [New Hair Education Laws Are Tackling the 'Texture Gap'](https://www.highsnobiety.com/p/textured-hair-education-law/)
 
-It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
+On July 1, a new Connecticut law requiring that cosmetology and barber schools include textured hair in their curriculum went into effect.The mandate is a step…
 
-*Published on: Tue, 23 Jul 2024 13:00:00 GMT*
-
-
-## Lizzo
-
-## [From ASICS to Converse, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-5/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Tue, 23 Jul 2024 16:02:45 GMT*
-
-
-## Lizzo
-
-## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
-
-Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
-
-*Published on: Wed, 24 Jul 2024 06:30:42 GMT*
-
-
-## Lizzo
-
-## [Data Confirms: Fashion's Hottest Sneaker Is No Longer adidas' Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
-
-It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
-
-*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
-
-
-## Lizzo
-
-## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
-
-Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
-
-*Published on: Wed, 24 Jul 2024 08:24:23 GMT*
-
-
-## Lizzo
-
-## [Clarks  GOLF WANG Make Their Love Official](https://www.highsnobiety.com/p/clarks-golf-wang-release-date/)
-
-Tyler, The Creator has made no secret of his love for Clarks shoes. If you happen to peer down at the multi-talented musician’s feet, there’s a good chance he’…
-
-*Published on: Wed, 24 Jul 2024 09:10:59 GMT*
-
-
-## Lizzo
-
-## [Kith's Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
-
-When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
-
-*Published on: Wed, 24 Jul 2024 09:32:26 GMT*
-
-
-## Lizzo
-
-## [Martine Rose Is Putting Her Community First](https://www.highsnobiety.com/p/martine-rose-fw24-lookbook/)
-
-Martine Rose’s fashion shows always have a deep community focus.For example, when the designer took over a street in Chalk Farm, London, for one of her early s…
-
-*Published on: Wed, 24 Jul 2024 10:51:41 GMT*
-
-
-## Alison Brie
-
-## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
-
-It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
-
-*Published on: Tue, 23 Jul 2024 13:00:00 GMT*
+*Published on: Wed, 24 Jul 2024 15:53:27 GMT*
 
 
 ## Alison Brie
@@ -2015,13 +2006,13 @@ Martine Rose’s fashion shows always have a deep community focus.For example, w
 *Published on: Wed, 24 Jul 2024 10:51:41 GMT*
 
 
-## Lil Wayne
+## Alison Brie
 
-## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
+## [New Hair Education Laws Are Tackling the 'Texture Gap'](https://www.highsnobiety.com/p/textured-hair-education-law/)
 
-It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
+On July 1, a new Connecticut law requiring that cosmetology and barber schools include textured hair in their curriculum went into effect.The mandate is a step…
 
-*Published on: Tue, 23 Jul 2024 13:00:00 GMT*
+*Published on: Wed, 24 Jul 2024 15:53:27 GMT*
 
 
 ## Lil Wayne
@@ -2079,6 +2070,78 @@ When you produce as many collaborations as Ronnie Fieg and his label Kith do, so
 
 
 ## Lil Wayne
+
+## [Martine Rose Is Putting Her Community First](https://www.highsnobiety.com/p/martine-rose-fw24-lookbook/)
+
+Martine Rose’s fashion shows always have a deep community focus.For example, when the designer took over a street in Chalk Farm, London, for one of her early s…
+
+*Published on: Wed, 24 Jul 2024 10:51:41 GMT*
+
+
+## Lil Wayne
+
+## [New Hair Education Laws Are Tackling the 'Texture Gap'](https://www.highsnobiety.com/p/textured-hair-education-law/)
+
+On July 1, a new Connecticut law requiring that cosmetology and barber schools include textured hair in their curriculum went into effect.The mandate is a step…
+
+*Published on: Wed, 24 Jul 2024 15:53:27 GMT*
+
+
+## Adele
+
+## [From ASICS to Converse, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-5/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Tue, 23 Jul 2024 16:02:45 GMT*
+
+
+## Adele
+
+## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
+
+Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
+
+*Published on: Wed, 24 Jul 2024 06:30:42 GMT*
+
+
+## Adele
+
+## [Data Confirms: Fashion's Hottest Sneaker Is No Longer adidas' Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
+
+It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
+
+*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
+
+
+## Adele
+
+## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
+
+Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
+
+*Published on: Wed, 24 Jul 2024 08:24:23 GMT*
+
+
+## Adele
+
+## [Clarks  GOLF WANG Make Their Love Official](https://www.highsnobiety.com/p/clarks-golf-wang-release-date/)
+
+Tyler, The Creator has made no secret of his love for Clarks shoes. If you happen to peer down at the multi-talented musician’s feet, there’s a good chance he’…
+
+*Published on: Wed, 24 Jul 2024 09:10:59 GMT*
+
+
+## Adele
+
+## [Kith's Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
+
+When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
+
+*Published on: Wed, 24 Jul 2024 09:32:26 GMT*
+
+
+## Adele
 
 ## [Martine Rose Is Putting Her Community First](https://www.highsnobiety.com/p/martine-rose-fw24-lookbook/)
 
@@ -2089,83 +2152,11 @@ Martine Rose’s fashion shows always have a deep community focus.For example, w
 
 ## Adele
 
-## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
+## [New Hair Education Laws Are Tackling the 'Texture Gap'](https://www.highsnobiety.com/p/textured-hair-education-law/)
 
-It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
+On July 1, a new Connecticut law requiring that cosmetology and barber schools include textured hair in their curriculum went into effect.The mandate is a step…
 
-*Published on: Tue, 23 Jul 2024 13:00:00 GMT*
-
-
-## Adele
-
-## [From ASICS to Converse, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-5/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Tue, 23 Jul 2024 16:02:45 GMT*
-
-
-## Adele
-
-## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
-
-Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
-
-*Published on: Wed, 24 Jul 2024 06:30:42 GMT*
-
-
-## Adele
-
-## [Data Confirms: Fashion's Hottest Sneaker Is No Longer adidas' Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
-
-It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
-
-*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
-
-
-## Adele
-
-## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
-
-Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
-
-*Published on: Wed, 24 Jul 2024 08:24:23 GMT*
-
-
-## Adele
-
-## [Clarks  GOLF WANG Make Their Love Official](https://www.highsnobiety.com/p/clarks-golf-wang-release-date/)
-
-Tyler, The Creator has made no secret of his love for Clarks shoes. If you happen to peer down at the multi-talented musician’s feet, there’s a good chance he’…
-
-*Published on: Wed, 24 Jul 2024 09:10:59 GMT*
-
-
-## Adele
-
-## [Kith's Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
-
-When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
-
-*Published on: Wed, 24 Jul 2024 09:32:26 GMT*
-
-
-## Adele
-
-## [Martine Rose Is Putting Her Community First](https://www.highsnobiety.com/p/martine-rose-fw24-lookbook/)
-
-Martine Rose’s fashion shows always have a deep community focus.For example, when the designer took over a street in Chalk Farm, London, for one of her early s…
-
-*Published on: Wed, 24 Jul 2024 10:51:41 GMT*
-
-
-## Lindsay Lohan
-
-## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
-
-It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
-
-*Published on: Tue, 23 Jul 2024 13:00:00 GMT*
+*Published on: Wed, 24 Jul 2024 15:53:27 GMT*
 
 
 ## Lindsay Lohan
@@ -2231,13 +2222,13 @@ Martine Rose’s fashion shows always have a deep community focus.For example, w
 *Published on: Wed, 24 Jul 2024 10:51:41 GMT*
 
 
-## Addison Rae
+## Lindsay Lohan
 
-## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
+## [New Hair Education Laws Are Tackling the 'Texture Gap'](https://www.highsnobiety.com/p/textured-hair-education-law/)
 
-It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
+On July 1, a new Connecticut law requiring that cosmetology and barber schools include textured hair in their curriculum went into effect.The mandate is a step…
 
-*Published on: Tue, 23 Jul 2024 13:00:00 GMT*
+*Published on: Wed, 24 Jul 2024 15:53:27 GMT*
 
 
 ## Addison Rae
@@ -2295,6 +2286,78 @@ When you produce as many collaborations as Ronnie Fieg and his label Kith do, so
 
 
 ## Addison Rae
+
+## [Martine Rose Is Putting Her Community First](https://www.highsnobiety.com/p/martine-rose-fw24-lookbook/)
+
+Martine Rose’s fashion shows always have a deep community focus.For example, when the designer took over a street in Chalk Farm, London, for one of her early s…
+
+*Published on: Wed, 24 Jul 2024 10:51:41 GMT*
+
+
+## Addison Rae
+
+## [New Hair Education Laws Are Tackling the 'Texture Gap'](https://www.highsnobiety.com/p/textured-hair-education-law/)
+
+On July 1, a new Connecticut law requiring that cosmetology and barber schools include textured hair in their curriculum went into effect.The mandate is a step…
+
+*Published on: Wed, 24 Jul 2024 15:53:27 GMT*
+
+
+## Latto
+
+## [From ASICS to Converse, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-5/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Tue, 23 Jul 2024 16:02:45 GMT*
+
+
+## Latto
+
+## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
+
+Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
+
+*Published on: Wed, 24 Jul 2024 06:30:42 GMT*
+
+
+## Latto
+
+## [Data Confirms: Fashion's Hottest Sneaker Is No Longer adidas' Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
+
+It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
+
+*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
+
+
+## Latto
+
+## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
+
+Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
+
+*Published on: Wed, 24 Jul 2024 08:24:23 GMT*
+
+
+## Latto
+
+## [Clarks  GOLF WANG Make Their Love Official](https://www.highsnobiety.com/p/clarks-golf-wang-release-date/)
+
+Tyler, The Creator has made no secret of his love for Clarks shoes. If you happen to peer down at the multi-talented musician’s feet, there’s a good chance he’…
+
+*Published on: Wed, 24 Jul 2024 09:10:59 GMT*
+
+
+## Latto
+
+## [Kith's Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
+
+When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
+
+*Published on: Wed, 24 Jul 2024 09:32:26 GMT*
+
+
+## Latto
 
 ## [Martine Rose Is Putting Her Community First](https://www.highsnobiety.com/p/martine-rose-fw24-lookbook/)
 
@@ -2305,83 +2368,11 @@ Martine Rose’s fashion shows always have a deep community focus.For example, w
 
 ## Latto
 
-## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
+## [New Hair Education Laws Are Tackling the 'Texture Gap'](https://www.highsnobiety.com/p/textured-hair-education-law/)
 
-It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
+On July 1, a new Connecticut law requiring that cosmetology and barber schools include textured hair in their curriculum went into effect.The mandate is a step…
 
-*Published on: Tue, 23 Jul 2024 13:00:00 GMT*
-
-
-## Latto
-
-## [From ASICS to Converse, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-5/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Tue, 23 Jul 2024 16:02:45 GMT*
-
-
-## Latto
-
-## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
-
-Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
-
-*Published on: Wed, 24 Jul 2024 06:30:42 GMT*
-
-
-## Latto
-
-## [Data Confirms: Fashion's Hottest Sneaker Is No Longer adidas' Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
-
-It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
-
-*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
-
-
-## Latto
-
-## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
-
-Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
-
-*Published on: Wed, 24 Jul 2024 08:24:23 GMT*
-
-
-## Latto
-
-## [Clarks  GOLF WANG Make Their Love Official](https://www.highsnobiety.com/p/clarks-golf-wang-release-date/)
-
-Tyler, The Creator has made no secret of his love for Clarks shoes. If you happen to peer down at the multi-talented musician’s feet, there’s a good chance he’…
-
-*Published on: Wed, 24 Jul 2024 09:10:59 GMT*
-
-
-## Latto
-
-## [Kith's Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
-
-When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
-
-*Published on: Wed, 24 Jul 2024 09:32:26 GMT*
-
-
-## Latto
-
-## [Martine Rose Is Putting Her Community First](https://www.highsnobiety.com/p/martine-rose-fw24-lookbook/)
-
-Martine Rose’s fashion shows always have a deep community focus.For example, when the designer took over a street in Chalk Farm, London, for one of her early s…
-
-*Published on: Wed, 24 Jul 2024 10:51:41 GMT*
-
-
-## Aaron Paul
-
-## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
-
-It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
-
-*Published on: Tue, 23 Jul 2024 13:00:00 GMT*
+*Published on: Wed, 24 Jul 2024 15:53:27 GMT*
 
 
 ## Aaron Paul
@@ -2447,13 +2438,13 @@ Martine Rose’s fashion shows always have a deep community focus.For example, w
 *Published on: Wed, 24 Jul 2024 10:51:41 GMT*
 
 
-## LeBron James
+## Aaron Paul
 
-## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
+## [New Hair Education Laws Are Tackling the 'Texture Gap'](https://www.highsnobiety.com/p/textured-hair-education-law/)
 
-It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
+On July 1, a new Connecticut law requiring that cosmetology and barber schools include textured hair in their curriculum went into effect.The mandate is a step…
 
-*Published on: Tue, 23 Jul 2024 13:00:00 GMT*
+*Published on: Wed, 24 Jul 2024 15:53:27 GMT*
 
 
 ## LeBron James
@@ -2511,6 +2502,78 @@ When you produce as many collaborations as Ronnie Fieg and his label Kith do, so
 
 
 ## LeBron James
+
+## [Martine Rose Is Putting Her Community First](https://www.highsnobiety.com/p/martine-rose-fw24-lookbook/)
+
+Martine Rose’s fashion shows always have a deep community focus.For example, when the designer took over a street in Chalk Farm, London, for one of her early s…
+
+*Published on: Wed, 24 Jul 2024 10:51:41 GMT*
+
+
+## LeBron James
+
+## [New Hair Education Laws Are Tackling the 'Texture Gap'](https://www.highsnobiety.com/p/textured-hair-education-law/)
+
+On July 1, a new Connecticut law requiring that cosmetology and barber schools include textured hair in their curriculum went into effect.The mandate is a step…
+
+*Published on: Wed, 24 Jul 2024 15:53:27 GMT*
+
+
+## 50 Cent
+
+## [From ASICS to Converse, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-5/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Tue, 23 Jul 2024 16:02:45 GMT*
+
+
+## 50 Cent
+
+## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
+
+Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
+
+*Published on: Wed, 24 Jul 2024 06:30:42 GMT*
+
+
+## 50 Cent
+
+## [Data Confirms: Fashion's Hottest Sneaker Is No Longer adidas' Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
+
+It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
+
+*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
+
+
+## 50 Cent
+
+## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
+
+Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
+
+*Published on: Wed, 24 Jul 2024 08:24:23 GMT*
+
+
+## 50 Cent
+
+## [Clarks  GOLF WANG Make Their Love Official](https://www.highsnobiety.com/p/clarks-golf-wang-release-date/)
+
+Tyler, The Creator has made no secret of his love for Clarks shoes. If you happen to peer down at the multi-talented musician’s feet, there’s a good chance he’…
+
+*Published on: Wed, 24 Jul 2024 09:10:59 GMT*
+
+
+## 50 Cent
+
+## [Kith's Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
+
+When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
+
+*Published on: Wed, 24 Jul 2024 09:32:26 GMT*
+
+
+## 50 Cent
 
 ## [Martine Rose Is Putting Her Community First](https://www.highsnobiety.com/p/martine-rose-fw24-lookbook/)
 
@@ -2521,83 +2584,11 @@ Martine Rose’s fashion shows always have a deep community focus.For example, w
 
 ## 50 Cent
 
-## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
+## [New Hair Education Laws Are Tackling the 'Texture Gap'](https://www.highsnobiety.com/p/textured-hair-education-law/)
 
-It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
+On July 1, a new Connecticut law requiring that cosmetology and barber schools include textured hair in their curriculum went into effect.The mandate is a step…
 
-*Published on: Tue, 23 Jul 2024 13:00:00 GMT*
-
-
-## 50 Cent
-
-## [From ASICS to Converse, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-5/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Tue, 23 Jul 2024 16:02:45 GMT*
-
-
-## 50 Cent
-
-## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
-
-Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
-
-*Published on: Wed, 24 Jul 2024 06:30:42 GMT*
-
-
-## 50 Cent
-
-## [Data Confirms: Fashion's Hottest Sneaker Is No Longer adidas' Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
-
-It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
-
-*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
-
-
-## 50 Cent
-
-## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
-
-Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
-
-*Published on: Wed, 24 Jul 2024 08:24:23 GMT*
-
-
-## 50 Cent
-
-## [Clarks  GOLF WANG Make Their Love Official](https://www.highsnobiety.com/p/clarks-golf-wang-release-date/)
-
-Tyler, The Creator has made no secret of his love for Clarks shoes. If you happen to peer down at the multi-talented musician’s feet, there’s a good chance he’…
-
-*Published on: Wed, 24 Jul 2024 09:10:59 GMT*
-
-
-## 50 Cent
-
-## [Kith's Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
-
-When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
-
-*Published on: Wed, 24 Jul 2024 09:32:26 GMT*
-
-
-## 50 Cent
-
-## [Martine Rose Is Putting Her Community First](https://www.highsnobiety.com/p/martine-rose-fw24-lookbook/)
-
-Martine Rose’s fashion shows always have a deep community focus.For example, when the designer took over a street in Chalk Farm, London, for one of her early s…
-
-*Published on: Wed, 24 Jul 2024 10:51:41 GMT*
-
-
-## Kesha
-
-## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
-
-It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
-
-*Published on: Tue, 23 Jul 2024 13:00:00 GMT*
+*Published on: Wed, 24 Jul 2024 15:53:27 GMT*
 
 
 ## Kesha
@@ -2663,13 +2654,13 @@ Martine Rose’s fashion shows always have a deep community focus.For example, w
 *Published on: Wed, 24 Jul 2024 10:51:41 GMT*
 
 
-## 21 Savage
+## Kesha
 
-## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
+## [New Hair Education Laws Are Tackling the 'Texture Gap'](https://www.highsnobiety.com/p/textured-hair-education-law/)
 
-It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
+On July 1, a new Connecticut law requiring that cosmetology and barber schools include textured hair in their curriculum went into effect.The mandate is a step…
 
-*Published on: Tue, 23 Jul 2024 13:00:00 GMT*
+*Published on: Wed, 24 Jul 2024 15:53:27 GMT*
 
 
 ## 21 Savage
@@ -2727,6 +2718,78 @@ When you produce as many collaborations as Ronnie Fieg and his label Kith do, so
 
 
 ## 21 Savage
+
+## [Martine Rose Is Putting Her Community First](https://www.highsnobiety.com/p/martine-rose-fw24-lookbook/)
+
+Martine Rose’s fashion shows always have a deep community focus.For example, when the designer took over a street in Chalk Farm, London, for one of her early s…
+
+*Published on: Wed, 24 Jul 2024 10:51:41 GMT*
+
+
+## 21 Savage
+
+## [New Hair Education Laws Are Tackling the 'Texture Gap'](https://www.highsnobiety.com/p/textured-hair-education-law/)
+
+On July 1, a new Connecticut law requiring that cosmetology and barber schools include textured hair in their curriculum went into effect.The mandate is a step…
+
+*Published on: Wed, 24 Jul 2024 15:53:27 GMT*
+
+
+## Larry David
+
+## [From ASICS to Converse, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-5/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Tue, 23 Jul 2024 16:02:45 GMT*
+
+
+## Larry David
+
+## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
+
+Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
+
+*Published on: Wed, 24 Jul 2024 06:30:42 GMT*
+
+
+## Larry David
+
+## [Data Confirms: Fashion's Hottest Sneaker Is No Longer adidas' Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
+
+It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
+
+*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
+
+
+## Larry David
+
+## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
+
+Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
+
+*Published on: Wed, 24 Jul 2024 08:24:23 GMT*
+
+
+## Larry David
+
+## [Clarks  GOLF WANG Make Their Love Official](https://www.highsnobiety.com/p/clarks-golf-wang-release-date/)
+
+Tyler, The Creator has made no secret of his love for Clarks shoes. If you happen to peer down at the multi-talented musician’s feet, there’s a good chance he’…
+
+*Published on: Wed, 24 Jul 2024 09:10:59 GMT*
+
+
+## Larry David
+
+## [Kith's Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
+
+When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
+
+*Published on: Wed, 24 Jul 2024 09:32:26 GMT*
+
+
+## Larry David
 
 ## [Martine Rose Is Putting Her Community First](https://www.highsnobiety.com/p/martine-rose-fw24-lookbook/)
 
@@ -2737,83 +2800,11 @@ Martine Rose’s fashion shows always have a deep community focus.For example, w
 
 ## Larry David
 
-## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
+## [New Hair Education Laws Are Tackling the 'Texture Gap'](https://www.highsnobiety.com/p/textured-hair-education-law/)
 
-It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
+On July 1, a new Connecticut law requiring that cosmetology and barber schools include textured hair in their curriculum went into effect.The mandate is a step…
 
-*Published on: Tue, 23 Jul 2024 13:00:00 GMT*
-
-
-## Larry David
-
-## [From ASICS to Converse, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-5/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Tue, 23 Jul 2024 16:02:45 GMT*
-
-
-## Larry David
-
-## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
-
-Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
-
-*Published on: Wed, 24 Jul 2024 06:30:42 GMT*
-
-
-## Larry David
-
-## [Data Confirms: Fashion's Hottest Sneaker Is No Longer adidas' Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
-
-It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
-
-*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
-
-
-## Larry David
-
-## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
-
-Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
-
-*Published on: Wed, 24 Jul 2024 08:24:23 GMT*
-
-
-## Larry David
-
-## [Clarks  GOLF WANG Make Their Love Official](https://www.highsnobiety.com/p/clarks-golf-wang-release-date/)
-
-Tyler, The Creator has made no secret of his love for Clarks shoes. If you happen to peer down at the multi-talented musician’s feet, there’s a good chance he’…
-
-*Published on: Wed, 24 Jul 2024 09:10:59 GMT*
-
-
-## Larry David
-
-## [Kith's Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
-
-When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
-
-*Published on: Wed, 24 Jul 2024 09:32:26 GMT*
-
-
-## Larry David
-
-## [Martine Rose Is Putting Her Community First](https://www.highsnobiety.com/p/martine-rose-fw24-lookbook/)
-
-Martine Rose’s fashion shows always have a deep community focus.For example, when the designer took over a street in Chalk Farm, London, for one of her early s…
-
-*Published on: Wed, 24 Jul 2024 10:51:41 GMT*
-
-
-## Seth Rogan
-
-## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
-
-It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
-
-*Published on: Tue, 23 Jul 2024 13:00:00 GMT*
+*Published on: Wed, 24 Jul 2024 15:53:27 GMT*
 
 
 ## Seth Rogan
@@ -2879,13 +2870,13 @@ Martine Rose’s fashion shows always have a deep community focus.For example, w
 *Published on: Wed, 24 Jul 2024 10:51:41 GMT*
 
 
-## Simone Biles
+## Seth Rogan
 
-## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
+## [New Hair Education Laws Are Tackling the 'Texture Gap'](https://www.highsnobiety.com/p/textured-hair-education-law/)
 
-It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
+On July 1, a new Connecticut law requiring that cosmetology and barber schools include textured hair in their curriculum went into effect.The mandate is a step…
 
-*Published on: Tue, 23 Jul 2024 13:00:00 GMT*
+*Published on: Wed, 24 Jul 2024 15:53:27 GMT*
 
 
 ## Simone Biles
@@ -2943,6 +2934,78 @@ When you produce as many collaborations as Ronnie Fieg and his label Kith do, so
 
 
 ## Simone Biles
+
+## [Martine Rose Is Putting Her Community First](https://www.highsnobiety.com/p/martine-rose-fw24-lookbook/)
+
+Martine Rose’s fashion shows always have a deep community focus.For example, when the designer took over a street in Chalk Farm, London, for one of her early s…
+
+*Published on: Wed, 24 Jul 2024 10:51:41 GMT*
+
+
+## Simone Biles
+
+## [New Hair Education Laws Are Tackling the 'Texture Gap'](https://www.highsnobiety.com/p/textured-hair-education-law/)
+
+On July 1, a new Connecticut law requiring that cosmetology and barber schools include textured hair in their curriculum went into effect.The mandate is a step…
+
+*Published on: Wed, 24 Jul 2024 15:53:27 GMT*
+
+
+## Pete Davidson
+
+## [From ASICS to Converse, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-5/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Tue, 23 Jul 2024 16:02:45 GMT*
+
+
+## Pete Davidson
+
+## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
+
+Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
+
+*Published on: Wed, 24 Jul 2024 06:30:42 GMT*
+
+
+## Pete Davidson
+
+## [Data Confirms: Fashion's Hottest Sneaker Is No Longer adidas' Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
+
+It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
+
+*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
+
+
+## Pete Davidson
+
+## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
+
+Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
+
+*Published on: Wed, 24 Jul 2024 08:24:23 GMT*
+
+
+## Pete Davidson
+
+## [Clarks  GOLF WANG Make Their Love Official](https://www.highsnobiety.com/p/clarks-golf-wang-release-date/)
+
+Tyler, The Creator has made no secret of his love for Clarks shoes. If you happen to peer down at the multi-talented musician’s feet, there’s a good chance he’…
+
+*Published on: Wed, 24 Jul 2024 09:10:59 GMT*
+
+
+## Pete Davidson
+
+## [Kith's Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
+
+When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
+
+*Published on: Wed, 24 Jul 2024 09:32:26 GMT*
+
+
+## Pete Davidson
 
 ## [Martine Rose Is Putting Her Community First](https://www.highsnobiety.com/p/martine-rose-fw24-lookbook/)
 
@@ -2953,83 +3016,11 @@ Martine Rose’s fashion shows always have a deep community focus.For example, w
 
 ## Pete Davidson
 
-## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
+## [New Hair Education Laws Are Tackling the 'Texture Gap'](https://www.highsnobiety.com/p/textured-hair-education-law/)
 
-It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
+On July 1, a new Connecticut law requiring that cosmetology and barber schools include textured hair in their curriculum went into effect.The mandate is a step…
 
-*Published on: Tue, 23 Jul 2024 13:00:00 GMT*
-
-
-## Pete Davidson
-
-## [From ASICS to Converse, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-5/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Tue, 23 Jul 2024 16:02:45 GMT*
-
-
-## Pete Davidson
-
-## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
-
-Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
-
-*Published on: Wed, 24 Jul 2024 06:30:42 GMT*
-
-
-## Pete Davidson
-
-## [Data Confirms: Fashion's Hottest Sneaker Is No Longer adidas' Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
-
-It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
-
-*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
-
-
-## Pete Davidson
-
-## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
-
-Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
-
-*Published on: Wed, 24 Jul 2024 08:24:23 GMT*
-
-
-## Pete Davidson
-
-## [Clarks  GOLF WANG Make Their Love Official](https://www.highsnobiety.com/p/clarks-golf-wang-release-date/)
-
-Tyler, The Creator has made no secret of his love for Clarks shoes. If you happen to peer down at the multi-talented musician’s feet, there’s a good chance he’…
-
-*Published on: Wed, 24 Jul 2024 09:10:59 GMT*
-
-
-## Pete Davidson
-
-## [Kith's Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
-
-When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
-
-*Published on: Wed, 24 Jul 2024 09:32:26 GMT*
-
-
-## Pete Davidson
-
-## [Martine Rose Is Putting Her Community First](https://www.highsnobiety.com/p/martine-rose-fw24-lookbook/)
-
-Martine Rose’s fashion shows always have a deep community focus.For example, when the designer took over a street in Chalk Farm, London, for one of her early s…
-
-*Published on: Wed, 24 Jul 2024 10:51:41 GMT*
-
-
-## Prince Harry
-
-## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
-
-It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
-
-*Published on: Tue, 23 Jul 2024 13:00:00 GMT*
+*Published on: Wed, 24 Jul 2024 15:53:27 GMT*
 
 
 ## Prince Harry
@@ -3095,13 +3086,13 @@ Martine Rose’s fashion shows always have a deep community focus.For example, w
 *Published on: Wed, 24 Jul 2024 10:51:41 GMT*
 
 
-## Princess of Wales
+## Prince Harry
 
-## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
+## [New Hair Education Laws Are Tackling the 'Texture Gap'](https://www.highsnobiety.com/p/textured-hair-education-law/)
 
-It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
+On July 1, a new Connecticut law requiring that cosmetology and barber schools include textured hair in their curriculum went into effect.The mandate is a step…
 
-*Published on: Tue, 23 Jul 2024 13:00:00 GMT*
+*Published on: Wed, 24 Jul 2024 15:53:27 GMT*
 
 
 ## Princess of Wales
@@ -3159,6 +3150,78 @@ When you produce as many collaborations as Ronnie Fieg and his label Kith do, so
 
 
 ## Princess of Wales
+
+## [Martine Rose Is Putting Her Community First](https://www.highsnobiety.com/p/martine-rose-fw24-lookbook/)
+
+Martine Rose’s fashion shows always have a deep community focus.For example, when the designer took over a street in Chalk Farm, London, for one of her early s…
+
+*Published on: Wed, 24 Jul 2024 10:51:41 GMT*
+
+
+## Princess of Wales
+
+## [New Hair Education Laws Are Tackling the 'Texture Gap'](https://www.highsnobiety.com/p/textured-hair-education-law/)
+
+On July 1, a new Connecticut law requiring that cosmetology and barber schools include textured hair in their curriculum went into effect.The mandate is a step…
+
+*Published on: Wed, 24 Jul 2024 15:53:27 GMT*
+
+
+## Rachel McAdams
+
+## [From ASICS to Converse, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-5/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Tue, 23 Jul 2024 16:02:45 GMT*
+
+
+## Rachel McAdams
+
+## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
+
+Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
+
+*Published on: Wed, 24 Jul 2024 06:30:42 GMT*
+
+
+## Rachel McAdams
+
+## [Data Confirms: Fashion's Hottest Sneaker Is No Longer adidas' Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
+
+It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
+
+*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
+
+
+## Rachel McAdams
+
+## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
+
+Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
+
+*Published on: Wed, 24 Jul 2024 08:24:23 GMT*
+
+
+## Rachel McAdams
+
+## [Clarks  GOLF WANG Make Their Love Official](https://www.highsnobiety.com/p/clarks-golf-wang-release-date/)
+
+Tyler, The Creator has made no secret of his love for Clarks shoes. If you happen to peer down at the multi-talented musician’s feet, there’s a good chance he’…
+
+*Published on: Wed, 24 Jul 2024 09:10:59 GMT*
+
+
+## Rachel McAdams
+
+## [Kith's Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
+
+When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
+
+*Published on: Wed, 24 Jul 2024 09:32:26 GMT*
+
+
+## Rachel McAdams
 
 ## [Martine Rose Is Putting Her Community First](https://www.highsnobiety.com/p/martine-rose-fw24-lookbook/)
 
@@ -3169,83 +3232,11 @@ Martine Rose’s fashion shows always have a deep community focus.For example, w
 
 ## Rachel McAdams
 
-## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
+## [New Hair Education Laws Are Tackling the 'Texture Gap'](https://www.highsnobiety.com/p/textured-hair-education-law/)
 
-It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
+On July 1, a new Connecticut law requiring that cosmetology and barber schools include textured hair in their curriculum went into effect.The mandate is a step…
 
-*Published on: Tue, 23 Jul 2024 13:00:00 GMT*
-
-
-## Rachel McAdams
-
-## [From ASICS to Converse, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-5/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Tue, 23 Jul 2024 16:02:45 GMT*
-
-
-## Rachel McAdams
-
-## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
-
-Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
-
-*Published on: Wed, 24 Jul 2024 06:30:42 GMT*
-
-
-## Rachel McAdams
-
-## [Data Confirms: Fashion's Hottest Sneaker Is No Longer adidas' Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
-
-It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
-
-*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
-
-
-## Rachel McAdams
-
-## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
-
-Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
-
-*Published on: Wed, 24 Jul 2024 08:24:23 GMT*
-
-
-## Rachel McAdams
-
-## [Clarks  GOLF WANG Make Their Love Official](https://www.highsnobiety.com/p/clarks-golf-wang-release-date/)
-
-Tyler, The Creator has made no secret of his love for Clarks shoes. If you happen to peer down at the multi-talented musician’s feet, there’s a good chance he’…
-
-*Published on: Wed, 24 Jul 2024 09:10:59 GMT*
-
-
-## Rachel McAdams
-
-## [Kith's Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
-
-When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
-
-*Published on: Wed, 24 Jul 2024 09:32:26 GMT*
-
-
-## Rachel McAdams
-
-## [Martine Rose Is Putting Her Community First](https://www.highsnobiety.com/p/martine-rose-fw24-lookbook/)
-
-Martine Rose’s fashion shows always have a deep community focus.For example, when the designer took over a street in Chalk Farm, London, for one of her early s…
-
-*Published on: Wed, 24 Jul 2024 10:51:41 GMT*
-
-
-## Reneé Rapp
-
-## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
-
-It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
-
-*Published on: Tue, 23 Jul 2024 13:00:00 GMT*
+*Published on: Wed, 24 Jul 2024 15:53:27 GMT*
 
 
 ## Reneé Rapp
@@ -3311,13 +3302,13 @@ Martine Rose’s fashion shows always have a deep community focus.For example, w
 *Published on: Wed, 24 Jul 2024 10:51:41 GMT*
 
 
-## Rick Ross
+## Reneé Rapp
 
-## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
+## [New Hair Education Laws Are Tackling the 'Texture Gap'](https://www.highsnobiety.com/p/textured-hair-education-law/)
 
-It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
+On July 1, a new Connecticut law requiring that cosmetology and barber schools include textured hair in their curriculum went into effect.The mandate is a step…
 
-*Published on: Tue, 23 Jul 2024 13:00:00 GMT*
+*Published on: Wed, 24 Jul 2024 15:53:27 GMT*
 
 
 ## Rick Ross
@@ -3375,6 +3366,78 @@ When you produce as many collaborations as Ronnie Fieg and his label Kith do, so
 
 
 ## Rick Ross
+
+## [Martine Rose Is Putting Her Community First](https://www.highsnobiety.com/p/martine-rose-fw24-lookbook/)
+
+Martine Rose’s fashion shows always have a deep community focus.For example, when the designer took over a street in Chalk Farm, London, for one of her early s…
+
+*Published on: Wed, 24 Jul 2024 10:51:41 GMT*
+
+
+## Rick Ross
+
+## [New Hair Education Laws Are Tackling the 'Texture Gap'](https://www.highsnobiety.com/p/textured-hair-education-law/)
+
+On July 1, a new Connecticut law requiring that cosmetology and barber schools include textured hair in their curriculum went into effect.The mandate is a step…
+
+*Published on: Wed, 24 Jul 2024 15:53:27 GMT*
+
+
+## Sam Ashgari
+
+## [From ASICS to Converse, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-5/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Tue, 23 Jul 2024 16:02:45 GMT*
+
+
+## Sam Ashgari
+
+## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
+
+Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
+
+*Published on: Wed, 24 Jul 2024 06:30:42 GMT*
+
+
+## Sam Ashgari
+
+## [Data Confirms: Fashion's Hottest Sneaker Is No Longer adidas' Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
+
+It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
+
+*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
+
+
+## Sam Ashgari
+
+## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
+
+Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
+
+*Published on: Wed, 24 Jul 2024 08:24:23 GMT*
+
+
+## Sam Ashgari
+
+## [Clarks  GOLF WANG Make Their Love Official](https://www.highsnobiety.com/p/clarks-golf-wang-release-date/)
+
+Tyler, The Creator has made no secret of his love for Clarks shoes. If you happen to peer down at the multi-talented musician’s feet, there’s a good chance he’…
+
+*Published on: Wed, 24 Jul 2024 09:10:59 GMT*
+
+
+## Sam Ashgari
+
+## [Kith's Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
+
+When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
+
+*Published on: Wed, 24 Jul 2024 09:32:26 GMT*
+
+
+## Sam Ashgari
 
 ## [Martine Rose Is Putting Her Community First](https://www.highsnobiety.com/p/martine-rose-fw24-lookbook/)
 
@@ -3385,83 +3448,11 @@ Martine Rose’s fashion shows always have a deep community focus.For example, w
 
 ## Sam Ashgari
 
-## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
+## [New Hair Education Laws Are Tackling the 'Texture Gap'](https://www.highsnobiety.com/p/textured-hair-education-law/)
 
-It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
+On July 1, a new Connecticut law requiring that cosmetology and barber schools include textured hair in their curriculum went into effect.The mandate is a step…
 
-*Published on: Tue, 23 Jul 2024 13:00:00 GMT*
-
-
-## Sam Ashgari
-
-## [From ASICS to Converse, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-5/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Tue, 23 Jul 2024 16:02:45 GMT*
-
-
-## Sam Ashgari
-
-## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
-
-Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
-
-*Published on: Wed, 24 Jul 2024 06:30:42 GMT*
-
-
-## Sam Ashgari
-
-## [Data Confirms: Fashion's Hottest Sneaker Is No Longer adidas' Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
-
-It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
-
-*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
-
-
-## Sam Ashgari
-
-## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
-
-Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
-
-*Published on: Wed, 24 Jul 2024 08:24:23 GMT*
-
-
-## Sam Ashgari
-
-## [Clarks  GOLF WANG Make Their Love Official](https://www.highsnobiety.com/p/clarks-golf-wang-release-date/)
-
-Tyler, The Creator has made no secret of his love for Clarks shoes. If you happen to peer down at the multi-talented musician’s feet, there’s a good chance he’…
-
-*Published on: Wed, 24 Jul 2024 09:10:59 GMT*
-
-
-## Sam Ashgari
-
-## [Kith's Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
-
-When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
-
-*Published on: Wed, 24 Jul 2024 09:32:26 GMT*
-
-
-## Sam Ashgari
-
-## [Martine Rose Is Putting Her Community First](https://www.highsnobiety.com/p/martine-rose-fw24-lookbook/)
-
-Martine Rose’s fashion shows always have a deep community focus.For example, when the designer took over a street in Chalk Farm, London, for one of her early s…
-
-*Published on: Wed, 24 Jul 2024 10:51:41 GMT*
-
-
-## Sandra Oh
-
-## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
-
-It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
-
-*Published on: Tue, 23 Jul 2024 13:00:00 GMT*
+*Published on: Wed, 24 Jul 2024 15:53:27 GMT*
 
 
 ## Sandra Oh
@@ -3527,13 +3518,13 @@ Martine Rose’s fashion shows always have a deep community focus.For example, w
 *Published on: Wed, 24 Jul 2024 10:51:41 GMT*
 
 
-## Donald Trump
+## Sandra Oh
 
-## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
+## [New Hair Education Laws Are Tackling the 'Texture Gap'](https://www.highsnobiety.com/p/textured-hair-education-law/)
 
-It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
+On July 1, a new Connecticut law requiring that cosmetology and barber schools include textured hair in their curriculum went into effect.The mandate is a step…
 
-*Published on: Tue, 23 Jul 2024 13:00:00 GMT*
+*Published on: Wed, 24 Jul 2024 15:53:27 GMT*
 
 
 ## Donald Trump
@@ -3591,6 +3582,78 @@ When you produce as many collaborations as Ronnie Fieg and his label Kith do, so
 
 
 ## Donald Trump
+
+## [Martine Rose Is Putting Her Community First](https://www.highsnobiety.com/p/martine-rose-fw24-lookbook/)
+
+Martine Rose’s fashion shows always have a deep community focus.For example, when the designer took over a street in Chalk Farm, London, for one of her early s…
+
+*Published on: Wed, 24 Jul 2024 10:51:41 GMT*
+
+
+## Donald Trump
+
+## [New Hair Education Laws Are Tackling the 'Texture Gap'](https://www.highsnobiety.com/p/textured-hair-education-law/)
+
+On July 1, a new Connecticut law requiring that cosmetology and barber schools include textured hair in their curriculum went into effect.The mandate is a step…
+
+*Published on: Wed, 24 Jul 2024 15:53:27 GMT*
+
+
+## Diddy
+
+## [From ASICS to Converse, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-5/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Tue, 23 Jul 2024 16:02:45 GMT*
+
+
+## Diddy
+
+## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
+
+Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
+
+*Published on: Wed, 24 Jul 2024 06:30:42 GMT*
+
+
+## Diddy
+
+## [Data Confirms: Fashion's Hottest Sneaker Is No Longer adidas' Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
+
+It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
+
+*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
+
+
+## Diddy
+
+## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
+
+Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
+
+*Published on: Wed, 24 Jul 2024 08:24:23 GMT*
+
+
+## Diddy
+
+## [Clarks  GOLF WANG Make Their Love Official](https://www.highsnobiety.com/p/clarks-golf-wang-release-date/)
+
+Tyler, The Creator has made no secret of his love for Clarks shoes. If you happen to peer down at the multi-talented musician’s feet, there’s a good chance he’…
+
+*Published on: Wed, 24 Jul 2024 09:10:59 GMT*
+
+
+## Diddy
+
+## [Kith's Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
+
+When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
+
+*Published on: Wed, 24 Jul 2024 09:32:26 GMT*
+
+
+## Diddy
 
 ## [Martine Rose Is Putting Her Community First](https://www.highsnobiety.com/p/martine-rose-fw24-lookbook/)
 
@@ -3601,83 +3664,11 @@ Martine Rose’s fashion shows always have a deep community focus.For example, w
 
 ## Diddy
 
-## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
+## [New Hair Education Laws Are Tackling the 'Texture Gap'](https://www.highsnobiety.com/p/textured-hair-education-law/)
 
-It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
+On July 1, a new Connecticut law requiring that cosmetology and barber schools include textured hair in their curriculum went into effect.The mandate is a step…
 
-*Published on: Tue, 23 Jul 2024 13:00:00 GMT*
-
-
-## Diddy
-
-## [From ASICS to Converse, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-5/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Tue, 23 Jul 2024 16:02:45 GMT*
-
-
-## Diddy
-
-## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
-
-Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
-
-*Published on: Wed, 24 Jul 2024 06:30:42 GMT*
-
-
-## Diddy
-
-## [Data Confirms: Fashion's Hottest Sneaker Is No Longer adidas' Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
-
-It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
-
-*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
-
-
-## Diddy
-
-## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
-
-Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
-
-*Published on: Wed, 24 Jul 2024 08:24:23 GMT*
-
-
-## Diddy
-
-## [Clarks  GOLF WANG Make Their Love Official](https://www.highsnobiety.com/p/clarks-golf-wang-release-date/)
-
-Tyler, The Creator has made no secret of his love for Clarks shoes. If you happen to peer down at the multi-talented musician’s feet, there’s a good chance he’…
-
-*Published on: Wed, 24 Jul 2024 09:10:59 GMT*
-
-
-## Diddy
-
-## [Kith's Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
-
-When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
-
-*Published on: Wed, 24 Jul 2024 09:32:26 GMT*
-
-
-## Diddy
-
-## [Martine Rose Is Putting Her Community First](https://www.highsnobiety.com/p/martine-rose-fw24-lookbook/)
-
-Martine Rose’s fashion shows always have a deep community focus.For example, when the designer took over a street in Chalk Farm, London, for one of her early s…
-
-*Published on: Wed, 24 Jul 2024 10:51:41 GMT*
-
-
-## City Girls
-
-## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
-
-It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
-
-*Published on: Tue, 23 Jul 2024 13:00:00 GMT*
+*Published on: Wed, 24 Jul 2024 15:53:27 GMT*
 
 
 ## City Girls
@@ -3743,13 +3734,13 @@ Martine Rose’s fashion shows always have a deep community focus.For example, w
 *Published on: Wed, 24 Jul 2024 10:51:41 GMT*
 
 
-## Chloe Bailey
+## City Girls
 
-## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
+## [New Hair Education Laws Are Tackling the 'Texture Gap'](https://www.highsnobiety.com/p/textured-hair-education-law/)
 
-It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
+On July 1, a new Connecticut law requiring that cosmetology and barber schools include textured hair in their curriculum went into effect.The mandate is a step…
 
-*Published on: Tue, 23 Jul 2024 13:00:00 GMT*
+*Published on: Wed, 24 Jul 2024 15:53:27 GMT*
 
 
 ## Chloe Bailey
@@ -3807,6 +3798,78 @@ When you produce as many collaborations as Ronnie Fieg and his label Kith do, so
 
 
 ## Chloe Bailey
+
+## [Martine Rose Is Putting Her Community First](https://www.highsnobiety.com/p/martine-rose-fw24-lookbook/)
+
+Martine Rose’s fashion shows always have a deep community focus.For example, when the designer took over a street in Chalk Farm, London, for one of her early s…
+
+*Published on: Wed, 24 Jul 2024 10:51:41 GMT*
+
+
+## Chloe Bailey
+
+## [New Hair Education Laws Are Tackling the 'Texture Gap'](https://www.highsnobiety.com/p/textured-hair-education-law/)
+
+On July 1, a new Connecticut law requiring that cosmetology and barber schools include textured hair in their curriculum went into effect.The mandate is a step…
+
+*Published on: Wed, 24 Jul 2024 15:53:27 GMT*
+
+
+## Charli D Amelio
+
+## [From ASICS to Converse, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-5/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Tue, 23 Jul 2024 16:02:45 GMT*
+
+
+## Charli D Amelio
+
+## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
+
+Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
+
+*Published on: Wed, 24 Jul 2024 06:30:42 GMT*
+
+
+## Charli D Amelio
+
+## [Data Confirms: Fashion's Hottest Sneaker Is No Longer adidas' Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
+
+It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
+
+*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
+
+
+## Charli D Amelio
+
+## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
+
+Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
+
+*Published on: Wed, 24 Jul 2024 08:24:23 GMT*
+
+
+## Charli D Amelio
+
+## [Clarks  GOLF WANG Make Their Love Official](https://www.highsnobiety.com/p/clarks-golf-wang-release-date/)
+
+Tyler, The Creator has made no secret of his love for Clarks shoes. If you happen to peer down at the multi-talented musician’s feet, there’s a good chance he’…
+
+*Published on: Wed, 24 Jul 2024 09:10:59 GMT*
+
+
+## Charli D Amelio
+
+## [Kith's Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
+
+When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
+
+*Published on: Wed, 24 Jul 2024 09:32:26 GMT*
+
+
+## Charli D Amelio
 
 ## [Martine Rose Is Putting Her Community First](https://www.highsnobiety.com/p/martine-rose-fw24-lookbook/)
 
@@ -3817,83 +3880,11 @@ Martine Rose’s fashion shows always have a deep community focus.For example, w
 
 ## Charli D Amelio
 
-## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
+## [New Hair Education Laws Are Tackling the 'Texture Gap'](https://www.highsnobiety.com/p/textured-hair-education-law/)
 
-It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
+On July 1, a new Connecticut law requiring that cosmetology and barber schools include textured hair in their curriculum went into effect.The mandate is a step…
 
-*Published on: Tue, 23 Jul 2024 13:00:00 GMT*
-
-
-## Charli D Amelio
-
-## [From ASICS to Converse, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-5/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Tue, 23 Jul 2024 16:02:45 GMT*
-
-
-## Charli D Amelio
-
-## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
-
-Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
-
-*Published on: Wed, 24 Jul 2024 06:30:42 GMT*
-
-
-## Charli D Amelio
-
-## [Data Confirms: Fashion's Hottest Sneaker Is No Longer adidas' Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
-
-It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
-
-*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
-
-
-## Charli D Amelio
-
-## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
-
-Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
-
-*Published on: Wed, 24 Jul 2024 08:24:23 GMT*
-
-
-## Charli D Amelio
-
-## [Clarks  GOLF WANG Make Their Love Official](https://www.highsnobiety.com/p/clarks-golf-wang-release-date/)
-
-Tyler, The Creator has made no secret of his love for Clarks shoes. If you happen to peer down at the multi-talented musician’s feet, there’s a good chance he’…
-
-*Published on: Wed, 24 Jul 2024 09:10:59 GMT*
-
-
-## Charli D Amelio
-
-## [Kith's Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
-
-When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
-
-*Published on: Wed, 24 Jul 2024 09:32:26 GMT*
-
-
-## Charli D Amelio
-
-## [Martine Rose Is Putting Her Community First](https://www.highsnobiety.com/p/martine-rose-fw24-lookbook/)
-
-Martine Rose’s fashion shows always have a deep community focus.For example, when the designer took over a street in Chalk Farm, London, for one of her early s…
-
-*Published on: Wed, 24 Jul 2024 10:51:41 GMT*
-
-
-## Cardi B
-
-## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
-
-It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
-
-*Published on: Tue, 23 Jul 2024 13:00:00 GMT*
+*Published on: Wed, 24 Jul 2024 15:53:27 GMT*
 
 
 ## Cardi B
@@ -3959,13 +3950,13 @@ Martine Rose’s fashion shows always have a deep community focus.For example, w
 *Published on: Wed, 24 Jul 2024 10:51:41 GMT*
 
 
-## Bryan Cranston
+## Cardi B
 
-## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
+## [New Hair Education Laws Are Tackling the 'Texture Gap'](https://www.highsnobiety.com/p/textured-hair-education-law/)
 
-It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
+On July 1, a new Connecticut law requiring that cosmetology and barber schools include textured hair in their curriculum went into effect.The mandate is a step…
 
-*Published on: Tue, 23 Jul 2024 13:00:00 GMT*
+*Published on: Wed, 24 Jul 2024 15:53:27 GMT*
 
 
 ## Bryan Cranston
@@ -4023,6 +4014,78 @@ When you produce as many collaborations as Ronnie Fieg and his label Kith do, so
 
 
 ## Bryan Cranston
+
+## [Martine Rose Is Putting Her Community First](https://www.highsnobiety.com/p/martine-rose-fw24-lookbook/)
+
+Martine Rose’s fashion shows always have a deep community focus.For example, when the designer took over a street in Chalk Farm, London, for one of her early s…
+
+*Published on: Wed, 24 Jul 2024 10:51:41 GMT*
+
+
+## Bryan Cranston
+
+## [New Hair Education Laws Are Tackling the 'Texture Gap'](https://www.highsnobiety.com/p/textured-hair-education-law/)
+
+On July 1, a new Connecticut law requiring that cosmetology and barber schools include textured hair in their curriculum went into effect.The mandate is a step…
+
+*Published on: Wed, 24 Jul 2024 15:53:27 GMT*
+
+
+## Brielle Biermann
+
+## [From ASICS to Converse, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-5/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Tue, 23 Jul 2024 16:02:45 GMT*
+
+
+## Brielle Biermann
+
+## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
+
+Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
+
+*Published on: Wed, 24 Jul 2024 06:30:42 GMT*
+
+
+## Brielle Biermann
+
+## [Data Confirms: Fashion's Hottest Sneaker Is No Longer adidas' Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
+
+It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
+
+*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
+
+
+## Brielle Biermann
+
+## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
+
+Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
+
+*Published on: Wed, 24 Jul 2024 08:24:23 GMT*
+
+
+## Brielle Biermann
+
+## [Clarks  GOLF WANG Make Their Love Official](https://www.highsnobiety.com/p/clarks-golf-wang-release-date/)
+
+Tyler, The Creator has made no secret of his love for Clarks shoes. If you happen to peer down at the multi-talented musician’s feet, there’s a good chance he’…
+
+*Published on: Wed, 24 Jul 2024 09:10:59 GMT*
+
+
+## Brielle Biermann
+
+## [Kith's Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
+
+When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
+
+*Published on: Wed, 24 Jul 2024 09:32:26 GMT*
+
+
+## Brielle Biermann
 
 ## [Martine Rose Is Putting Her Community First](https://www.highsnobiety.com/p/martine-rose-fw24-lookbook/)
 
@@ -4033,83 +4096,11 @@ Martine Rose’s fashion shows always have a deep community focus.For example, w
 
 ## Brielle Biermann
 
-## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
+## [New Hair Education Laws Are Tackling the 'Texture Gap'](https://www.highsnobiety.com/p/textured-hair-education-law/)
 
-It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
+On July 1, a new Connecticut law requiring that cosmetology and barber schools include textured hair in their curriculum went into effect.The mandate is a step…
 
-*Published on: Tue, 23 Jul 2024 13:00:00 GMT*
-
-
-## Brielle Biermann
-
-## [From ASICS to Converse, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-5/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Tue, 23 Jul 2024 16:02:45 GMT*
-
-
-## Brielle Biermann
-
-## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
-
-Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
-
-*Published on: Wed, 24 Jul 2024 06:30:42 GMT*
-
-
-## Brielle Biermann
-
-## [Data Confirms: Fashion's Hottest Sneaker Is No Longer adidas' Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
-
-It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
-
-*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
-
-
-## Brielle Biermann
-
-## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
-
-Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
-
-*Published on: Wed, 24 Jul 2024 08:24:23 GMT*
-
-
-## Brielle Biermann
-
-## [Clarks  GOLF WANG Make Their Love Official](https://www.highsnobiety.com/p/clarks-golf-wang-release-date/)
-
-Tyler, The Creator has made no secret of his love for Clarks shoes. If you happen to peer down at the multi-talented musician’s feet, there’s a good chance he’…
-
-*Published on: Wed, 24 Jul 2024 09:10:59 GMT*
-
-
-## Brielle Biermann
-
-## [Kith's Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
-
-When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
-
-*Published on: Wed, 24 Jul 2024 09:32:26 GMT*
-
-
-## Brielle Biermann
-
-## [Martine Rose Is Putting Her Community First](https://www.highsnobiety.com/p/martine-rose-fw24-lookbook/)
-
-Martine Rose’s fashion shows always have a deep community focus.For example, when the designer took over a street in Chalk Farm, London, for one of her early s…
-
-*Published on: Wed, 24 Jul 2024 10:51:41 GMT*
-
-
-## Dua Lipa
-
-## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
-
-It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
-
-*Published on: Tue, 23 Jul 2024 13:00:00 GMT*
+*Published on: Wed, 24 Jul 2024 15:53:27 GMT*
 
 
 ## Dua Lipa
@@ -4175,13 +4166,13 @@ Martine Rose’s fashion shows always have a deep community focus.For example, w
 *Published on: Wed, 24 Jul 2024 10:51:41 GMT*
 
 
-## Drake
+## Dua Lipa
 
-## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
+## [New Hair Education Laws Are Tackling the 'Texture Gap'](https://www.highsnobiety.com/p/textured-hair-education-law/)
 
-It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
+On July 1, a new Connecticut law requiring that cosmetology and barber schools include textured hair in their curriculum went into effect.The mandate is a step…
 
-*Published on: Tue, 23 Jul 2024 13:00:00 GMT*
+*Published on: Wed, 24 Jul 2024 15:53:27 GMT*
 
 
 ## Drake
@@ -4239,6 +4230,78 @@ When you produce as many collaborations as Ronnie Fieg and his label Kith do, so
 
 
 ## Drake
+
+## [Martine Rose Is Putting Her Community First](https://www.highsnobiety.com/p/martine-rose-fw24-lookbook/)
+
+Martine Rose’s fashion shows always have a deep community focus.For example, when the designer took over a street in Chalk Farm, London, for one of her early s…
+
+*Published on: Wed, 24 Jul 2024 10:51:41 GMT*
+
+
+## Drake
+
+## [New Hair Education Laws Are Tackling the 'Texture Gap'](https://www.highsnobiety.com/p/textured-hair-education-law/)
+
+On July 1, a new Connecticut law requiring that cosmetology and barber schools include textured hair in their curriculum went into effect.The mandate is a step…
+
+*Published on: Wed, 24 Jul 2024 15:53:27 GMT*
+
+
+## Jenner
+
+## [From ASICS to Converse, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-5/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Tue, 23 Jul 2024 16:02:45 GMT*
+
+
+## Jenner
+
+## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
+
+Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
+
+*Published on: Wed, 24 Jul 2024 06:30:42 GMT*
+
+
+## Jenner
+
+## [Data Confirms: Fashion's Hottest Sneaker Is No Longer adidas' Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
+
+It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
+
+*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
+
+
+## Jenner
+
+## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
+
+Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
+
+*Published on: Wed, 24 Jul 2024 08:24:23 GMT*
+
+
+## Jenner
+
+## [Clarks  GOLF WANG Make Their Love Official](https://www.highsnobiety.com/p/clarks-golf-wang-release-date/)
+
+Tyler, The Creator has made no secret of his love for Clarks shoes. If you happen to peer down at the multi-talented musician’s feet, there’s a good chance he’…
+
+*Published on: Wed, 24 Jul 2024 09:10:59 GMT*
+
+
+## Jenner
+
+## [Kith's Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
+
+When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
+
+*Published on: Wed, 24 Jul 2024 09:32:26 GMT*
+
+
+## Jenner
 
 ## [Martine Rose Is Putting Her Community First](https://www.highsnobiety.com/p/martine-rose-fw24-lookbook/)
 
@@ -4249,83 +4312,11 @@ Martine Rose’s fashion shows always have a deep community focus.For example, w
 
 ## Jenner
 
-## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
+## [New Hair Education Laws Are Tackling the 'Texture Gap'](https://www.highsnobiety.com/p/textured-hair-education-law/)
 
-It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
+On July 1, a new Connecticut law requiring that cosmetology and barber schools include textured hair in their curriculum went into effect.The mandate is a step…
 
-*Published on: Tue, 23 Jul 2024 13:00:00 GMT*
-
-
-## Jenner
-
-## [From ASICS to Converse, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-5/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Tue, 23 Jul 2024 16:02:45 GMT*
-
-
-## Jenner
-
-## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
-
-Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
-
-*Published on: Wed, 24 Jul 2024 06:30:42 GMT*
-
-
-## Jenner
-
-## [Data Confirms: Fashion's Hottest Sneaker Is No Longer adidas' Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
-
-It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
-
-*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
-
-
-## Jenner
-
-## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
-
-Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
-
-*Published on: Wed, 24 Jul 2024 08:24:23 GMT*
-
-
-## Jenner
-
-## [Clarks  GOLF WANG Make Their Love Official](https://www.highsnobiety.com/p/clarks-golf-wang-release-date/)
-
-Tyler, The Creator has made no secret of his love for Clarks shoes. If you happen to peer down at the multi-talented musician’s feet, there’s a good chance he’…
-
-*Published on: Wed, 24 Jul 2024 09:10:59 GMT*
-
-
-## Jenner
-
-## [Kith's Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
-
-When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
-
-*Published on: Wed, 24 Jul 2024 09:32:26 GMT*
-
-
-## Jenner
-
-## [Martine Rose Is Putting Her Community First](https://www.highsnobiety.com/p/martine-rose-fw24-lookbook/)
-
-Martine Rose’s fashion shows always have a deep community focus.For example, when the designer took over a street in Chalk Farm, London, for one of her early s…
-
-*Published on: Wed, 24 Jul 2024 10:51:41 GMT*
-
-
-## J. Cole
-
-## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
-
-It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
-
-*Published on: Tue, 23 Jul 2024 13:00:00 GMT*
+*Published on: Wed, 24 Jul 2024 15:53:27 GMT*
 
 
 ## J. Cole
@@ -4391,13 +4382,13 @@ Martine Rose’s fashion shows always have a deep community focus.For example, w
 *Published on: Wed, 24 Jul 2024 10:51:41 GMT*
 
 
-## Jerrod Carmichael
+## J. Cole
 
-## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
+## [New Hair Education Laws Are Tackling the 'Texture Gap'](https://www.highsnobiety.com/p/textured-hair-education-law/)
 
-It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
+On July 1, a new Connecticut law requiring that cosmetology and barber schools include textured hair in their curriculum went into effect.The mandate is a step…
 
-*Published on: Tue, 23 Jul 2024 13:00:00 GMT*
+*Published on: Wed, 24 Jul 2024 15:53:27 GMT*
 
 
 ## Jerrod Carmichael
@@ -4455,6 +4446,78 @@ When you produce as many collaborations as Ronnie Fieg and his label Kith do, so
 
 
 ## Jerrod Carmichael
+
+## [Martine Rose Is Putting Her Community First](https://www.highsnobiety.com/p/martine-rose-fw24-lookbook/)
+
+Martine Rose’s fashion shows always have a deep community focus.For example, when the designer took over a street in Chalk Farm, London, for one of her early s…
+
+*Published on: Wed, 24 Jul 2024 10:51:41 GMT*
+
+
+## Jerrod Carmichael
+
+## [New Hair Education Laws Are Tackling the 'Texture Gap'](https://www.highsnobiety.com/p/textured-hair-education-law/)
+
+On July 1, a new Connecticut law requiring that cosmetology and barber schools include textured hair in their curriculum went into effect.The mandate is a step…
+
+*Published on: Wed, 24 Jul 2024 15:53:27 GMT*
+
+
+## Jennifer Lawrence
+
+## [From ASICS to Converse, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-5/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Tue, 23 Jul 2024 16:02:45 GMT*
+
+
+## Jennifer Lawrence
+
+## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
+
+Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
+
+*Published on: Wed, 24 Jul 2024 06:30:42 GMT*
+
+
+## Jennifer Lawrence
+
+## [Data Confirms: Fashion's Hottest Sneaker Is No Longer adidas' Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
+
+It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
+
+*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
+
+
+## Jennifer Lawrence
+
+## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
+
+Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
+
+*Published on: Wed, 24 Jul 2024 08:24:23 GMT*
+
+
+## Jennifer Lawrence
+
+## [Clarks  GOLF WANG Make Their Love Official](https://www.highsnobiety.com/p/clarks-golf-wang-release-date/)
+
+Tyler, The Creator has made no secret of his love for Clarks shoes. If you happen to peer down at the multi-talented musician’s feet, there’s a good chance he’…
+
+*Published on: Wed, 24 Jul 2024 09:10:59 GMT*
+
+
+## Jennifer Lawrence
+
+## [Kith's Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
+
+When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
+
+*Published on: Wed, 24 Jul 2024 09:32:26 GMT*
+
+
+## Jennifer Lawrence
 
 ## [Martine Rose Is Putting Her Community First](https://www.highsnobiety.com/p/martine-rose-fw24-lookbook/)
 
@@ -4465,83 +4528,11 @@ Martine Rose’s fashion shows always have a deep community focus.For example, w
 
 ## Jennifer Lawrence
 
-## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
+## [New Hair Education Laws Are Tackling the 'Texture Gap'](https://www.highsnobiety.com/p/textured-hair-education-law/)
 
-It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
+On July 1, a new Connecticut law requiring that cosmetology and barber schools include textured hair in their curriculum went into effect.The mandate is a step…
 
-*Published on: Tue, 23 Jul 2024 13:00:00 GMT*
-
-
-## Jennifer Lawrence
-
-## [From ASICS to Converse, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-5/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Tue, 23 Jul 2024 16:02:45 GMT*
-
-
-## Jennifer Lawrence
-
-## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
-
-Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
-
-*Published on: Wed, 24 Jul 2024 06:30:42 GMT*
-
-
-## Jennifer Lawrence
-
-## [Data Confirms: Fashion's Hottest Sneaker Is No Longer adidas' Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
-
-It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
-
-*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
-
-
-## Jennifer Lawrence
-
-## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
-
-Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
-
-*Published on: Wed, 24 Jul 2024 08:24:23 GMT*
-
-
-## Jennifer Lawrence
-
-## [Clarks  GOLF WANG Make Their Love Official](https://www.highsnobiety.com/p/clarks-golf-wang-release-date/)
-
-Tyler, The Creator has made no secret of his love for Clarks shoes. If you happen to peer down at the multi-talented musician’s feet, there’s a good chance he’…
-
-*Published on: Wed, 24 Jul 2024 09:10:59 GMT*
-
-
-## Jennifer Lawrence
-
-## [Kith's Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
-
-When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
-
-*Published on: Wed, 24 Jul 2024 09:32:26 GMT*
-
-
-## Jennifer Lawrence
-
-## [Martine Rose Is Putting Her Community First](https://www.highsnobiety.com/p/martine-rose-fw24-lookbook/)
-
-Martine Rose’s fashion shows always have a deep community focus.For example, when the designer took over a street in Chalk Farm, London, for one of her early s…
-
-*Published on: Wed, 24 Jul 2024 10:51:41 GMT*
-
-
-## Joe Biden
-
-## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
-
-It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
-
-*Published on: Tue, 23 Jul 2024 13:00:00 GMT*
+*Published on: Wed, 24 Jul 2024 15:53:27 GMT*
 
 
 ## Joe Biden
@@ -4607,13 +4598,13 @@ Martine Rose’s fashion shows always have a deep community focus.For example, w
 *Published on: Wed, 24 Jul 2024 10:51:41 GMT*
 
 
-## J.K. Simmons
+## Joe Biden
 
-## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
+## [New Hair Education Laws Are Tackling the 'Texture Gap'](https://www.highsnobiety.com/p/textured-hair-education-law/)
 
-It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
+On July 1, a new Connecticut law requiring that cosmetology and barber schools include textured hair in their curriculum went into effect.The mandate is a step…
 
-*Published on: Tue, 23 Jul 2024 13:00:00 GMT*
+*Published on: Wed, 24 Jul 2024 15:53:27 GMT*
 
 
 ## J.K. Simmons
@@ -4671,6 +4662,78 @@ When you produce as many collaborations as Ronnie Fieg and his label Kith do, so
 
 
 ## J.K. Simmons
+
+## [Martine Rose Is Putting Her Community First](https://www.highsnobiety.com/p/martine-rose-fw24-lookbook/)
+
+Martine Rose’s fashion shows always have a deep community focus.For example, when the designer took over a street in Chalk Farm, London, for one of her early s…
+
+*Published on: Wed, 24 Jul 2024 10:51:41 GMT*
+
+
+## J.K. Simmons
+
+## [New Hair Education Laws Are Tackling the 'Texture Gap'](https://www.highsnobiety.com/p/textured-hair-education-law/)
+
+On July 1, a new Connecticut law requiring that cosmetology and barber schools include textured hair in their curriculum went into effect.The mandate is a step…
+
+*Published on: Wed, 24 Jul 2024 15:53:27 GMT*
+
+
+## Kamala Harris
+
+## [From ASICS to Converse, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-5/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Tue, 23 Jul 2024 16:02:45 GMT*
+
+
+## Kamala Harris
+
+## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
+
+Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
+
+*Published on: Wed, 24 Jul 2024 06:30:42 GMT*
+
+
+## Kamala Harris
+
+## [Data Confirms: Fashion's Hottest Sneaker Is No Longer adidas' Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
+
+It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
+
+*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
+
+
+## Kamala Harris
+
+## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
+
+Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
+
+*Published on: Wed, 24 Jul 2024 08:24:23 GMT*
+
+
+## Kamala Harris
+
+## [Clarks  GOLF WANG Make Their Love Official](https://www.highsnobiety.com/p/clarks-golf-wang-release-date/)
+
+Tyler, The Creator has made no secret of his love for Clarks shoes. If you happen to peer down at the multi-talented musician’s feet, there’s a good chance he’…
+
+*Published on: Wed, 24 Jul 2024 09:10:59 GMT*
+
+
+## Kamala Harris
+
+## [Kith's Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
+
+When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
+
+*Published on: Wed, 24 Jul 2024 09:32:26 GMT*
+
+
+## Kamala Harris
 
 ## [Martine Rose Is Putting Her Community First](https://www.highsnobiety.com/p/martine-rose-fw24-lookbook/)
 
@@ -4681,83 +4744,11 @@ Martine Rose’s fashion shows always have a deep community focus.For example, w
 
 ## Kamala Harris
 
-## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
+## [New Hair Education Laws Are Tackling the 'Texture Gap'](https://www.highsnobiety.com/p/textured-hair-education-law/)
 
-It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
+On July 1, a new Connecticut law requiring that cosmetology and barber schools include textured hair in their curriculum went into effect.The mandate is a step…
 
-*Published on: Tue, 23 Jul 2024 13:00:00 GMT*
-
-
-## Kamala Harris
-
-## [From ASICS to Converse, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-5/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Tue, 23 Jul 2024 16:02:45 GMT*
-
-
-## Kamala Harris
-
-## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
-
-Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
-
-*Published on: Wed, 24 Jul 2024 06:30:42 GMT*
-
-
-## Kamala Harris
-
-## [Data Confirms: Fashion's Hottest Sneaker Is No Longer adidas' Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
-
-It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
-
-*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
-
-
-## Kamala Harris
-
-## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
-
-Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
-
-*Published on: Wed, 24 Jul 2024 08:24:23 GMT*
-
-
-## Kamala Harris
-
-## [Clarks  GOLF WANG Make Their Love Official](https://www.highsnobiety.com/p/clarks-golf-wang-release-date/)
-
-Tyler, The Creator has made no secret of his love for Clarks shoes. If you happen to peer down at the multi-talented musician’s feet, there’s a good chance he’…
-
-*Published on: Wed, 24 Jul 2024 09:10:59 GMT*
-
-
-## Kamala Harris
-
-## [Kith's Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
-
-When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
-
-*Published on: Wed, 24 Jul 2024 09:32:26 GMT*
-
-
-## Kamala Harris
-
-## [Martine Rose Is Putting Her Community First](https://www.highsnobiety.com/p/martine-rose-fw24-lookbook/)
-
-Martine Rose’s fashion shows always have a deep community focus.For example, when the designer took over a street in Chalk Farm, London, for one of her early s…
-
-*Published on: Wed, 24 Jul 2024 10:51:41 GMT*
-
-
-## John C Reilly
-
-## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
-
-It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
-
-*Published on: Tue, 23 Jul 2024 13:00:00 GMT*
+*Published on: Wed, 24 Jul 2024 15:53:27 GMT*
 
 
 ## John C Reilly
@@ -4823,13 +4814,13 @@ Martine Rose’s fashion shows always have a deep community focus.For example, w
 *Published on: Wed, 24 Jul 2024 10:51:41 GMT*
 
 
-## Kardashian
+## John C Reilly
 
-## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
+## [New Hair Education Laws Are Tackling the 'Texture Gap'](https://www.highsnobiety.com/p/textured-hair-education-law/)
 
-It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
+On July 1, a new Connecticut law requiring that cosmetology and barber schools include textured hair in their curriculum went into effect.The mandate is a step…
 
-*Published on: Tue, 23 Jul 2024 13:00:00 GMT*
+*Published on: Wed, 24 Jul 2024 15:53:27 GMT*
 
 
 ## Kardashian
@@ -4887,6 +4878,78 @@ When you produce as many collaborations as Ronnie Fieg and his label Kith do, so
 
 
 ## Kardashian
+
+## [Martine Rose Is Putting Her Community First](https://www.highsnobiety.com/p/martine-rose-fw24-lookbook/)
+
+Martine Rose’s fashion shows always have a deep community focus.For example, when the designer took over a street in Chalk Farm, London, for one of her early s…
+
+*Published on: Wed, 24 Jul 2024 10:51:41 GMT*
+
+
+## Kardashian
+
+## [New Hair Education Laws Are Tackling the 'Texture Gap'](https://www.highsnobiety.com/p/textured-hair-education-law/)
+
+On July 1, a new Connecticut law requiring that cosmetology and barber schools include textured hair in their curriculum went into effect.The mandate is a step…
+
+*Published on: Wed, 24 Jul 2024 15:53:27 GMT*
+
+
+## Kanye
+
+## [From ASICS to Converse, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-5/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Tue, 23 Jul 2024 16:02:45 GMT*
+
+
+## Kanye
+
+## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
+
+Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
+
+*Published on: Wed, 24 Jul 2024 06:30:42 GMT*
+
+
+## Kanye
+
+## [Data Confirms: Fashion's Hottest Sneaker Is No Longer adidas' Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
+
+It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
+
+*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
+
+
+## Kanye
+
+## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
+
+Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
+
+*Published on: Wed, 24 Jul 2024 08:24:23 GMT*
+
+
+## Kanye
+
+## [Clarks  GOLF WANG Make Their Love Official](https://www.highsnobiety.com/p/clarks-golf-wang-release-date/)
+
+Tyler, The Creator has made no secret of his love for Clarks shoes. If you happen to peer down at the multi-talented musician’s feet, there’s a good chance he’…
+
+*Published on: Wed, 24 Jul 2024 09:10:59 GMT*
+
+
+## Kanye
+
+## [Kith's Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
+
+When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
+
+*Published on: Wed, 24 Jul 2024 09:32:26 GMT*
+
+
+## Kanye
 
 ## [Martine Rose Is Putting Her Community First](https://www.highsnobiety.com/p/martine-rose-fw24-lookbook/)
 
@@ -4897,83 +4960,11 @@ Martine Rose’s fashion shows always have a deep community focus.For example, w
 
 ## Kanye
 
-## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
+## [New Hair Education Laws Are Tackling the 'Texture Gap'](https://www.highsnobiety.com/p/textured-hair-education-law/)
 
-It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
+On July 1, a new Connecticut law requiring that cosmetology and barber schools include textured hair in their curriculum went into effect.The mandate is a step…
 
-*Published on: Tue, 23 Jul 2024 13:00:00 GMT*
-
-
-## Kanye
-
-## [From ASICS to Converse, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-5/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Tue, 23 Jul 2024 16:02:45 GMT*
-
-
-## Kanye
-
-## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
-
-Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
-
-*Published on: Wed, 24 Jul 2024 06:30:42 GMT*
-
-
-## Kanye
-
-## [Data Confirms: Fashion's Hottest Sneaker Is No Longer adidas' Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
-
-It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
-
-*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
-
-
-## Kanye
-
-## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
-
-Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
-
-*Published on: Wed, 24 Jul 2024 08:24:23 GMT*
-
-
-## Kanye
-
-## [Clarks  GOLF WANG Make Their Love Official](https://www.highsnobiety.com/p/clarks-golf-wang-release-date/)
-
-Tyler, The Creator has made no secret of his love for Clarks shoes. If you happen to peer down at the multi-talented musician’s feet, there’s a good chance he’…
-
-*Published on: Wed, 24 Jul 2024 09:10:59 GMT*
-
-
-## Kanye
-
-## [Kith's Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
-
-When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
-
-*Published on: Wed, 24 Jul 2024 09:32:26 GMT*
-
-
-## Kanye
-
-## [Martine Rose Is Putting Her Community First](https://www.highsnobiety.com/p/martine-rose-fw24-lookbook/)
-
-Martine Rose’s fashion shows always have a deep community focus.For example, when the designer took over a street in Chalk Farm, London, for one of her early s…
-
-*Published on: Wed, 24 Jul 2024 10:51:41 GMT*
-
-
-## Zendaya
-
-## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
-
-It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
-
-*Published on: Tue, 23 Jul 2024 13:00:00 GMT*
+*Published on: Wed, 24 Jul 2024 15:53:27 GMT*
 
 
 ## Zendaya
@@ -5039,13 +5030,13 @@ Martine Rose’s fashion shows always have a deep community focus.For example, w
 *Published on: Wed, 24 Jul 2024 10:51:41 GMT*
 
 
-## Will Ferrell
+## Zendaya
 
-## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
+## [New Hair Education Laws Are Tackling the 'Texture Gap'](https://www.highsnobiety.com/p/textured-hair-education-law/)
 
-It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
+On July 1, a new Connecticut law requiring that cosmetology and barber schools include textured hair in their curriculum went into effect.The mandate is a step…
 
-*Published on: Tue, 23 Jul 2024 13:00:00 GMT*
+*Published on: Wed, 24 Jul 2024 15:53:27 GMT*
 
 
 ## Will Ferrell
@@ -5103,6 +5094,78 @@ When you produce as many collaborations as Ronnie Fieg and his label Kith do, so
 
 
 ## Will Ferrell
+
+## [Martine Rose Is Putting Her Community First](https://www.highsnobiety.com/p/martine-rose-fw24-lookbook/)
+
+Martine Rose’s fashion shows always have a deep community focus.For example, when the designer took over a street in Chalk Farm, London, for one of her early s…
+
+*Published on: Wed, 24 Jul 2024 10:51:41 GMT*
+
+
+## Will Ferrell
+
+## [New Hair Education Laws Are Tackling the 'Texture Gap'](https://www.highsnobiety.com/p/textured-hair-education-law/)
+
+On July 1, a new Connecticut law requiring that cosmetology and barber schools include textured hair in their curriculum went into effect.The mandate is a step…
+
+*Published on: Wed, 24 Jul 2024 15:53:27 GMT*
+
+
+## Zazie Beetz
+
+## [From ASICS to Converse, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-5/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Tue, 23 Jul 2024 16:02:45 GMT*
+
+
+## Zazie Beetz
+
+## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
+
+Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
+
+*Published on: Wed, 24 Jul 2024 06:30:42 GMT*
+
+
+## Zazie Beetz
+
+## [Data Confirms: Fashion's Hottest Sneaker Is No Longer adidas' Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
+
+It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
+
+*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
+
+
+## Zazie Beetz
+
+## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
+
+Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
+
+*Published on: Wed, 24 Jul 2024 08:24:23 GMT*
+
+
+## Zazie Beetz
+
+## [Clarks  GOLF WANG Make Their Love Official](https://www.highsnobiety.com/p/clarks-golf-wang-release-date/)
+
+Tyler, The Creator has made no secret of his love for Clarks shoes. If you happen to peer down at the multi-talented musician’s feet, there’s a good chance he’…
+
+*Published on: Wed, 24 Jul 2024 09:10:59 GMT*
+
+
+## Zazie Beetz
+
+## [Kith's Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
+
+When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
+
+*Published on: Wed, 24 Jul 2024 09:32:26 GMT*
+
+
+## Zazie Beetz
 
 ## [Martine Rose Is Putting Her Community First](https://www.highsnobiety.com/p/martine-rose-fw24-lookbook/)
 
@@ -5113,83 +5176,11 @@ Martine Rose’s fashion shows always have a deep community focus.For example, w
 
 ## Zazie Beetz
 
-## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
+## [New Hair Education Laws Are Tackling the 'Texture Gap'](https://www.highsnobiety.com/p/textured-hair-education-law/)
 
-It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
+On July 1, a new Connecticut law requiring that cosmetology and barber schools include textured hair in their curriculum went into effect.The mandate is a step…
 
-*Published on: Tue, 23 Jul 2024 13:00:00 GMT*
-
-
-## Zazie Beetz
-
-## [From ASICS to Converse, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-5/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Tue, 23 Jul 2024 16:02:45 GMT*
-
-
-## Zazie Beetz
-
-## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
-
-Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
-
-*Published on: Wed, 24 Jul 2024 06:30:42 GMT*
-
-
-## Zazie Beetz
-
-## [Data Confirms: Fashion's Hottest Sneaker Is No Longer adidas' Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
-
-It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
-
-*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
-
-
-## Zazie Beetz
-
-## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
-
-Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
-
-*Published on: Wed, 24 Jul 2024 08:24:23 GMT*
-
-
-## Zazie Beetz
-
-## [Clarks  GOLF WANG Make Their Love Official](https://www.highsnobiety.com/p/clarks-golf-wang-release-date/)
-
-Tyler, The Creator has made no secret of his love for Clarks shoes. If you happen to peer down at the multi-talented musician’s feet, there’s a good chance he’…
-
-*Published on: Wed, 24 Jul 2024 09:10:59 GMT*
-
-
-## Zazie Beetz
-
-## [Kith's Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
-
-When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
-
-*Published on: Wed, 24 Jul 2024 09:32:26 GMT*
-
-
-## Zazie Beetz
-
-## [Martine Rose Is Putting Her Community First](https://www.highsnobiety.com/p/martine-rose-fw24-lookbook/)
-
-Martine Rose’s fashion shows always have a deep community focus.For example, when the designer took over a street in Chalk Farm, London, for one of her early s…
-
-*Published on: Wed, 24 Jul 2024 10:51:41 GMT*
-
-
-## Bob Odenkirk
-
-## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
-
-It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
-
-*Published on: Tue, 23 Jul 2024 13:00:00 GMT*
+*Published on: Wed, 24 Jul 2024 15:53:27 GMT*
 
 
 ## Bob Odenkirk
@@ -5255,13 +5246,13 @@ Martine Rose’s fashion shows always have a deep community focus.For example, w
 *Published on: Wed, 24 Jul 2024 10:51:41 GMT*
 
 
-## Brad Pitt
+## Bob Odenkirk
 
-## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
+## [New Hair Education Laws Are Tackling the 'Texture Gap'](https://www.highsnobiety.com/p/textured-hair-education-law/)
 
-It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
+On July 1, a new Connecticut law requiring that cosmetology and barber schools include textured hair in their curriculum went into effect.The mandate is a step…
 
-*Published on: Tue, 23 Jul 2024 13:00:00 GMT*
+*Published on: Wed, 24 Jul 2024 15:53:27 GMT*
 
 
 ## Brad Pitt
@@ -5319,6 +5310,78 @@ When you produce as many collaborations as Ronnie Fieg and his label Kith do, so
 
 
 ## Brad Pitt
+
+## [Martine Rose Is Putting Her Community First](https://www.highsnobiety.com/p/martine-rose-fw24-lookbook/)
+
+Martine Rose’s fashion shows always have a deep community focus.For example, when the designer took over a street in Chalk Farm, London, for one of her early s…
+
+*Published on: Wed, 24 Jul 2024 10:51:41 GMT*
+
+
+## Brad Pitt
+
+## [New Hair Education Laws Are Tackling the 'Texture Gap'](https://www.highsnobiety.com/p/textured-hair-education-law/)
+
+On July 1, a new Connecticut law requiring that cosmetology and barber schools include textured hair in their curriculum went into effect.The mandate is a step…
+
+*Published on: Wed, 24 Jul 2024 15:53:27 GMT*
+
+
+## Beyoncé
+
+## [From ASICS to Converse, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-5/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Tue, 23 Jul 2024 16:02:45 GMT*
+
+
+## Beyoncé
+
+## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
+
+Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
+
+*Published on: Wed, 24 Jul 2024 06:30:42 GMT*
+
+
+## Beyoncé
+
+## [Data Confirms: Fashion's Hottest Sneaker Is No Longer adidas' Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
+
+It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
+
+*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
+
+
+## Beyoncé
+
+## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
+
+Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
+
+*Published on: Wed, 24 Jul 2024 08:24:23 GMT*
+
+
+## Beyoncé
+
+## [Clarks  GOLF WANG Make Their Love Official](https://www.highsnobiety.com/p/clarks-golf-wang-release-date/)
+
+Tyler, The Creator has made no secret of his love for Clarks shoes. If you happen to peer down at the multi-talented musician’s feet, there’s a good chance he’…
+
+*Published on: Wed, 24 Jul 2024 09:10:59 GMT*
+
+
+## Beyoncé
+
+## [Kith's Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
+
+When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
+
+*Published on: Wed, 24 Jul 2024 09:32:26 GMT*
+
+
+## Beyoncé
 
 ## [Martine Rose Is Putting Her Community First](https://www.highsnobiety.com/p/martine-rose-fw24-lookbook/)
 
@@ -5329,83 +5392,11 @@ Martine Rose’s fashion shows always have a deep community focus.For example, w
 
 ## Beyoncé
 
-## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
+## [New Hair Education Laws Are Tackling the 'Texture Gap'](https://www.highsnobiety.com/p/textured-hair-education-law/)
 
-It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
+On July 1, a new Connecticut law requiring that cosmetology and barber schools include textured hair in their curriculum went into effect.The mandate is a step…
 
-*Published on: Tue, 23 Jul 2024 13:00:00 GMT*
-
-
-## Beyoncé
-
-## [From ASICS to Converse, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-5/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Tue, 23 Jul 2024 16:02:45 GMT*
-
-
-## Beyoncé
-
-## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
-
-Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
-
-*Published on: Wed, 24 Jul 2024 06:30:42 GMT*
-
-
-## Beyoncé
-
-## [Data Confirms: Fashion's Hottest Sneaker Is No Longer adidas' Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
-
-It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
-
-*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
-
-
-## Beyoncé
-
-## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
-
-Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
-
-*Published on: Wed, 24 Jul 2024 08:24:23 GMT*
-
-
-## Beyoncé
-
-## [Clarks  GOLF WANG Make Their Love Official](https://www.highsnobiety.com/p/clarks-golf-wang-release-date/)
-
-Tyler, The Creator has made no secret of his love for Clarks shoes. If you happen to peer down at the multi-talented musician’s feet, there’s a good chance he’…
-
-*Published on: Wed, 24 Jul 2024 09:10:59 GMT*
-
-
-## Beyoncé
-
-## [Kith's Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
-
-When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
-
-*Published on: Wed, 24 Jul 2024 09:32:26 GMT*
-
-
-## Beyoncé
-
-## [Martine Rose Is Putting Her Community First](https://www.highsnobiety.com/p/martine-rose-fw24-lookbook/)
-
-Martine Rose’s fashion shows always have a deep community focus.For example, when the designer took over a street in Chalk Farm, London, for one of her early s…
-
-*Published on: Wed, 24 Jul 2024 10:51:41 GMT*
-
-
-## Bia
-
-## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
-
-It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
-
-*Published on: Tue, 23 Jul 2024 13:00:00 GMT*
+*Published on: Wed, 24 Jul 2024 15:53:27 GMT*
 
 
 ## Bia
@@ -5471,13 +5462,13 @@ Martine Rose’s fashion shows always have a deep community focus.For example, w
 *Published on: Wed, 24 Jul 2024 10:51:41 GMT*
 
 
-## Avantika
+## Bia
 
-## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
+## [New Hair Education Laws Are Tackling the 'Texture Gap'](https://www.highsnobiety.com/p/textured-hair-education-law/)
 
-It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
+On July 1, a new Connecticut law requiring that cosmetology and barber schools include textured hair in their curriculum went into effect.The mandate is a step…
 
-*Published on: Tue, 23 Jul 2024 13:00:00 GMT*
+*Published on: Wed, 24 Jul 2024 15:53:27 GMT*
 
 
 ## Avantika
@@ -5535,6 +5526,78 @@ When you produce as many collaborations as Ronnie Fieg and his label Kith do, so
 
 
 ## Avantika
+
+## [Martine Rose Is Putting Her Community First](https://www.highsnobiety.com/p/martine-rose-fw24-lookbook/)
+
+Martine Rose’s fashion shows always have a deep community focus.For example, when the designer took over a street in Chalk Farm, London, for one of her early s…
+
+*Published on: Wed, 24 Jul 2024 10:51:41 GMT*
+
+
+## Avantika
+
+## [New Hair Education Laws Are Tackling the 'Texture Gap'](https://www.highsnobiety.com/p/textured-hair-education-law/)
+
+On July 1, a new Connecticut law requiring that cosmetology and barber schools include textured hair in their curriculum went into effect.The mandate is a step…
+
+*Published on: Wed, 24 Jul 2024 15:53:27 GMT*
+
+
+## Bernie Sanders
+
+## [From ASICS to Converse, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-5/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Tue, 23 Jul 2024 16:02:45 GMT*
+
+
+## Bernie Sanders
+
+## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
+
+Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
+
+*Published on: Wed, 24 Jul 2024 06:30:42 GMT*
+
+
+## Bernie Sanders
+
+## [Data Confirms: Fashion's Hottest Sneaker Is No Longer adidas' Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
+
+It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
+
+*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
+
+
+## Bernie Sanders
+
+## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
+
+Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
+
+*Published on: Wed, 24 Jul 2024 08:24:23 GMT*
+
+
+## Bernie Sanders
+
+## [Clarks  GOLF WANG Make Their Love Official](https://www.highsnobiety.com/p/clarks-golf-wang-release-date/)
+
+Tyler, The Creator has made no secret of his love for Clarks shoes. If you happen to peer down at the multi-talented musician’s feet, there’s a good chance he’…
+
+*Published on: Wed, 24 Jul 2024 09:10:59 GMT*
+
+
+## Bernie Sanders
+
+## [Kith's Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
+
+When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
+
+*Published on: Wed, 24 Jul 2024 09:32:26 GMT*
+
+
+## Bernie Sanders
 
 ## [Martine Rose Is Putting Her Community First](https://www.highsnobiety.com/p/martine-rose-fw24-lookbook/)
 
@@ -5545,83 +5608,11 @@ Martine Rose’s fashion shows always have a deep community focus.For example, w
 
 ## Bernie Sanders
 
-## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
+## [New Hair Education Laws Are Tackling the 'Texture Gap'](https://www.highsnobiety.com/p/textured-hair-education-law/)
 
-It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
+On July 1, a new Connecticut law requiring that cosmetology and barber schools include textured hair in their curriculum went into effect.The mandate is a step…
 
-*Published on: Tue, 23 Jul 2024 13:00:00 GMT*
-
-
-## Bernie Sanders
-
-## [From ASICS to Converse, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-5/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Tue, 23 Jul 2024 16:02:45 GMT*
-
-
-## Bernie Sanders
-
-## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
-
-Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
-
-*Published on: Wed, 24 Jul 2024 06:30:42 GMT*
-
-
-## Bernie Sanders
-
-## [Data Confirms: Fashion's Hottest Sneaker Is No Longer adidas' Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
-
-It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
-
-*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
-
-
-## Bernie Sanders
-
-## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
-
-Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
-
-*Published on: Wed, 24 Jul 2024 08:24:23 GMT*
-
-
-## Bernie Sanders
-
-## [Clarks  GOLF WANG Make Their Love Official](https://www.highsnobiety.com/p/clarks-golf-wang-release-date/)
-
-Tyler, The Creator has made no secret of his love for Clarks shoes. If you happen to peer down at the multi-talented musician’s feet, there’s a good chance he’…
-
-*Published on: Wed, 24 Jul 2024 09:10:59 GMT*
-
-
-## Bernie Sanders
-
-## [Kith's Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
-
-When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
-
-*Published on: Wed, 24 Jul 2024 09:32:26 GMT*
-
-
-## Bernie Sanders
-
-## [Martine Rose Is Putting Her Community First](https://www.highsnobiety.com/p/martine-rose-fw24-lookbook/)
-
-Martine Rose’s fashion shows always have a deep community focus.For example, when the designer took over a street in Chalk Farm, London, for one of her early s…
-
-*Published on: Wed, 24 Jul 2024 10:51:41 GMT*
-
-
-## Big Sean
-
-## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
-
-It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
-
-*Published on: Tue, 23 Jul 2024 13:00:00 GMT*
+*Published on: Wed, 24 Jul 2024 15:53:27 GMT*
 
 
 ## Big Sean
@@ -5687,13 +5678,13 @@ Martine Rose’s fashion shows always have a deep community focus.For example, w
 *Published on: Wed, 24 Jul 2024 10:51:41 GMT*
 
 
-## BlockBoy JB
+## Big Sean
 
-## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
+## [New Hair Education Laws Are Tackling the 'Texture Gap'](https://www.highsnobiety.com/p/textured-hair-education-law/)
 
-It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
+On July 1, a new Connecticut law requiring that cosmetology and barber schools include textured hair in their curriculum went into effect.The mandate is a step…
 
-*Published on: Tue, 23 Jul 2024 13:00:00 GMT*
+*Published on: Wed, 24 Jul 2024 15:53:27 GMT*
 
 
 ## BlockBoy JB
@@ -5751,6 +5742,78 @@ When you produce as many collaborations as Ronnie Fieg and his label Kith do, so
 
 
 ## BlockBoy JB
+
+## [Martine Rose Is Putting Her Community First](https://www.highsnobiety.com/p/martine-rose-fw24-lookbook/)
+
+Martine Rose’s fashion shows always have a deep community focus.For example, when the designer took over a street in Chalk Farm, London, for one of her early s…
+
+*Published on: Wed, 24 Jul 2024 10:51:41 GMT*
+
+
+## BlockBoy JB
+
+## [New Hair Education Laws Are Tackling the 'Texture Gap'](https://www.highsnobiety.com/p/textured-hair-education-law/)
+
+On July 1, a new Connecticut law requiring that cosmetology and barber schools include textured hair in their curriculum went into effect.The mandate is a step…
+
+*Published on: Wed, 24 Jul 2024 15:53:27 GMT*
+
+
+## Biden
+
+## [From ASICS to Converse, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-5/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Tue, 23 Jul 2024 16:02:45 GMT*
+
+
+## Biden
+
+## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
+
+Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
+
+*Published on: Wed, 24 Jul 2024 06:30:42 GMT*
+
+
+## Biden
+
+## [Data Confirms: Fashion's Hottest Sneaker Is No Longer adidas' Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
+
+It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
+
+*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
+
+
+## Biden
+
+## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
+
+Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
+
+*Published on: Wed, 24 Jul 2024 08:24:23 GMT*
+
+
+## Biden
+
+## [Clarks  GOLF WANG Make Their Love Official](https://www.highsnobiety.com/p/clarks-golf-wang-release-date/)
+
+Tyler, The Creator has made no secret of his love for Clarks shoes. If you happen to peer down at the multi-talented musician’s feet, there’s a good chance he’…
+
+*Published on: Wed, 24 Jul 2024 09:10:59 GMT*
+
+
+## Biden
+
+## [Kith's Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
+
+When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
+
+*Published on: Wed, 24 Jul 2024 09:32:26 GMT*
+
+
+## Biden
 
 ## [Martine Rose Is Putting Her Community First](https://www.highsnobiety.com/p/martine-rose-fw24-lookbook/)
 
@@ -5761,83 +5824,11 @@ Martine Rose’s fashion shows always have a deep community focus.For example, w
 
 ## Biden
 
-## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
+## [New Hair Education Laws Are Tackling the 'Texture Gap'](https://www.highsnobiety.com/p/textured-hair-education-law/)
 
-It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
+On July 1, a new Connecticut law requiring that cosmetology and barber schools include textured hair in their curriculum went into effect.The mandate is a step…
 
-*Published on: Tue, 23 Jul 2024 13:00:00 GMT*
-
-
-## Biden
-
-## [From ASICS to Converse, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-5/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Tue, 23 Jul 2024 16:02:45 GMT*
-
-
-## Biden
-
-## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
-
-Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
-
-*Published on: Wed, 24 Jul 2024 06:30:42 GMT*
-
-
-## Biden
-
-## [Data Confirms: Fashion's Hottest Sneaker Is No Longer adidas' Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
-
-It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
-
-*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
-
-
-## Biden
-
-## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
-
-Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
-
-*Published on: Wed, 24 Jul 2024 08:24:23 GMT*
-
-
-## Biden
-
-## [Clarks  GOLF WANG Make Their Love Official](https://www.highsnobiety.com/p/clarks-golf-wang-release-date/)
-
-Tyler, The Creator has made no secret of his love for Clarks shoes. If you happen to peer down at the multi-talented musician’s feet, there’s a good chance he’…
-
-*Published on: Wed, 24 Jul 2024 09:10:59 GMT*
-
-
-## Biden
-
-## [Kith's Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
-
-When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
-
-*Published on: Wed, 24 Jul 2024 09:32:26 GMT*
-
-
-## Biden
-
-## [Martine Rose Is Putting Her Community First](https://www.highsnobiety.com/p/martine-rose-fw24-lookbook/)
-
-Martine Rose’s fashion shows always have a deep community focus.For example, when the designer took over a street in Chalk Farm, London, for one of her early s…
-
-*Published on: Wed, 24 Jul 2024 10:51:41 GMT*
-
-
-## Bieber
-
-## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
-
-It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
-
-*Published on: Tue, 23 Jul 2024 13:00:00 GMT*
+*Published on: Wed, 24 Jul 2024 15:53:27 GMT*
 
 
 ## Bieber
@@ -5903,13 +5894,13 @@ Martine Rose’s fashion shows always have a deep community focus.For example, w
 *Published on: Wed, 24 Jul 2024 10:51:41 GMT*
 
 
-## Paulina Porizkov
+## Bieber
 
-## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
+## [New Hair Education Laws Are Tackling the 'Texture Gap'](https://www.highsnobiety.com/p/textured-hair-education-law/)
 
-It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
+On July 1, a new Connecticut law requiring that cosmetology and barber schools include textured hair in their curriculum went into effect.The mandate is a step…
 
-*Published on: Tue, 23 Jul 2024 13:00:00 GMT*
+*Published on: Wed, 24 Jul 2024 15:53:27 GMT*
 
 
 ## Paulina Porizkov
@@ -5967,6 +5958,78 @@ When you produce as many collaborations as Ronnie Fieg and his label Kith do, so
 
 
 ## Paulina Porizkov
+
+## [Martine Rose Is Putting Her Community First](https://www.highsnobiety.com/p/martine-rose-fw24-lookbook/)
+
+Martine Rose’s fashion shows always have a deep community focus.For example, when the designer took over a street in Chalk Farm, London, for one of her early s…
+
+*Published on: Wed, 24 Jul 2024 10:51:41 GMT*
+
+
+## Paulina Porizkov
+
+## [New Hair Education Laws Are Tackling the 'Texture Gap'](https://www.highsnobiety.com/p/textured-hair-education-law/)
+
+On July 1, a new Connecticut law requiring that cosmetology and barber schools include textured hair in their curriculum went into effect.The mandate is a step…
+
+*Published on: Wed, 24 Jul 2024 15:53:27 GMT*
+
+
+## Paris Hilton
+
+## [From ASICS to Converse, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-5/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Tue, 23 Jul 2024 16:02:45 GMT*
+
+
+## Paris Hilton
+
+## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
+
+Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
+
+*Published on: Wed, 24 Jul 2024 06:30:42 GMT*
+
+
+## Paris Hilton
+
+## [Data Confirms: Fashion's Hottest Sneaker Is No Longer adidas' Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
+
+It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
+
+*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
+
+
+## Paris Hilton
+
+## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
+
+Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
+
+*Published on: Wed, 24 Jul 2024 08:24:23 GMT*
+
+
+## Paris Hilton
+
+## [Clarks  GOLF WANG Make Their Love Official](https://www.highsnobiety.com/p/clarks-golf-wang-release-date/)
+
+Tyler, The Creator has made no secret of his love for Clarks shoes. If you happen to peer down at the multi-talented musician’s feet, there’s a good chance he’…
+
+*Published on: Wed, 24 Jul 2024 09:10:59 GMT*
+
+
+## Paris Hilton
+
+## [Kith's Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
+
+When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
+
+*Published on: Wed, 24 Jul 2024 09:32:26 GMT*
+
+
+## Paris Hilton
 
 ## [Martine Rose Is Putting Her Community First](https://www.highsnobiety.com/p/martine-rose-fw24-lookbook/)
 
@@ -5977,83 +6040,11 @@ Martine Rose’s fashion shows always have a deep community focus.For example, w
 
 ## Paris Hilton
 
-## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
+## [New Hair Education Laws Are Tackling the 'Texture Gap'](https://www.highsnobiety.com/p/textured-hair-education-law/)
 
-It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
+On July 1, a new Connecticut law requiring that cosmetology and barber schools include textured hair in their curriculum went into effect.The mandate is a step…
 
-*Published on: Tue, 23 Jul 2024 13:00:00 GMT*
-
-
-## Paris Hilton
-
-## [From ASICS to Converse, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-5/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Tue, 23 Jul 2024 16:02:45 GMT*
-
-
-## Paris Hilton
-
-## [Reebok Is Cooking Right Now ](https://www.highsnobiety.com/p/reebok-sneakers-2024/)
-
-Let's get straight to the point here: Reebok is cooking right now.Earlier this week, Reebok unveiled a NASA collection , including clothing and a plethora of s…
-
-*Published on: Wed, 24 Jul 2024 06:30:42 GMT*
-
-
-## Paris Hilton
-
-## [Data Confirms: Fashion's Hottest Sneaker Is No Longer adidas' Samba](https://www.highsnobiety.com/p/lyst-q2-2024-adidas-sl72/)
-
-It's time to bid farewell to your Sambas: A new adidas it-sneaker has entered the chat, according to data.LYST's quarterly ranking of the hottest fashion brand…
-
-*Published on: Wed, 24 Jul 2024 07:00:00 GMT*
-
-
-## Paris Hilton
-
-## [Rice Is Perfume’s New Favorite Comfort Food](https://www.highsnobiety.com/p/rice-perfume-note-trend/)
-
-Even casual perfume consumers know that gourmands, fragrances with edible notes, are all the rage . From Giardini di Toscana’s honey-caramel Bianco Latte to To…
-
-*Published on: Wed, 24 Jul 2024 08:24:23 GMT*
-
-
-## Paris Hilton
-
-## [Clarks  GOLF WANG Make Their Love Official](https://www.highsnobiety.com/p/clarks-golf-wang-release-date/)
-
-Tyler, The Creator has made no secret of his love for Clarks shoes. If you happen to peer down at the multi-talented musician’s feet, there’s a good chance he’…
-
-*Published on: Wed, 24 Jul 2024 09:10:59 GMT*
-
-
-## Paris Hilton
-
-## [Kith's Villain-Themed ASICS Are Marvel-ous](https://www.highsnobiety.com/p/kith-asics-marvel/)
-
-When you produce as many collaborations as Ronnie Fieg and his label Kith do, sometimes it’s good to shake things up and involve a third party. And that’s exac…
-
-*Published on: Wed, 24 Jul 2024 09:32:26 GMT*
-
-
-## Paris Hilton
-
-## [Martine Rose Is Putting Her Community First](https://www.highsnobiety.com/p/martine-rose-fw24-lookbook/)
-
-Martine Rose’s fashion shows always have a deep community focus.For example, when the designer took over a street in Chalk Farm, London, for one of her early s…
-
-*Published on: Wed, 24 Jul 2024 10:51:41 GMT*
-
-
-## Metro Boomin
-
-## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
-
-It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
-
-*Published on: Tue, 23 Jul 2024 13:00:00 GMT*
+*Published on: Wed, 24 Jul 2024 15:53:27 GMT*
 
 
 ## Metro Boomin
@@ -6119,13 +6110,13 @@ Martine Rose’s fashion shows always have a deep community focus.For example, w
 *Published on: Wed, 24 Jul 2024 10:51:41 GMT*
 
 
-## Meghan Markle
+## Metro Boomin
 
-## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
+## [New Hair Education Laws Are Tackling the 'Texture Gap'](https://www.highsnobiety.com/p/textured-hair-education-law/)
 
-It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
+On July 1, a new Connecticut law requiring that cosmetology and barber schools include textured hair in their curriculum went into effect.The mandate is a step…
 
-*Published on: Tue, 23 Jul 2024 13:00:00 GMT*
+*Published on: Wed, 24 Jul 2024 15:53:27 GMT*
 
 
 ## Meghan Markle
@@ -6191,13 +6182,13 @@ Martine Rose’s fashion shows always have a deep community focus.For example, w
 *Published on: Wed, 24 Jul 2024 10:51:41 GMT*
 
 
-## Megan Thee Stallion
+## Meghan Markle
 
-## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
+## [New Hair Education Laws Are Tackling the 'Texture Gap'](https://www.highsnobiety.com/p/textured-hair-education-law/)
 
-It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
+On July 1, a new Connecticut law requiring that cosmetology and barber schools include textured hair in their curriculum went into effect.The mandate is a step…
 
-*Published on: Tue, 23 Jul 2024 13:00:00 GMT*
+*Published on: Wed, 24 Jul 2024 15:53:27 GMT*
 
 
 ## Megan Thee Stallion
@@ -6263,13 +6254,13 @@ Martine Rose’s fashion shows always have a deep community focus.For example, w
 *Published on: Wed, 24 Jul 2024 10:51:41 GMT*
 
 
-## Maya Rudolph
+## Megan Thee Stallion
 
-## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
+## [New Hair Education Laws Are Tackling the 'Texture Gap'](https://www.highsnobiety.com/p/textured-hair-education-law/)
 
-It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
+On July 1, a new Connecticut law requiring that cosmetology and barber schools include textured hair in their curriculum went into effect.The mandate is a step…
 
-*Published on: Tue, 23 Jul 2024 13:00:00 GMT*
+*Published on: Wed, 24 Jul 2024 15:53:27 GMT*
 
 
 ## Maya Rudolph
@@ -6335,13 +6326,13 @@ Martine Rose’s fashion shows always have a deep community focus.For example, w
 *Published on: Wed, 24 Jul 2024 10:51:41 GMT*
 
 
-## Olivia Rodrigo
+## Maya Rudolph
 
-## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
+## [New Hair Education Laws Are Tackling the 'Texture Gap'](https://www.highsnobiety.com/p/textured-hair-education-law/)
 
-It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
+On July 1, a new Connecticut law requiring that cosmetology and barber schools include textured hair in their curriculum went into effect.The mandate is a step…
 
-*Published on: Tue, 23 Jul 2024 13:00:00 GMT*
+*Published on: Wed, 24 Jul 2024 15:53:27 GMT*
 
 
 ## Olivia Rodrigo
@@ -6407,13 +6398,13 @@ Martine Rose’s fashion shows always have a deep community focus.For example, w
 *Published on: Wed, 24 Jul 2024 10:51:41 GMT*
 
 
-## Obama
+## Olivia Rodrigo
 
-## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
+## [New Hair Education Laws Are Tackling the 'Texture Gap'](https://www.highsnobiety.com/p/textured-hair-education-law/)
 
-It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
+On July 1, a new Connecticut law requiring that cosmetology and barber schools include textured hair in their curriculum went into effect.The mandate is a step…
 
-*Published on: Tue, 23 Jul 2024 13:00:00 GMT*
+*Published on: Wed, 24 Jul 2024 15:53:27 GMT*
 
 
 ## Obama
@@ -6479,13 +6470,13 @@ Martine Rose’s fashion shows always have a deep community focus.For example, w
 *Published on: Wed, 24 Jul 2024 10:51:41 GMT*
 
 
-## Nicki Minaj
+## Obama
 
-## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
+## [New Hair Education Laws Are Tackling the 'Texture Gap'](https://www.highsnobiety.com/p/textured-hair-education-law/)
 
-It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
+On July 1, a new Connecticut law requiring that cosmetology and barber schools include textured hair in their curriculum went into effect.The mandate is a step…
 
-*Published on: Tue, 23 Jul 2024 13:00:00 GMT*
+*Published on: Wed, 24 Jul 2024 15:53:27 GMT*
 
 
 ## Nicki Minaj
@@ -6551,13 +6542,13 @@ Martine Rose’s fashion shows always have a deep community focus.For example, w
 *Published on: Wed, 24 Jul 2024 10:51:41 GMT*
 
 
-## MrBeast
+## Nicki Minaj
 
-## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
+## [New Hair Education Laws Are Tackling the 'Texture Gap'](https://www.highsnobiety.com/p/textured-hair-education-law/)
 
-It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
+On July 1, a new Connecticut law requiring that cosmetology and barber schools include textured hair in their curriculum went into effect.The mandate is a step…
 
-*Published on: Tue, 23 Jul 2024 13:00:00 GMT*
+*Published on: Wed, 24 Jul 2024 15:53:27 GMT*
 
 
 ## MrBeast
@@ -6621,5 +6612,14 @@ When you produce as many collaborations as Ronnie Fieg and his label Kith do, so
 Martine Rose’s fashion shows always have a deep community focus.For example, when the designer took over a street in Chalk Farm, London, for one of her early s…
 
 *Published on: Wed, 24 Jul 2024 10:51:41 GMT*
+
+
+## MrBeast
+
+## [New Hair Education Laws Are Tackling the 'Texture Gap'](https://www.highsnobiety.com/p/textured-hair-education-law/)
+
+On July 1, a new Connecticut law requiring that cosmetology and barber schools include textured hair in their curriculum went into effect.The mandate is a step…
+
+*Published on: Wed, 24 Jul 2024 15:53:27 GMT*
 
 
