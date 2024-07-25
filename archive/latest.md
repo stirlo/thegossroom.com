@@ -3,7 +3,7 @@
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
 *Published on: Wed, 24 Jul 2024 21:23:17 GMT*
 
@@ -84,7 +84,7 @@ When the adidas Adistar Cushion 3 launched in the early naughts, the excitement 
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
 *Published on: Wed, 24 Jul 2024 21:23:17 GMT*
 
@@ -165,7 +165,7 @@ When the adidas Adistar Cushion 3 launched in the early naughts, the excitement 
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
 *Published on: Wed, 24 Jul 2024 21:23:17 GMT*
 
@@ -246,7 +246,7 @@ When the adidas Adistar Cushion 3 launched in the early naughts, the excitement 
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
 *Published on: Wed, 24 Jul 2024 21:23:17 GMT*
 
@@ -327,7 +327,7 @@ When the adidas Adistar Cushion 3 launched in the early naughts, the excitement 
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
 *Published on: Wed, 24 Jul 2024 21:23:17 GMT*
 
@@ -408,7 +408,7 @@ When the adidas Adistar Cushion 3 launched in the early naughts, the excitement 
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
 *Published on: Wed, 24 Jul 2024 21:23:17 GMT*
 
@@ -489,7 +489,7 @@ When the adidas Adistar Cushion 3 launched in the early naughts, the excitement 
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
 *Published on: Wed, 24 Jul 2024 21:23:17 GMT*
 
@@ -570,7 +570,7 @@ When the adidas Adistar Cushion 3 launched in the early naughts, the excitement 
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
 *Published on: Wed, 24 Jul 2024 21:23:17 GMT*
 
@@ -651,7 +651,7 @@ When the adidas Adistar Cushion 3 launched in the early naughts, the excitement 
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
 *Published on: Wed, 24 Jul 2024 21:23:17 GMT*
 
@@ -732,7 +732,7 @@ When the adidas Adistar Cushion 3 launched in the early naughts, the excitement 
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
 *Published on: Wed, 24 Jul 2024 21:23:17 GMT*
 
@@ -813,7 +813,7 @@ When the adidas Adistar Cushion 3 launched in the early naughts, the excitement 
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
 *Published on: Wed, 24 Jul 2024 21:23:17 GMT*
 
@@ -894,7 +894,7 @@ When the adidas Adistar Cushion 3 launched in the early naughts, the excitement 
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
 *Published on: Wed, 24 Jul 2024 21:23:17 GMT*
 
@@ -975,7 +975,7 @@ When the adidas Adistar Cushion 3 launched in the early naughts, the excitement 
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
 *Published on: Wed, 24 Jul 2024 21:23:17 GMT*
 
@@ -1056,7 +1056,7 @@ When the adidas Adistar Cushion 3 launched in the early naughts, the excitement 
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
 *Published on: Wed, 24 Jul 2024 21:23:17 GMT*
 
@@ -1137,7 +1137,7 @@ When the adidas Adistar Cushion 3 launched in the early naughts, the excitement 
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
 *Published on: Wed, 24 Jul 2024 21:23:17 GMT*
 
@@ -1218,7 +1218,7 @@ When the adidas Adistar Cushion 3 launched in the early naughts, the excitement 
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
 *Published on: Wed, 24 Jul 2024 21:23:17 GMT*
 
@@ -1299,7 +1299,7 @@ When the adidas Adistar Cushion 3 launched in the early naughts, the excitement 
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
 *Published on: Wed, 24 Jul 2024 21:23:17 GMT*
 
@@ -1380,7 +1380,7 @@ When the adidas Adistar Cushion 3 launched in the early naughts, the excitement 
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
 *Published on: Wed, 24 Jul 2024 21:23:17 GMT*
 
@@ -1461,7 +1461,7 @@ When the adidas Adistar Cushion 3 launched in the early naughts, the excitement 
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
 *Published on: Wed, 24 Jul 2024 21:23:17 GMT*
 
@@ -1542,7 +1542,7 @@ When the adidas Adistar Cushion 3 launched in the early naughts, the excitement 
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
 *Published on: Wed, 24 Jul 2024 21:23:17 GMT*
 
@@ -1623,7 +1623,7 @@ When the adidas Adistar Cushion 3 launched in the early naughts, the excitement 
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
 *Published on: Wed, 24 Jul 2024 21:23:17 GMT*
 
@@ -1704,7 +1704,7 @@ When the adidas Adistar Cushion 3 launched in the early naughts, the excitement 
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
 *Published on: Wed, 24 Jul 2024 21:23:17 GMT*
 
@@ -1785,7 +1785,7 @@ When the adidas Adistar Cushion 3 launched in the early naughts, the excitement 
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
 *Published on: Wed, 24 Jul 2024 21:23:17 GMT*
 
@@ -1866,7 +1866,7 @@ When the adidas Adistar Cushion 3 launched in the early naughts, the excitement 
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
 *Published on: Wed, 24 Jul 2024 21:23:17 GMT*
 
@@ -1947,7 +1947,7 @@ When the adidas Adistar Cushion 3 launched in the early naughts, the excitement 
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
 *Published on: Wed, 24 Jul 2024 21:23:17 GMT*
 
@@ -2028,7 +2028,7 @@ When the adidas Adistar Cushion 3 launched in the early naughts, the excitement 
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
 *Published on: Wed, 24 Jul 2024 21:23:17 GMT*
 
@@ -2109,7 +2109,7 @@ When the adidas Adistar Cushion 3 launched in the early naughts, the excitement 
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
 *Published on: Wed, 24 Jul 2024 21:23:17 GMT*
 
@@ -2190,7 +2190,7 @@ When the adidas Adistar Cushion 3 launched in the early naughts, the excitement 
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
 *Published on: Wed, 24 Jul 2024 21:23:17 GMT*
 
@@ -2271,7 +2271,7 @@ When the adidas Adistar Cushion 3 launched in the early naughts, the excitement 
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
 *Published on: Wed, 24 Jul 2024 21:23:17 GMT*
 
@@ -2352,7 +2352,7 @@ When the adidas Adistar Cushion 3 launched in the early naughts, the excitement 
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
 *Published on: Wed, 24 Jul 2024 21:23:17 GMT*
 
@@ -2433,7 +2433,7 @@ When the adidas Adistar Cushion 3 launched in the early naughts, the excitement 
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
 *Published on: Wed, 24 Jul 2024 21:23:17 GMT*
 
@@ -2514,7 +2514,7 @@ When the adidas Adistar Cushion 3 launched in the early naughts, the excitement 
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
 *Published on: Wed, 24 Jul 2024 21:23:17 GMT*
 
@@ -2595,7 +2595,7 @@ When the adidas Adistar Cushion 3 launched in the early naughts, the excitement 
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
 *Published on: Wed, 24 Jul 2024 21:23:17 GMT*
 
@@ -2676,7 +2676,7 @@ When the adidas Adistar Cushion 3 launched in the early naughts, the excitement 
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
 *Published on: Wed, 24 Jul 2024 21:23:17 GMT*
 
@@ -2757,7 +2757,7 @@ When the adidas Adistar Cushion 3 launched in the early naughts, the excitement 
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
 *Published on: Wed, 24 Jul 2024 21:23:17 GMT*
 
@@ -2838,7 +2838,7 @@ When the adidas Adistar Cushion 3 launched in the early naughts, the excitement 
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
 *Published on: Wed, 24 Jul 2024 21:23:17 GMT*
 
@@ -2919,7 +2919,7 @@ When the adidas Adistar Cushion 3 launched in the early naughts, the excitement 
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
 *Published on: Wed, 24 Jul 2024 21:23:17 GMT*
 
@@ -3000,7 +3000,7 @@ When the adidas Adistar Cushion 3 launched in the early naughts, the excitement 
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
 *Published on: Wed, 24 Jul 2024 21:23:17 GMT*
 
@@ -3081,7 +3081,7 @@ When the adidas Adistar Cushion 3 launched in the early naughts, the excitement 
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
 *Published on: Wed, 24 Jul 2024 21:23:17 GMT*
 
@@ -3162,7 +3162,7 @@ When the adidas Adistar Cushion 3 launched in the early naughts, the excitement 
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
 *Published on: Wed, 24 Jul 2024 21:23:17 GMT*
 
@@ -3243,7 +3243,7 @@ When the adidas Adistar Cushion 3 launched in the early naughts, the excitement 
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
 *Published on: Wed, 24 Jul 2024 21:23:17 GMT*
 
@@ -3324,7 +3324,7 @@ When the adidas Adistar Cushion 3 launched in the early naughts, the excitement 
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
 *Published on: Wed, 24 Jul 2024 21:23:17 GMT*
 
@@ -3405,7 +3405,7 @@ When the adidas Adistar Cushion 3 launched in the early naughts, the excitement 
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
 *Published on: Wed, 24 Jul 2024 21:23:17 GMT*
 
@@ -3486,7 +3486,7 @@ When the adidas Adistar Cushion 3 launched in the early naughts, the excitement 
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
 *Published on: Wed, 24 Jul 2024 21:23:17 GMT*
 
@@ -3567,7 +3567,7 @@ When the adidas Adistar Cushion 3 launched in the early naughts, the excitement 
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
 *Published on: Wed, 24 Jul 2024 21:23:17 GMT*
 
@@ -3648,7 +3648,7 @@ When the adidas Adistar Cushion 3 launched in the early naughts, the excitement 
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
 *Published on: Wed, 24 Jul 2024 21:23:17 GMT*
 
@@ -3729,7 +3729,7 @@ When the adidas Adistar Cushion 3 launched in the early naughts, the excitement 
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
 *Published on: Wed, 24 Jul 2024 21:23:17 GMT*
 
@@ -3810,7 +3810,7 @@ When the adidas Adistar Cushion 3 launched in the early naughts, the excitement 
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
 *Published on: Wed, 24 Jul 2024 21:23:17 GMT*
 
@@ -3891,7 +3891,7 @@ When the adidas Adistar Cushion 3 launched in the early naughts, the excitement 
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
 *Published on: Wed, 24 Jul 2024 21:23:17 GMT*
 
@@ -3972,7 +3972,7 @@ When the adidas Adistar Cushion 3 launched in the early naughts, the excitement 
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
 *Published on: Wed, 24 Jul 2024 21:23:17 GMT*
 
@@ -4053,7 +4053,7 @@ When the adidas Adistar Cushion 3 launched in the early naughts, the excitement 
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
 *Published on: Wed, 24 Jul 2024 21:23:17 GMT*
 
@@ -4134,7 +4134,7 @@ When the adidas Adistar Cushion 3 launched in the early naughts, the excitement 
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
 *Published on: Wed, 24 Jul 2024 21:23:17 GMT*
 
@@ -4215,7 +4215,7 @@ When the adidas Adistar Cushion 3 launched in the early naughts, the excitement 
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
 *Published on: Wed, 24 Jul 2024 21:23:17 GMT*
 
@@ -4296,7 +4296,7 @@ When the adidas Adistar Cushion 3 launched in the early naughts, the excitement 
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
 *Published on: Wed, 24 Jul 2024 21:23:17 GMT*
 
@@ -4377,7 +4377,7 @@ When the adidas Adistar Cushion 3 launched in the early naughts, the excitement 
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
 *Published on: Wed, 24 Jul 2024 21:23:17 GMT*
 
@@ -4458,7 +4458,7 @@ When the adidas Adistar Cushion 3 launched in the early naughts, the excitement 
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
 *Published on: Wed, 24 Jul 2024 21:23:17 GMT*
 
@@ -4539,7 +4539,7 @@ When the adidas Adistar Cushion 3 launched in the early naughts, the excitement 
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
 *Published on: Wed, 24 Jul 2024 21:23:17 GMT*
 
@@ -4620,7 +4620,7 @@ When the adidas Adistar Cushion 3 launched in the early naughts, the excitement 
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
 *Published on: Wed, 24 Jul 2024 21:23:17 GMT*
 
@@ -4701,7 +4701,7 @@ When the adidas Adistar Cushion 3 launched in the early naughts, the excitement 
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
 *Published on: Wed, 24 Jul 2024 21:23:17 GMT*
 
@@ -4782,7 +4782,7 @@ When the adidas Adistar Cushion 3 launched in the early naughts, the excitement 
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
 *Published on: Wed, 24 Jul 2024 21:23:17 GMT*
 
@@ -4863,7 +4863,7 @@ When the adidas Adistar Cushion 3 launched in the early naughts, the excitement 
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
 *Published on: Wed, 24 Jul 2024 21:23:17 GMT*
 
@@ -4944,7 +4944,7 @@ When the adidas Adistar Cushion 3 launched in the early naughts, the excitement 
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
 *Published on: Wed, 24 Jul 2024 21:23:17 GMT*
 
@@ -5025,7 +5025,7 @@ When the adidas Adistar Cushion 3 launched in the early naughts, the excitement 
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
 *Published on: Wed, 24 Jul 2024 21:23:17 GMT*
 
@@ -5106,7 +5106,7 @@ When the adidas Adistar Cushion 3 launched in the early naughts, the excitement 
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
 *Published on: Wed, 24 Jul 2024 21:23:17 GMT*
 
@@ -5187,7 +5187,7 @@ When the adidas Adistar Cushion 3 launched in the early naughts, the excitement 
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
 *Published on: Wed, 24 Jul 2024 21:23:17 GMT*
 
@@ -5268,7 +5268,7 @@ When the adidas Adistar Cushion 3 launched in the early naughts, the excitement 
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
 *Published on: Wed, 24 Jul 2024 21:23:17 GMT*
 
@@ -5349,7 +5349,7 @@ When the adidas Adistar Cushion 3 launched in the early naughts, the excitement 
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
 *Published on: Wed, 24 Jul 2024 21:23:17 GMT*
 
@@ -5430,7 +5430,7 @@ When the adidas Adistar Cushion 3 launched in the early naughts, the excitement 
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
 *Published on: Wed, 24 Jul 2024 21:23:17 GMT*
 
@@ -5511,7 +5511,7 @@ When the adidas Adistar Cushion 3 launched in the early naughts, the excitement 
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
 *Published on: Wed, 24 Jul 2024 21:23:17 GMT*
 
@@ -5592,7 +5592,7 @@ When the adidas Adistar Cushion 3 launched in the early naughts, the excitement 
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
 *Published on: Wed, 24 Jul 2024 21:23:17 GMT*
 
@@ -5673,7 +5673,7 @@ When the adidas Adistar Cushion 3 launched in the early naughts, the excitement 
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
 *Published on: Wed, 24 Jul 2024 21:23:17 GMT*
 
@@ -5754,7 +5754,7 @@ When the adidas Adistar Cushion 3 launched in the early naughts, the excitement 
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
 *Published on: Wed, 24 Jul 2024 21:23:17 GMT*
 
@@ -5835,7 +5835,7 @@ When the adidas Adistar Cushion 3 launched in the early naughts, the excitement 
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
 *Published on: Wed, 24 Jul 2024 21:23:17 GMT*
 
@@ -5916,7 +5916,7 @@ When the adidas Adistar Cushion 3 launched in the early naughts, the excitement 
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
 *Published on: Wed, 24 Jul 2024 21:23:17 GMT*
 
@@ -5997,7 +5997,7 @@ When the adidas Adistar Cushion 3 launched in the early naughts, the excitement 
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
 *Published on: Wed, 24 Jul 2024 21:23:17 GMT*
 
@@ -6078,7 +6078,7 @@ When the adidas Adistar Cushion 3 launched in the early naughts, the excitement 
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
 *Published on: Wed, 24 Jul 2024 21:23:17 GMT*
 
@@ -6159,7 +6159,7 @@ When the adidas Adistar Cushion 3 launched in the early naughts, the excitement 
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
 *Published on: Wed, 24 Jul 2024 21:23:17 GMT*
 
@@ -6240,7 +6240,7 @@ When the adidas Adistar Cushion 3 launched in the early naughts, the excitement 
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
 *Published on: Wed, 24 Jul 2024 21:23:17 GMT*
 
@@ -6321,7 +6321,7 @@ When the adidas Adistar Cushion 3 launched in the early naughts, the excitement 
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
 *Published on: Wed, 24 Jul 2024 21:23:17 GMT*
 
@@ -6402,7 +6402,7 @@ When the adidas Adistar Cushion 3 launched in the early naughts, the excitement 
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
 *Published on: Wed, 24 Jul 2024 21:23:17 GMT*
 
@@ -6483,7 +6483,7 @@ When the adidas Adistar Cushion 3 launched in the early naughts, the excitement 
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
 *Published on: Wed, 24 Jul 2024 21:23:17 GMT*
 
@@ -6564,7 +6564,7 @@ When the adidas Adistar Cushion 3 launched in the early naughts, the excitement 
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
 *Published on: Wed, 24 Jul 2024 21:23:17 GMT*
 
@@ -6645,7 +6645,7 @@ When the adidas Adistar Cushion 3 launched in the early naughts, the excitement 
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
 *Published on: Wed, 24 Jul 2024 21:23:17 GMT*
 
@@ -6726,7 +6726,7 @@ When the adidas Adistar Cushion 3 launched in the early naughts, the excitement 
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
 *Published on: Wed, 24 Jul 2024 21:23:17 GMT*
 
@@ -6807,7 +6807,7 @@ When the adidas Adistar Cushion 3 launched in the early naughts, the excitement 
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
 *Published on: Wed, 24 Jul 2024 21:23:17 GMT*
 
@@ -6888,7 +6888,7 @@ When the adidas Adistar Cushion 3 launched in the early naughts, the excitement 
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
 *Published on: Wed, 24 Jul 2024 21:23:17 GMT*
 
@@ -6969,7 +6969,7 @@ When the adidas Adistar Cushion 3 launched in the early naughts, the excitement 
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
 *Published on: Wed, 24 Jul 2024 21:23:17 GMT*
 
@@ -7050,7 +7050,7 @@ When the adidas Adistar Cushion 3 launched in the early naughts, the excitement 
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
 *Published on: Wed, 24 Jul 2024 21:23:17 GMT*
 
@@ -7131,7 +7131,7 @@ When the adidas Adistar Cushion 3 launched in the early naughts, the excitement 
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
 *Published on: Wed, 24 Jul 2024 21:23:17 GMT*
 
@@ -7212,7 +7212,7 @@ When the adidas Adistar Cushion 3 launched in the early naughts, the excitement 
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
 *Published on: Wed, 24 Jul 2024 21:23:17 GMT*
 
@@ -7293,7 +7293,7 @@ When the adidas Adistar Cushion 3 launched in the early naughts, the excitement 
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
 *Published on: Wed, 24 Jul 2024 21:23:17 GMT*
 
@@ -7374,7 +7374,7 @@ When the adidas Adistar Cushion 3 launched in the early naughts, the excitement 
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
 
-This story was first published on July 22, 2024 and updated on July 24, 2024Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Seve…
+Fashion Month Spring/Summer 2025 is nearly here, and it's bound to be a doozy. Several luxury brands are allegedly negotiating major shake-ups — meaning fashio…
 
 *Published on: Wed, 24 Jul 2024 21:23:17 GMT*
 
