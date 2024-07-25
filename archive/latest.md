@@ -71,6 +71,15 @@ Cuban or camp collar shirts have remained a summer essential for a number of se
 *Published on: Thu, 25 Jul 2024 13:08:00 GMT*
 
 
+## Tim Cook
+
+## [Can adidas Make Its Classic Dad Shoe Cool?](https://www.highsnobiety.com/p/adidas-adistar-3-trend/)
+
+When the adidas Adistar Cushion 3 launched in the early naughts, the excitement didn’t stretch far beyond eager runners wanting a comfy ride on 10-kilometer ru…
+
+*Published on: Thu, 25 Jul 2024 14:32:24 GMT*
+
+
 ## Taylor Swift
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
@@ -141,6 +150,15 @@ Nike’s skateboard-focused SB division has countless variations of its Dunk mod
 Cuban or camp collar shirts have remained a summer essential for a number of seasons now, and it seems like the designs are only getting bolder and trippier.Th…
 
 *Published on: Thu, 25 Jul 2024 13:08:00 GMT*
+
+
+## Taylor Swift
+
+## [Can adidas Make Its Classic Dad Shoe Cool?](https://www.highsnobiety.com/p/adidas-adistar-3-trend/)
+
+When the adidas Adistar Cushion 3 launched in the early naughts, the excitement didn’t stretch far beyond eager runners wanting a comfy ride on 10-kilometer ru…
+
+*Published on: Thu, 25 Jul 2024 14:32:24 GMT*
 
 
 ## Tom Brady
@@ -215,6 +233,15 @@ Cuban or camp collar shirts have remained a summer essential for a number of se
 *Published on: Thu, 25 Jul 2024 13:08:00 GMT*
 
 
+## Tom Brady
+
+## [Can adidas Make Its Classic Dad Shoe Cool?](https://www.highsnobiety.com/p/adidas-adistar-3-trend/)
+
+When the adidas Adistar Cushion 3 launched in the early naughts, the excitement didn’t stretch far beyond eager runners wanting a comfy ride on 10-kilometer ru…
+
+*Published on: Thu, 25 Jul 2024 14:32:24 GMT*
+
+
 ## Tina Fey
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
@@ -285,6 +312,15 @@ Nike’s skateboard-focused SB division has countless variations of its Dunk mod
 Cuban or camp collar shirts have remained a summer essential for a number of seasons now, and it seems like the designs are only getting bolder and trippier.Th…
 
 *Published on: Thu, 25 Jul 2024 13:08:00 GMT*
+
+
+## Tina Fey
+
+## [Can adidas Make Its Classic Dad Shoe Cool?](https://www.highsnobiety.com/p/adidas-adistar-3-trend/)
+
+When the adidas Adistar Cushion 3 launched in the early naughts, the excitement didn’t stretch far beyond eager runners wanting a comfy ride on 10-kilometer ru…
+
+*Published on: Thu, 25 Jul 2024 14:32:24 GMT*
 
 
 ## Steven Yuen
@@ -359,6 +395,15 @@ Cuban or camp collar shirts have remained a summer essential for a number of se
 *Published on: Thu, 25 Jul 2024 13:08:00 GMT*
 
 
+## Steven Yuen
+
+## [Can adidas Make Its Classic Dad Shoe Cool?](https://www.highsnobiety.com/p/adidas-adistar-3-trend/)
+
+When the adidas Adistar Cushion 3 launched in the early naughts, the excitement didn’t stretch far beyond eager runners wanting a comfy ride on 10-kilometer ru…
+
+*Published on: Thu, 25 Jul 2024 14:32:24 GMT*
+
+
 ## Sommer Ray
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
@@ -429,6 +474,15 @@ Nike’s skateboard-focused SB division has countless variations of its Dunk mod
 Cuban or camp collar shirts have remained a summer essential for a number of seasons now, and it seems like the designs are only getting bolder and trippier.Th…
 
 *Published on: Thu, 25 Jul 2024 13:08:00 GMT*
+
+
+## Sommer Ray
+
+## [Can adidas Make Its Classic Dad Shoe Cool?](https://www.highsnobiety.com/p/adidas-adistar-3-trend/)
+
+When the adidas Adistar Cushion 3 launched in the early naughts, the excitement didn’t stretch far beyond eager runners wanting a comfy ride on 10-kilometer ru…
+
+*Published on: Thu, 25 Jul 2024 14:32:24 GMT*
 
 
 ## Sza
@@ -503,6 +557,15 @@ Cuban or camp collar shirts have remained a summer essential for a number of se
 *Published on: Thu, 25 Jul 2024 13:08:00 GMT*
 
 
+## Sza
+
+## [Can adidas Make Its Classic Dad Shoe Cool?](https://www.highsnobiety.com/p/adidas-adistar-3-trend/)
+
+When the adidas Adistar Cushion 3 launched in the early naughts, the excitement didn’t stretch far beyond eager runners wanting a comfy ride on 10-kilometer ru…
+
+*Published on: Thu, 25 Jul 2024 14:32:24 GMT*
+
+
 ## Sydney Sweeney
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
@@ -573,6 +636,15 @@ Nike’s skateboard-focused SB division has countless variations of its Dunk mod
 Cuban or camp collar shirts have remained a summer essential for a number of seasons now, and it seems like the designs are only getting bolder and trippier.Th…
 
 *Published on: Thu, 25 Jul 2024 13:08:00 GMT*
+
+
+## Sydney Sweeney
+
+## [Can adidas Make Its Classic Dad Shoe Cool?](https://www.highsnobiety.com/p/adidas-adistar-3-trend/)
+
+When the adidas Adistar Cushion 3 launched in the early naughts, the excitement didn’t stretch far beyond eager runners wanting a comfy ride on 10-kilometer ru…
+
+*Published on: Thu, 25 Jul 2024 14:32:24 GMT*
 
 
 ## Walton Goggins
@@ -647,6 +719,15 @@ Cuban or camp collar shirts have remained a summer essential for a number of se
 *Published on: Thu, 25 Jul 2024 13:08:00 GMT*
 
 
+## Walton Goggins
+
+## [Can adidas Make Its Classic Dad Shoe Cool?](https://www.highsnobiety.com/p/adidas-adistar-3-trend/)
+
+When the adidas Adistar Cushion 3 launched in the early naughts, the excitement didn’t stretch far beyond eager runners wanting a comfy ride on 10-kilometer ru…
+
+*Published on: Thu, 25 Jul 2024 14:32:24 GMT*
+
+
 ## Tom Holland
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
@@ -717,6 +798,15 @@ Nike’s skateboard-focused SB division has countless variations of its Dunk mod
 Cuban or camp collar shirts have remained a summer essential for a number of seasons now, and it seems like the designs are only getting bolder and trippier.Th…
 
 *Published on: Thu, 25 Jul 2024 13:08:00 GMT*
+
+
+## Tom Holland
+
+## [Can adidas Make Its Classic Dad Shoe Cool?](https://www.highsnobiety.com/p/adidas-adistar-3-trend/)
+
+When the adidas Adistar Cushion 3 launched in the early naughts, the excitement didn’t stretch far beyond eager runners wanting a comfy ride on 10-kilometer ru…
+
+*Published on: Thu, 25 Jul 2024 14:32:24 GMT*
 
 
 ## Gucci Mane
@@ -791,6 +881,15 @@ Cuban or camp collar shirts have remained a summer essential for a number of se
 *Published on: Thu, 25 Jul 2024 13:08:00 GMT*
 
 
+## Gucci Mane
+
+## [Can adidas Make Its Classic Dad Shoe Cool?](https://www.highsnobiety.com/p/adidas-adistar-3-trend/)
+
+When the adidas Adistar Cushion 3 launched in the early naughts, the excitement didn’t stretch far beyond eager runners wanting a comfy ride on 10-kilometer ru…
+
+*Published on: Thu, 25 Jul 2024 14:32:24 GMT*
+
+
 ## Harry Styles
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
@@ -861,6 +960,15 @@ Nike’s skateboard-focused SB division has countless variations of its Dunk mod
 Cuban or camp collar shirts have remained a summer essential for a number of seasons now, and it seems like the designs are only getting bolder and trippier.Th…
 
 *Published on: Thu, 25 Jul 2024 13:08:00 GMT*
+
+
+## Harry Styles
+
+## [Can adidas Make Its Classic Dad Shoe Cool?](https://www.highsnobiety.com/p/adidas-adistar-3-trend/)
+
+When the adidas Adistar Cushion 3 launched in the early naughts, the excitement didn’t stretch far beyond eager runners wanting a comfy ride on 10-kilometer ru…
+
+*Published on: Thu, 25 Jul 2024 14:32:24 GMT*
 
 
 ## Jake Paul
@@ -935,6 +1043,15 @@ Cuban or camp collar shirts have remained a summer essential for a number of se
 *Published on: Thu, 25 Jul 2024 13:08:00 GMT*
 
 
+## Jake Paul
+
+## [Can adidas Make Its Classic Dad Shoe Cool?](https://www.highsnobiety.com/p/adidas-adistar-3-trend/)
+
+When the adidas Adistar Cushion 3 launched in the early naughts, the excitement didn’t stretch far beyond eager runners wanting a comfy ride on 10-kilometer ru…
+
+*Published on: Thu, 25 Jul 2024 14:32:24 GMT*
+
+
 ## Jameela Jamil
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
@@ -1005,6 +1122,15 @@ Nike’s skateboard-focused SB division has countless variations of its Dunk mod
 Cuban or camp collar shirts have remained a summer essential for a number of seasons now, and it seems like the designs are only getting bolder and trippier.Th…
 
 *Published on: Thu, 25 Jul 2024 13:08:00 GMT*
+
+
+## Jameela Jamil
+
+## [Can adidas Make Its Classic Dad Shoe Cool?](https://www.highsnobiety.com/p/adidas-adistar-3-trend/)
+
+When the adidas Adistar Cushion 3 launched in the early naughts, the excitement didn’t stretch far beyond eager runners wanting a comfy ride on 10-kilometer ru…
+
+*Published on: Thu, 25 Jul 2024 14:32:24 GMT*
 
 
 ## Elon Musk
@@ -1079,6 +1205,15 @@ Cuban or camp collar shirts have remained a summer essential for a number of se
 *Published on: Thu, 25 Jul 2024 13:08:00 GMT*
 
 
+## Elon Musk
+
+## [Can adidas Make Its Classic Dad Shoe Cool?](https://www.highsnobiety.com/p/adidas-adistar-3-trend/)
+
+When the adidas Adistar Cushion 3 launched in the early naughts, the excitement didn’t stretch far beyond eager runners wanting a comfy ride on 10-kilometer ru…
+
+*Published on: Thu, 25 Jul 2024 14:32:24 GMT*
+
+
 ## Gabrielle Union
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
@@ -1149,6 +1284,15 @@ Nike’s skateboard-focused SB division has countless variations of its Dunk mod
 Cuban or camp collar shirts have remained a summer essential for a number of seasons now, and it seems like the designs are only getting bolder and trippier.Th…
 
 *Published on: Thu, 25 Jul 2024 13:08:00 GMT*
+
+
+## Gabrielle Union
+
+## [Can adidas Make Its Classic Dad Shoe Cool?](https://www.highsnobiety.com/p/adidas-adistar-3-trend/)
+
+When the adidas Adistar Cushion 3 launched in the early naughts, the excitement didn’t stretch far beyond eager runners wanting a comfy ride on 10-kilometer ru…
+
+*Published on: Thu, 25 Jul 2024 14:32:24 GMT*
 
 
 ## Giancarlo Esposito
@@ -1223,6 +1367,15 @@ Cuban or camp collar shirts have remained a summer essential for a number of se
 *Published on: Thu, 25 Jul 2024 13:08:00 GMT*
 
 
+## Giancarlo Esposito
+
+## [Can adidas Make Its Classic Dad Shoe Cool?](https://www.highsnobiety.com/p/adidas-adistar-3-trend/)
+
+When the adidas Adistar Cushion 3 launched in the early naughts, the excitement didn’t stretch far beyond eager runners wanting a comfy ride on 10-kilometer ru…
+
+*Published on: Thu, 25 Jul 2024 14:32:24 GMT*
+
+
 ## Gillian Jacobs
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
@@ -1293,6 +1446,15 @@ Nike’s skateboard-focused SB division has countless variations of its Dunk mod
 Cuban or camp collar shirts have remained a summer essential for a number of seasons now, and it seems like the designs are only getting bolder and trippier.Th…
 
 *Published on: Thu, 25 Jul 2024 13:08:00 GMT*
+
+
+## Gillian Jacobs
+
+## [Can adidas Make Its Classic Dad Shoe Cool?](https://www.highsnobiety.com/p/adidas-adistar-3-trend/)
+
+When the adidas Adistar Cushion 3 launched in the early naughts, the excitement didn’t stretch far beyond eager runners wanting a comfy ride on 10-kilometer ru…
+
+*Published on: Thu, 25 Jul 2024 14:32:24 GMT*
 
 
 ## Jason Mantzoukas
@@ -1367,6 +1529,15 @@ Cuban or camp collar shirts have remained a summer essential for a number of se
 *Published on: Thu, 25 Jul 2024 13:08:00 GMT*
 
 
+## Jason Mantzoukas
+
+## [Can adidas Make Its Classic Dad Shoe Cool?](https://www.highsnobiety.com/p/adidas-adistar-3-trend/)
+
+When the adidas Adistar Cushion 3 launched in the early naughts, the excitement didn’t stretch far beyond eager runners wanting a comfy ride on 10-kilometer ru…
+
+*Published on: Thu, 25 Jul 2024 14:32:24 GMT*
+
+
 ## JB Smoove
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
@@ -1437,6 +1608,15 @@ Nike’s skateboard-focused SB division has countless variations of its Dunk mod
 Cuban or camp collar shirts have remained a summer essential for a number of seasons now, and it seems like the designs are only getting bolder and trippier.Th…
 
 *Published on: Thu, 25 Jul 2024 13:08:00 GMT*
+
+
+## JB Smoove
+
+## [Can adidas Make Its Classic Dad Shoe Cool?](https://www.highsnobiety.com/p/adidas-adistar-3-trend/)
+
+When the adidas Adistar Cushion 3 launched in the early naughts, the excitement didn’t stretch far beyond eager runners wanting a comfy ride on 10-kilometer ru…
+
+*Published on: Thu, 25 Jul 2024 14:32:24 GMT*
 
 
 ## Madison Pettis
@@ -1511,6 +1691,15 @@ Cuban or camp collar shirts have remained a summer essential for a number of se
 *Published on: Thu, 25 Jul 2024 13:08:00 GMT*
 
 
+## Madison Pettis
+
+## [Can adidas Make Its Classic Dad Shoe Cool?](https://www.highsnobiety.com/p/adidas-adistar-3-trend/)
+
+When the adidas Adistar Cushion 3 launched in the early naughts, the excitement didn’t stretch far beyond eager runners wanting a comfy ride on 10-kilometer ru…
+
+*Published on: Thu, 25 Jul 2024 14:32:24 GMT*
+
+
 ## Austin Butler
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
@@ -1581,6 +1770,15 @@ Nike’s skateboard-focused SB division has countless variations of its Dunk mod
 Cuban or camp collar shirts have remained a summer essential for a number of seasons now, and it seems like the designs are only getting bolder and trippier.Th…
 
 *Published on: Thu, 25 Jul 2024 13:08:00 GMT*
+
+
+## Austin Butler
+
+## [Can adidas Make Its Classic Dad Shoe Cool?](https://www.highsnobiety.com/p/adidas-adistar-3-trend/)
+
+When the adidas Adistar Cushion 3 launched in the early naughts, the excitement didn’t stretch far beyond eager runners wanting a comfy ride on 10-kilometer ru…
+
+*Published on: Thu, 25 Jul 2024 14:32:24 GMT*
 
 
 ## Mark Zuckerberg
@@ -1655,6 +1853,15 @@ Cuban or camp collar shirts have remained a summer essential for a number of se
 *Published on: Thu, 25 Jul 2024 13:08:00 GMT*
 
 
+## Mark Zuckerberg
+
+## [Can adidas Make Its Classic Dad Shoe Cool?](https://www.highsnobiety.com/p/adidas-adistar-3-trend/)
+
+When the adidas Adistar Cushion 3 launched in the early naughts, the excitement didn’t stretch far beyond eager runners wanting a comfy ride on 10-kilometer ru…
+
+*Published on: Thu, 25 Jul 2024 14:32:24 GMT*
+
+
 ## Ariana Grande
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
@@ -1725,6 +1932,15 @@ Nike’s skateboard-focused SB division has countless variations of its Dunk mod
 Cuban or camp collar shirts have remained a summer essential for a number of seasons now, and it seems like the designs are only getting bolder and trippier.Th…
 
 *Published on: Thu, 25 Jul 2024 13:08:00 GMT*
+
+
+## Ariana Grande
+
+## [Can adidas Make Its Classic Dad Shoe Cool?](https://www.highsnobiety.com/p/adidas-adistar-3-trend/)
+
+When the adidas Adistar Cushion 3 launched in the early naughts, the excitement didn’t stretch far beyond eager runners wanting a comfy ride on 10-kilometer ru…
+
+*Published on: Thu, 25 Jul 2024 14:32:24 GMT*
 
 
 ## Livvy Dunne
@@ -1799,6 +2015,15 @@ Cuban or camp collar shirts have remained a summer essential for a number of se
 *Published on: Thu, 25 Jul 2024 13:08:00 GMT*
 
 
+## Livvy Dunne
+
+## [Can adidas Make Its Classic Dad Shoe Cool?](https://www.highsnobiety.com/p/adidas-adistar-3-trend/)
+
+When the adidas Adistar Cushion 3 launched in the early naughts, the excitement didn’t stretch far beyond eager runners wanting a comfy ride on 10-kilometer ru…
+
+*Published on: Thu, 25 Jul 2024 14:32:24 GMT*
+
+
 ## Ali Wong
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
@@ -1869,6 +2094,15 @@ Nike’s skateboard-focused SB division has countless variations of its Dunk mod
 Cuban or camp collar shirts have remained a summer essential for a number of seasons now, and it seems like the designs are only getting bolder and trippier.Th…
 
 *Published on: Thu, 25 Jul 2024 13:08:00 GMT*
+
+
+## Ali Wong
+
+## [Can adidas Make Its Classic Dad Shoe Cool?](https://www.highsnobiety.com/p/adidas-adistar-3-trend/)
+
+When the adidas Adistar Cushion 3 launched in the early naughts, the excitement didn’t stretch far beyond eager runners wanting a comfy ride on 10-kilometer ru…
+
+*Published on: Thu, 25 Jul 2024 14:32:24 GMT*
 
 
 ## Lizzo
@@ -1943,6 +2177,15 @@ Cuban or camp collar shirts have remained a summer essential for a number of se
 *Published on: Thu, 25 Jul 2024 13:08:00 GMT*
 
 
+## Lizzo
+
+## [Can adidas Make Its Classic Dad Shoe Cool?](https://www.highsnobiety.com/p/adidas-adistar-3-trend/)
+
+When the adidas Adistar Cushion 3 launched in the early naughts, the excitement didn’t stretch far beyond eager runners wanting a comfy ride on 10-kilometer ru…
+
+*Published on: Thu, 25 Jul 2024 14:32:24 GMT*
+
+
 ## Alison Brie
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
@@ -2013,6 +2256,15 @@ Nike’s skateboard-focused SB division has countless variations of its Dunk mod
 Cuban or camp collar shirts have remained a summer essential for a number of seasons now, and it seems like the designs are only getting bolder and trippier.Th…
 
 *Published on: Thu, 25 Jul 2024 13:08:00 GMT*
+
+
+## Alison Brie
+
+## [Can adidas Make Its Classic Dad Shoe Cool?](https://www.highsnobiety.com/p/adidas-adistar-3-trend/)
+
+When the adidas Adistar Cushion 3 launched in the early naughts, the excitement didn’t stretch far beyond eager runners wanting a comfy ride on 10-kilometer ru…
+
+*Published on: Thu, 25 Jul 2024 14:32:24 GMT*
 
 
 ## Lil Wayne
@@ -2087,6 +2339,15 @@ Cuban or camp collar shirts have remained a summer essential for a number of se
 *Published on: Thu, 25 Jul 2024 13:08:00 GMT*
 
 
+## Lil Wayne
+
+## [Can adidas Make Its Classic Dad Shoe Cool?](https://www.highsnobiety.com/p/adidas-adistar-3-trend/)
+
+When the adidas Adistar Cushion 3 launched in the early naughts, the excitement didn’t stretch far beyond eager runners wanting a comfy ride on 10-kilometer ru…
+
+*Published on: Thu, 25 Jul 2024 14:32:24 GMT*
+
+
 ## Adele
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
@@ -2157,6 +2418,15 @@ Nike’s skateboard-focused SB division has countless variations of its Dunk mod
 Cuban or camp collar shirts have remained a summer essential for a number of seasons now, and it seems like the designs are only getting bolder and trippier.Th…
 
 *Published on: Thu, 25 Jul 2024 13:08:00 GMT*
+
+
+## Adele
+
+## [Can adidas Make Its Classic Dad Shoe Cool?](https://www.highsnobiety.com/p/adidas-adistar-3-trend/)
+
+When the adidas Adistar Cushion 3 launched in the early naughts, the excitement didn’t stretch far beyond eager runners wanting a comfy ride on 10-kilometer ru…
+
+*Published on: Thu, 25 Jul 2024 14:32:24 GMT*
 
 
 ## Lindsay Lohan
@@ -2231,6 +2501,15 @@ Cuban or camp collar shirts have remained a summer essential for a number of se
 *Published on: Thu, 25 Jul 2024 13:08:00 GMT*
 
 
+## Lindsay Lohan
+
+## [Can adidas Make Its Classic Dad Shoe Cool?](https://www.highsnobiety.com/p/adidas-adistar-3-trend/)
+
+When the adidas Adistar Cushion 3 launched in the early naughts, the excitement didn’t stretch far beyond eager runners wanting a comfy ride on 10-kilometer ru…
+
+*Published on: Thu, 25 Jul 2024 14:32:24 GMT*
+
+
 ## Addison Rae
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
@@ -2301,6 +2580,15 @@ Nike’s skateboard-focused SB division has countless variations of its Dunk mod
 Cuban or camp collar shirts have remained a summer essential for a number of seasons now, and it seems like the designs are only getting bolder and trippier.Th…
 
 *Published on: Thu, 25 Jul 2024 13:08:00 GMT*
+
+
+## Addison Rae
+
+## [Can adidas Make Its Classic Dad Shoe Cool?](https://www.highsnobiety.com/p/adidas-adistar-3-trend/)
+
+When the adidas Adistar Cushion 3 launched in the early naughts, the excitement didn’t stretch far beyond eager runners wanting a comfy ride on 10-kilometer ru…
+
+*Published on: Thu, 25 Jul 2024 14:32:24 GMT*
 
 
 ## Latto
@@ -2375,6 +2663,15 @@ Cuban or camp collar shirts have remained a summer essential for a number of se
 *Published on: Thu, 25 Jul 2024 13:08:00 GMT*
 
 
+## Latto
+
+## [Can adidas Make Its Classic Dad Shoe Cool?](https://www.highsnobiety.com/p/adidas-adistar-3-trend/)
+
+When the adidas Adistar Cushion 3 launched in the early naughts, the excitement didn’t stretch far beyond eager runners wanting a comfy ride on 10-kilometer ru…
+
+*Published on: Thu, 25 Jul 2024 14:32:24 GMT*
+
+
 ## Aaron Paul
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
@@ -2445,6 +2742,15 @@ Nike’s skateboard-focused SB division has countless variations of its Dunk mod
 Cuban or camp collar shirts have remained a summer essential for a number of seasons now, and it seems like the designs are only getting bolder and trippier.Th…
 
 *Published on: Thu, 25 Jul 2024 13:08:00 GMT*
+
+
+## Aaron Paul
+
+## [Can adidas Make Its Classic Dad Shoe Cool?](https://www.highsnobiety.com/p/adidas-adistar-3-trend/)
+
+When the adidas Adistar Cushion 3 launched in the early naughts, the excitement didn’t stretch far beyond eager runners wanting a comfy ride on 10-kilometer ru…
+
+*Published on: Thu, 25 Jul 2024 14:32:24 GMT*
 
 
 ## LeBron James
@@ -2519,6 +2825,15 @@ Cuban or camp collar shirts have remained a summer essential for a number of se
 *Published on: Thu, 25 Jul 2024 13:08:00 GMT*
 
 
+## LeBron James
+
+## [Can adidas Make Its Classic Dad Shoe Cool?](https://www.highsnobiety.com/p/adidas-adistar-3-trend/)
+
+When the adidas Adistar Cushion 3 launched in the early naughts, the excitement didn’t stretch far beyond eager runners wanting a comfy ride on 10-kilometer ru…
+
+*Published on: Thu, 25 Jul 2024 14:32:24 GMT*
+
+
 ## 50 Cent
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
@@ -2589,6 +2904,15 @@ Nike’s skateboard-focused SB division has countless variations of its Dunk mod
 Cuban or camp collar shirts have remained a summer essential for a number of seasons now, and it seems like the designs are only getting bolder and trippier.Th…
 
 *Published on: Thu, 25 Jul 2024 13:08:00 GMT*
+
+
+## 50 Cent
+
+## [Can adidas Make Its Classic Dad Shoe Cool?](https://www.highsnobiety.com/p/adidas-adistar-3-trend/)
+
+When the adidas Adistar Cushion 3 launched in the early naughts, the excitement didn’t stretch far beyond eager runners wanting a comfy ride on 10-kilometer ru…
+
+*Published on: Thu, 25 Jul 2024 14:32:24 GMT*
 
 
 ## Kesha
@@ -2663,6 +2987,15 @@ Cuban or camp collar shirts have remained a summer essential for a number of se
 *Published on: Thu, 25 Jul 2024 13:08:00 GMT*
 
 
+## Kesha
+
+## [Can adidas Make Its Classic Dad Shoe Cool?](https://www.highsnobiety.com/p/adidas-adistar-3-trend/)
+
+When the adidas Adistar Cushion 3 launched in the early naughts, the excitement didn’t stretch far beyond eager runners wanting a comfy ride on 10-kilometer ru…
+
+*Published on: Thu, 25 Jul 2024 14:32:24 GMT*
+
+
 ## 21 Savage
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
@@ -2733,6 +3066,15 @@ Nike’s skateboard-focused SB division has countless variations of its Dunk mod
 Cuban or camp collar shirts have remained a summer essential for a number of seasons now, and it seems like the designs are only getting bolder and trippier.Th…
 
 *Published on: Thu, 25 Jul 2024 13:08:00 GMT*
+
+
+## 21 Savage
+
+## [Can adidas Make Its Classic Dad Shoe Cool?](https://www.highsnobiety.com/p/adidas-adistar-3-trend/)
+
+When the adidas Adistar Cushion 3 launched in the early naughts, the excitement didn’t stretch far beyond eager runners wanting a comfy ride on 10-kilometer ru…
+
+*Published on: Thu, 25 Jul 2024 14:32:24 GMT*
 
 
 ## Larry David
@@ -2807,6 +3149,15 @@ Cuban or camp collar shirts have remained a summer essential for a number of se
 *Published on: Thu, 25 Jul 2024 13:08:00 GMT*
 
 
+## Larry David
+
+## [Can adidas Make Its Classic Dad Shoe Cool?](https://www.highsnobiety.com/p/adidas-adistar-3-trend/)
+
+When the adidas Adistar Cushion 3 launched in the early naughts, the excitement didn’t stretch far beyond eager runners wanting a comfy ride on 10-kilometer ru…
+
+*Published on: Thu, 25 Jul 2024 14:32:24 GMT*
+
+
 ## Seth Rogan
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
@@ -2877,6 +3228,15 @@ Nike’s skateboard-focused SB division has countless variations of its Dunk mod
 Cuban or camp collar shirts have remained a summer essential for a number of seasons now, and it seems like the designs are only getting bolder and trippier.Th…
 
 *Published on: Thu, 25 Jul 2024 13:08:00 GMT*
+
+
+## Seth Rogan
+
+## [Can adidas Make Its Classic Dad Shoe Cool?](https://www.highsnobiety.com/p/adidas-adistar-3-trend/)
+
+When the adidas Adistar Cushion 3 launched in the early naughts, the excitement didn’t stretch far beyond eager runners wanting a comfy ride on 10-kilometer ru…
+
+*Published on: Thu, 25 Jul 2024 14:32:24 GMT*
 
 
 ## Simone Biles
@@ -2951,6 +3311,15 @@ Cuban or camp collar shirts have remained a summer essential for a number of se
 *Published on: Thu, 25 Jul 2024 13:08:00 GMT*
 
 
+## Simone Biles
+
+## [Can adidas Make Its Classic Dad Shoe Cool?](https://www.highsnobiety.com/p/adidas-adistar-3-trend/)
+
+When the adidas Adistar Cushion 3 launched in the early naughts, the excitement didn’t stretch far beyond eager runners wanting a comfy ride on 10-kilometer ru…
+
+*Published on: Thu, 25 Jul 2024 14:32:24 GMT*
+
+
 ## Pete Davidson
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
@@ -3021,6 +3390,15 @@ Nike’s skateboard-focused SB division has countless variations of its Dunk mod
 Cuban or camp collar shirts have remained a summer essential for a number of seasons now, and it seems like the designs are only getting bolder and trippier.Th…
 
 *Published on: Thu, 25 Jul 2024 13:08:00 GMT*
+
+
+## Pete Davidson
+
+## [Can adidas Make Its Classic Dad Shoe Cool?](https://www.highsnobiety.com/p/adidas-adistar-3-trend/)
+
+When the adidas Adistar Cushion 3 launched in the early naughts, the excitement didn’t stretch far beyond eager runners wanting a comfy ride on 10-kilometer ru…
+
+*Published on: Thu, 25 Jul 2024 14:32:24 GMT*
 
 
 ## Prince Harry
@@ -3095,6 +3473,15 @@ Cuban or camp collar shirts have remained a summer essential for a number of se
 *Published on: Thu, 25 Jul 2024 13:08:00 GMT*
 
 
+## Prince Harry
+
+## [Can adidas Make Its Classic Dad Shoe Cool?](https://www.highsnobiety.com/p/adidas-adistar-3-trend/)
+
+When the adidas Adistar Cushion 3 launched in the early naughts, the excitement didn’t stretch far beyond eager runners wanting a comfy ride on 10-kilometer ru…
+
+*Published on: Thu, 25 Jul 2024 14:32:24 GMT*
+
+
 ## Princess of Wales
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
@@ -3165,6 +3552,15 @@ Nike’s skateboard-focused SB division has countless variations of its Dunk mod
 Cuban or camp collar shirts have remained a summer essential for a number of seasons now, and it seems like the designs are only getting bolder and trippier.Th…
 
 *Published on: Thu, 25 Jul 2024 13:08:00 GMT*
+
+
+## Princess of Wales
+
+## [Can adidas Make Its Classic Dad Shoe Cool?](https://www.highsnobiety.com/p/adidas-adistar-3-trend/)
+
+When the adidas Adistar Cushion 3 launched in the early naughts, the excitement didn’t stretch far beyond eager runners wanting a comfy ride on 10-kilometer ru…
+
+*Published on: Thu, 25 Jul 2024 14:32:24 GMT*
 
 
 ## Rachel McAdams
@@ -3239,6 +3635,15 @@ Cuban or camp collar shirts have remained a summer essential for a number of se
 *Published on: Thu, 25 Jul 2024 13:08:00 GMT*
 
 
+## Rachel McAdams
+
+## [Can adidas Make Its Classic Dad Shoe Cool?](https://www.highsnobiety.com/p/adidas-adistar-3-trend/)
+
+When the adidas Adistar Cushion 3 launched in the early naughts, the excitement didn’t stretch far beyond eager runners wanting a comfy ride on 10-kilometer ru…
+
+*Published on: Thu, 25 Jul 2024 14:32:24 GMT*
+
+
 ## Reneé Rapp
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
@@ -3309,6 +3714,15 @@ Nike’s skateboard-focused SB division has countless variations of its Dunk mod
 Cuban or camp collar shirts have remained a summer essential for a number of seasons now, and it seems like the designs are only getting bolder and trippier.Th…
 
 *Published on: Thu, 25 Jul 2024 13:08:00 GMT*
+
+
+## Reneé Rapp
+
+## [Can adidas Make Its Classic Dad Shoe Cool?](https://www.highsnobiety.com/p/adidas-adistar-3-trend/)
+
+When the adidas Adistar Cushion 3 launched in the early naughts, the excitement didn’t stretch far beyond eager runners wanting a comfy ride on 10-kilometer ru…
+
+*Published on: Thu, 25 Jul 2024 14:32:24 GMT*
 
 
 ## Rick Ross
@@ -3383,6 +3797,15 @@ Cuban or camp collar shirts have remained a summer essential for a number of se
 *Published on: Thu, 25 Jul 2024 13:08:00 GMT*
 
 
+## Rick Ross
+
+## [Can adidas Make Its Classic Dad Shoe Cool?](https://www.highsnobiety.com/p/adidas-adistar-3-trend/)
+
+When the adidas Adistar Cushion 3 launched in the early naughts, the excitement didn’t stretch far beyond eager runners wanting a comfy ride on 10-kilometer ru…
+
+*Published on: Thu, 25 Jul 2024 14:32:24 GMT*
+
+
 ## Sam Ashgari
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
@@ -3453,6 +3876,15 @@ Nike’s skateboard-focused SB division has countless variations of its Dunk mod
 Cuban or camp collar shirts have remained a summer essential for a number of seasons now, and it seems like the designs are only getting bolder and trippier.Th…
 
 *Published on: Thu, 25 Jul 2024 13:08:00 GMT*
+
+
+## Sam Ashgari
+
+## [Can adidas Make Its Classic Dad Shoe Cool?](https://www.highsnobiety.com/p/adidas-adistar-3-trend/)
+
+When the adidas Adistar Cushion 3 launched in the early naughts, the excitement didn’t stretch far beyond eager runners wanting a comfy ride on 10-kilometer ru…
+
+*Published on: Thu, 25 Jul 2024 14:32:24 GMT*
 
 
 ## Sandra Oh
@@ -3527,6 +3959,15 @@ Cuban or camp collar shirts have remained a summer essential for a number of se
 *Published on: Thu, 25 Jul 2024 13:08:00 GMT*
 
 
+## Sandra Oh
+
+## [Can adidas Make Its Classic Dad Shoe Cool?](https://www.highsnobiety.com/p/adidas-adistar-3-trend/)
+
+When the adidas Adistar Cushion 3 launched in the early naughts, the excitement didn’t stretch far beyond eager runners wanting a comfy ride on 10-kilometer ru…
+
+*Published on: Thu, 25 Jul 2024 14:32:24 GMT*
+
+
 ## Donald Trump
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
@@ -3597,6 +4038,15 @@ Nike’s skateboard-focused SB division has countless variations of its Dunk mod
 Cuban or camp collar shirts have remained a summer essential for a number of seasons now, and it seems like the designs are only getting bolder and trippier.Th…
 
 *Published on: Thu, 25 Jul 2024 13:08:00 GMT*
+
+
+## Donald Trump
+
+## [Can adidas Make Its Classic Dad Shoe Cool?](https://www.highsnobiety.com/p/adidas-adistar-3-trend/)
+
+When the adidas Adistar Cushion 3 launched in the early naughts, the excitement didn’t stretch far beyond eager runners wanting a comfy ride on 10-kilometer ru…
+
+*Published on: Thu, 25 Jul 2024 14:32:24 GMT*
 
 
 ## Diddy
@@ -3671,6 +4121,15 @@ Cuban or camp collar shirts have remained a summer essential for a number of se
 *Published on: Thu, 25 Jul 2024 13:08:00 GMT*
 
 
+## Diddy
+
+## [Can adidas Make Its Classic Dad Shoe Cool?](https://www.highsnobiety.com/p/adidas-adistar-3-trend/)
+
+When the adidas Adistar Cushion 3 launched in the early naughts, the excitement didn’t stretch far beyond eager runners wanting a comfy ride on 10-kilometer ru…
+
+*Published on: Thu, 25 Jul 2024 14:32:24 GMT*
+
+
 ## City Girls
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
@@ -3741,6 +4200,15 @@ Nike’s skateboard-focused SB division has countless variations of its Dunk mod
 Cuban or camp collar shirts have remained a summer essential for a number of seasons now, and it seems like the designs are only getting bolder and trippier.Th…
 
 *Published on: Thu, 25 Jul 2024 13:08:00 GMT*
+
+
+## City Girls
+
+## [Can adidas Make Its Classic Dad Shoe Cool?](https://www.highsnobiety.com/p/adidas-adistar-3-trend/)
+
+When the adidas Adistar Cushion 3 launched in the early naughts, the excitement didn’t stretch far beyond eager runners wanting a comfy ride on 10-kilometer ru…
+
+*Published on: Thu, 25 Jul 2024 14:32:24 GMT*
 
 
 ## Chloe Bailey
@@ -3815,6 +4283,15 @@ Cuban or camp collar shirts have remained a summer essential for a number of se
 *Published on: Thu, 25 Jul 2024 13:08:00 GMT*
 
 
+## Chloe Bailey
+
+## [Can adidas Make Its Classic Dad Shoe Cool?](https://www.highsnobiety.com/p/adidas-adistar-3-trend/)
+
+When the adidas Adistar Cushion 3 launched in the early naughts, the excitement didn’t stretch far beyond eager runners wanting a comfy ride on 10-kilometer ru…
+
+*Published on: Thu, 25 Jul 2024 14:32:24 GMT*
+
+
 ## Charli D Amelio
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
@@ -3885,6 +4362,15 @@ Nike’s skateboard-focused SB division has countless variations of its Dunk mod
 Cuban or camp collar shirts have remained a summer essential for a number of seasons now, and it seems like the designs are only getting bolder and trippier.Th…
 
 *Published on: Thu, 25 Jul 2024 13:08:00 GMT*
+
+
+## Charli D Amelio
+
+## [Can adidas Make Its Classic Dad Shoe Cool?](https://www.highsnobiety.com/p/adidas-adistar-3-trend/)
+
+When the adidas Adistar Cushion 3 launched in the early naughts, the excitement didn’t stretch far beyond eager runners wanting a comfy ride on 10-kilometer ru…
+
+*Published on: Thu, 25 Jul 2024 14:32:24 GMT*
 
 
 ## Cardi B
@@ -3959,6 +4445,15 @@ Cuban or camp collar shirts have remained a summer essential for a number of se
 *Published on: Thu, 25 Jul 2024 13:08:00 GMT*
 
 
+## Cardi B
+
+## [Can adidas Make Its Classic Dad Shoe Cool?](https://www.highsnobiety.com/p/adidas-adistar-3-trend/)
+
+When the adidas Adistar Cushion 3 launched in the early naughts, the excitement didn’t stretch far beyond eager runners wanting a comfy ride on 10-kilometer ru…
+
+*Published on: Thu, 25 Jul 2024 14:32:24 GMT*
+
+
 ## Bryan Cranston
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
@@ -4029,6 +4524,15 @@ Nike’s skateboard-focused SB division has countless variations of its Dunk mod
 Cuban or camp collar shirts have remained a summer essential for a number of seasons now, and it seems like the designs are only getting bolder and trippier.Th…
 
 *Published on: Thu, 25 Jul 2024 13:08:00 GMT*
+
+
+## Bryan Cranston
+
+## [Can adidas Make Its Classic Dad Shoe Cool?](https://www.highsnobiety.com/p/adidas-adistar-3-trend/)
+
+When the adidas Adistar Cushion 3 launched in the early naughts, the excitement didn’t stretch far beyond eager runners wanting a comfy ride on 10-kilometer ru…
+
+*Published on: Thu, 25 Jul 2024 14:32:24 GMT*
 
 
 ## Brielle Biermann
@@ -4103,6 +4607,15 @@ Cuban or camp collar shirts have remained a summer essential for a number of se
 *Published on: Thu, 25 Jul 2024 13:08:00 GMT*
 
 
+## Brielle Biermann
+
+## [Can adidas Make Its Classic Dad Shoe Cool?](https://www.highsnobiety.com/p/adidas-adistar-3-trend/)
+
+When the adidas Adistar Cushion 3 launched in the early naughts, the excitement didn’t stretch far beyond eager runners wanting a comfy ride on 10-kilometer ru…
+
+*Published on: Thu, 25 Jul 2024 14:32:24 GMT*
+
+
 ## Dua Lipa
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
@@ -4173,6 +4686,15 @@ Nike’s skateboard-focused SB division has countless variations of its Dunk mod
 Cuban or camp collar shirts have remained a summer essential for a number of seasons now, and it seems like the designs are only getting bolder and trippier.Th…
 
 *Published on: Thu, 25 Jul 2024 13:08:00 GMT*
+
+
+## Dua Lipa
+
+## [Can adidas Make Its Classic Dad Shoe Cool?](https://www.highsnobiety.com/p/adidas-adistar-3-trend/)
+
+When the adidas Adistar Cushion 3 launched in the early naughts, the excitement didn’t stretch far beyond eager runners wanting a comfy ride on 10-kilometer ru…
+
+*Published on: Thu, 25 Jul 2024 14:32:24 GMT*
 
 
 ## Drake
@@ -4247,6 +4769,15 @@ Cuban or camp collar shirts have remained a summer essential for a number of se
 *Published on: Thu, 25 Jul 2024 13:08:00 GMT*
 
 
+## Drake
+
+## [Can adidas Make Its Classic Dad Shoe Cool?](https://www.highsnobiety.com/p/adidas-adistar-3-trend/)
+
+When the adidas Adistar Cushion 3 launched in the early naughts, the excitement didn’t stretch far beyond eager runners wanting a comfy ride on 10-kilometer ru…
+
+*Published on: Thu, 25 Jul 2024 14:32:24 GMT*
+
+
 ## Jenner
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
@@ -4317,6 +4848,15 @@ Nike’s skateboard-focused SB division has countless variations of its Dunk mod
 Cuban or camp collar shirts have remained a summer essential for a number of seasons now, and it seems like the designs are only getting bolder and trippier.Th…
 
 *Published on: Thu, 25 Jul 2024 13:08:00 GMT*
+
+
+## Jenner
+
+## [Can adidas Make Its Classic Dad Shoe Cool?](https://www.highsnobiety.com/p/adidas-adistar-3-trend/)
+
+When the adidas Adistar Cushion 3 launched in the early naughts, the excitement didn’t stretch far beyond eager runners wanting a comfy ride on 10-kilometer ru…
+
+*Published on: Thu, 25 Jul 2024 14:32:24 GMT*
 
 
 ## J. Cole
@@ -4391,6 +4931,15 @@ Cuban or camp collar shirts have remained a summer essential for a number of se
 *Published on: Thu, 25 Jul 2024 13:08:00 GMT*
 
 
+## J. Cole
+
+## [Can adidas Make Its Classic Dad Shoe Cool?](https://www.highsnobiety.com/p/adidas-adistar-3-trend/)
+
+When the adidas Adistar Cushion 3 launched in the early naughts, the excitement didn’t stretch far beyond eager runners wanting a comfy ride on 10-kilometer ru…
+
+*Published on: Thu, 25 Jul 2024 14:32:24 GMT*
+
+
 ## Jerrod Carmichael
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
@@ -4461,6 +5010,15 @@ Nike’s skateboard-focused SB division has countless variations of its Dunk mod
 Cuban or camp collar shirts have remained a summer essential for a number of seasons now, and it seems like the designs are only getting bolder and trippier.Th…
 
 *Published on: Thu, 25 Jul 2024 13:08:00 GMT*
+
+
+## Jerrod Carmichael
+
+## [Can adidas Make Its Classic Dad Shoe Cool?](https://www.highsnobiety.com/p/adidas-adistar-3-trend/)
+
+When the adidas Adistar Cushion 3 launched in the early naughts, the excitement didn’t stretch far beyond eager runners wanting a comfy ride on 10-kilometer ru…
+
+*Published on: Thu, 25 Jul 2024 14:32:24 GMT*
 
 
 ## Jennifer Lawrence
@@ -4535,6 +5093,15 @@ Cuban or camp collar shirts have remained a summer essential for a number of se
 *Published on: Thu, 25 Jul 2024 13:08:00 GMT*
 
 
+## Jennifer Lawrence
+
+## [Can adidas Make Its Classic Dad Shoe Cool?](https://www.highsnobiety.com/p/adidas-adistar-3-trend/)
+
+When the adidas Adistar Cushion 3 launched in the early naughts, the excitement didn’t stretch far beyond eager runners wanting a comfy ride on 10-kilometer ru…
+
+*Published on: Thu, 25 Jul 2024 14:32:24 GMT*
+
+
 ## Joe Biden
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
@@ -4605,6 +5172,15 @@ Nike’s skateboard-focused SB division has countless variations of its Dunk mod
 Cuban or camp collar shirts have remained a summer essential for a number of seasons now, and it seems like the designs are only getting bolder and trippier.Th…
 
 *Published on: Thu, 25 Jul 2024 13:08:00 GMT*
+
+
+## Joe Biden
+
+## [Can adidas Make Its Classic Dad Shoe Cool?](https://www.highsnobiety.com/p/adidas-adistar-3-trend/)
+
+When the adidas Adistar Cushion 3 launched in the early naughts, the excitement didn’t stretch far beyond eager runners wanting a comfy ride on 10-kilometer ru…
+
+*Published on: Thu, 25 Jul 2024 14:32:24 GMT*
 
 
 ## J.K. Simmons
@@ -4679,6 +5255,15 @@ Cuban or camp collar shirts have remained a summer essential for a number of se
 *Published on: Thu, 25 Jul 2024 13:08:00 GMT*
 
 
+## J.K. Simmons
+
+## [Can adidas Make Its Classic Dad Shoe Cool?](https://www.highsnobiety.com/p/adidas-adistar-3-trend/)
+
+When the adidas Adistar Cushion 3 launched in the early naughts, the excitement didn’t stretch far beyond eager runners wanting a comfy ride on 10-kilometer ru…
+
+*Published on: Thu, 25 Jul 2024 14:32:24 GMT*
+
+
 ## Kamala Harris
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
@@ -4749,6 +5334,15 @@ Nike’s skateboard-focused SB division has countless variations of its Dunk mod
 Cuban or camp collar shirts have remained a summer essential for a number of seasons now, and it seems like the designs are only getting bolder and trippier.Th…
 
 *Published on: Thu, 25 Jul 2024 13:08:00 GMT*
+
+
+## Kamala Harris
+
+## [Can adidas Make Its Classic Dad Shoe Cool?](https://www.highsnobiety.com/p/adidas-adistar-3-trend/)
+
+When the adidas Adistar Cushion 3 launched in the early naughts, the excitement didn’t stretch far beyond eager runners wanting a comfy ride on 10-kilometer ru…
+
+*Published on: Thu, 25 Jul 2024 14:32:24 GMT*
 
 
 ## John C Reilly
@@ -4823,6 +5417,15 @@ Cuban or camp collar shirts have remained a summer essential for a number of se
 *Published on: Thu, 25 Jul 2024 13:08:00 GMT*
 
 
+## John C Reilly
+
+## [Can adidas Make Its Classic Dad Shoe Cool?](https://www.highsnobiety.com/p/adidas-adistar-3-trend/)
+
+When the adidas Adistar Cushion 3 launched in the early naughts, the excitement didn’t stretch far beyond eager runners wanting a comfy ride on 10-kilometer ru…
+
+*Published on: Thu, 25 Jul 2024 14:32:24 GMT*
+
+
 ## Kardashian
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
@@ -4893,6 +5496,15 @@ Nike’s skateboard-focused SB division has countless variations of its Dunk mod
 Cuban or camp collar shirts have remained a summer essential for a number of seasons now, and it seems like the designs are only getting bolder and trippier.Th…
 
 *Published on: Thu, 25 Jul 2024 13:08:00 GMT*
+
+
+## Kardashian
+
+## [Can adidas Make Its Classic Dad Shoe Cool?](https://www.highsnobiety.com/p/adidas-adistar-3-trend/)
+
+When the adidas Adistar Cushion 3 launched in the early naughts, the excitement didn’t stretch far beyond eager runners wanting a comfy ride on 10-kilometer ru…
+
+*Published on: Thu, 25 Jul 2024 14:32:24 GMT*
 
 
 ## Kanye
@@ -4967,6 +5579,15 @@ Cuban or camp collar shirts have remained a summer essential for a number of se
 *Published on: Thu, 25 Jul 2024 13:08:00 GMT*
 
 
+## Kanye
+
+## [Can adidas Make Its Classic Dad Shoe Cool?](https://www.highsnobiety.com/p/adidas-adistar-3-trend/)
+
+When the adidas Adistar Cushion 3 launched in the early naughts, the excitement didn’t stretch far beyond eager runners wanting a comfy ride on 10-kilometer ru…
+
+*Published on: Thu, 25 Jul 2024 14:32:24 GMT*
+
+
 ## Zendaya
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
@@ -5037,6 +5658,15 @@ Nike’s skateboard-focused SB division has countless variations of its Dunk mod
 Cuban or camp collar shirts have remained a summer essential for a number of seasons now, and it seems like the designs are only getting bolder and trippier.Th…
 
 *Published on: Thu, 25 Jul 2024 13:08:00 GMT*
+
+
+## Zendaya
+
+## [Can adidas Make Its Classic Dad Shoe Cool?](https://www.highsnobiety.com/p/adidas-adistar-3-trend/)
+
+When the adidas Adistar Cushion 3 launched in the early naughts, the excitement didn’t stretch far beyond eager runners wanting a comfy ride on 10-kilometer ru…
+
+*Published on: Thu, 25 Jul 2024 14:32:24 GMT*
 
 
 ## Will Ferrell
@@ -5111,6 +5741,15 @@ Cuban or camp collar shirts have remained a summer essential for a number of se
 *Published on: Thu, 25 Jul 2024 13:08:00 GMT*
 
 
+## Will Ferrell
+
+## [Can adidas Make Its Classic Dad Shoe Cool?](https://www.highsnobiety.com/p/adidas-adistar-3-trend/)
+
+When the adidas Adistar Cushion 3 launched in the early naughts, the excitement didn’t stretch far beyond eager runners wanting a comfy ride on 10-kilometer ru…
+
+*Published on: Thu, 25 Jul 2024 14:32:24 GMT*
+
+
 ## Zazie Beetz
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
@@ -5181,6 +5820,15 @@ Nike’s skateboard-focused SB division has countless variations of its Dunk mod
 Cuban or camp collar shirts have remained a summer essential for a number of seasons now, and it seems like the designs are only getting bolder and trippier.Th…
 
 *Published on: Thu, 25 Jul 2024 13:08:00 GMT*
+
+
+## Zazie Beetz
+
+## [Can adidas Make Its Classic Dad Shoe Cool?](https://www.highsnobiety.com/p/adidas-adistar-3-trend/)
+
+When the adidas Adistar Cushion 3 launched in the early naughts, the excitement didn’t stretch far beyond eager runners wanting a comfy ride on 10-kilometer ru…
+
+*Published on: Thu, 25 Jul 2024 14:32:24 GMT*
 
 
 ## Bob Odenkirk
@@ -5255,6 +5903,15 @@ Cuban or camp collar shirts have remained a summer essential for a number of se
 *Published on: Thu, 25 Jul 2024 13:08:00 GMT*
 
 
+## Bob Odenkirk
+
+## [Can adidas Make Its Classic Dad Shoe Cool?](https://www.highsnobiety.com/p/adidas-adistar-3-trend/)
+
+When the adidas Adistar Cushion 3 launched in the early naughts, the excitement didn’t stretch far beyond eager runners wanting a comfy ride on 10-kilometer ru…
+
+*Published on: Thu, 25 Jul 2024 14:32:24 GMT*
+
+
 ## Brad Pitt
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
@@ -5325,6 +5982,15 @@ Nike’s skateboard-focused SB division has countless variations of its Dunk mod
 Cuban or camp collar shirts have remained a summer essential for a number of seasons now, and it seems like the designs are only getting bolder and trippier.Th…
 
 *Published on: Thu, 25 Jul 2024 13:08:00 GMT*
+
+
+## Brad Pitt
+
+## [Can adidas Make Its Classic Dad Shoe Cool?](https://www.highsnobiety.com/p/adidas-adistar-3-trend/)
+
+When the adidas Adistar Cushion 3 launched in the early naughts, the excitement didn’t stretch far beyond eager runners wanting a comfy ride on 10-kilometer ru…
+
+*Published on: Thu, 25 Jul 2024 14:32:24 GMT*
 
 
 ## Beyoncé
@@ -5399,6 +6065,15 @@ Cuban or camp collar shirts have remained a summer essential for a number of se
 *Published on: Thu, 25 Jul 2024 13:08:00 GMT*
 
 
+## Beyoncé
+
+## [Can adidas Make Its Classic Dad Shoe Cool?](https://www.highsnobiety.com/p/adidas-adistar-3-trend/)
+
+When the adidas Adistar Cushion 3 launched in the early naughts, the excitement didn’t stretch far beyond eager runners wanting a comfy ride on 10-kilometer ru…
+
+*Published on: Thu, 25 Jul 2024 14:32:24 GMT*
+
+
 ## Bia
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
@@ -5469,6 +6144,15 @@ Nike’s skateboard-focused SB division has countless variations of its Dunk mod
 Cuban or camp collar shirts have remained a summer essential for a number of seasons now, and it seems like the designs are only getting bolder and trippier.Th…
 
 *Published on: Thu, 25 Jul 2024 13:08:00 GMT*
+
+
+## Bia
+
+## [Can adidas Make Its Classic Dad Shoe Cool?](https://www.highsnobiety.com/p/adidas-adistar-3-trend/)
+
+When the adidas Adistar Cushion 3 launched in the early naughts, the excitement didn’t stretch far beyond eager runners wanting a comfy ride on 10-kilometer ru…
+
+*Published on: Thu, 25 Jul 2024 14:32:24 GMT*
 
 
 ## Avantika
@@ -5543,6 +6227,15 @@ Cuban or camp collar shirts have remained a summer essential for a number of se
 *Published on: Thu, 25 Jul 2024 13:08:00 GMT*
 
 
+## Avantika
+
+## [Can adidas Make Its Classic Dad Shoe Cool?](https://www.highsnobiety.com/p/adidas-adistar-3-trend/)
+
+When the adidas Adistar Cushion 3 launched in the early naughts, the excitement didn’t stretch far beyond eager runners wanting a comfy ride on 10-kilometer ru…
+
+*Published on: Thu, 25 Jul 2024 14:32:24 GMT*
+
+
 ## Bernie Sanders
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
@@ -5613,6 +6306,15 @@ Nike’s skateboard-focused SB division has countless variations of its Dunk mod
 Cuban or camp collar shirts have remained a summer essential for a number of seasons now, and it seems like the designs are only getting bolder and trippier.Th…
 
 *Published on: Thu, 25 Jul 2024 13:08:00 GMT*
+
+
+## Bernie Sanders
+
+## [Can adidas Make Its Classic Dad Shoe Cool?](https://www.highsnobiety.com/p/adidas-adistar-3-trend/)
+
+When the adidas Adistar Cushion 3 launched in the early naughts, the excitement didn’t stretch far beyond eager runners wanting a comfy ride on 10-kilometer ru…
+
+*Published on: Thu, 25 Jul 2024 14:32:24 GMT*
 
 
 ## Big Sean
@@ -5687,6 +6389,15 @@ Cuban or camp collar shirts have remained a summer essential for a number of se
 *Published on: Thu, 25 Jul 2024 13:08:00 GMT*
 
 
+## Big Sean
+
+## [Can adidas Make Its Classic Dad Shoe Cool?](https://www.highsnobiety.com/p/adidas-adistar-3-trend/)
+
+When the adidas Adistar Cushion 3 launched in the early naughts, the excitement didn’t stretch far beyond eager runners wanting a comfy ride on 10-kilometer ru…
+
+*Published on: Thu, 25 Jul 2024 14:32:24 GMT*
+
+
 ## BlockBoy JB
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
@@ -5757,6 +6468,15 @@ Nike’s skateboard-focused SB division has countless variations of its Dunk mod
 Cuban or camp collar shirts have remained a summer essential for a number of seasons now, and it seems like the designs are only getting bolder and trippier.Th…
 
 *Published on: Thu, 25 Jul 2024 13:08:00 GMT*
+
+
+## BlockBoy JB
+
+## [Can adidas Make Its Classic Dad Shoe Cool?](https://www.highsnobiety.com/p/adidas-adistar-3-trend/)
+
+When the adidas Adistar Cushion 3 launched in the early naughts, the excitement didn’t stretch far beyond eager runners wanting a comfy ride on 10-kilometer ru…
+
+*Published on: Thu, 25 Jul 2024 14:32:24 GMT*
 
 
 ## Biden
@@ -5831,6 +6551,15 @@ Cuban or camp collar shirts have remained a summer essential for a number of se
 *Published on: Thu, 25 Jul 2024 13:08:00 GMT*
 
 
+## Biden
+
+## [Can adidas Make Its Classic Dad Shoe Cool?](https://www.highsnobiety.com/p/adidas-adistar-3-trend/)
+
+When the adidas Adistar Cushion 3 launched in the early naughts, the excitement didn’t stretch far beyond eager runners wanting a comfy ride on 10-kilometer ru…
+
+*Published on: Thu, 25 Jul 2024 14:32:24 GMT*
+
+
 ## Bieber
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
@@ -5901,6 +6630,15 @@ Nike’s skateboard-focused SB division has countless variations of its Dunk mod
 Cuban or camp collar shirts have remained a summer essential for a number of seasons now, and it seems like the designs are only getting bolder and trippier.Th…
 
 *Published on: Thu, 25 Jul 2024 13:08:00 GMT*
+
+
+## Bieber
+
+## [Can adidas Make Its Classic Dad Shoe Cool?](https://www.highsnobiety.com/p/adidas-adistar-3-trend/)
+
+When the adidas Adistar Cushion 3 launched in the early naughts, the excitement didn’t stretch far beyond eager runners wanting a comfy ride on 10-kilometer ru…
+
+*Published on: Thu, 25 Jul 2024 14:32:24 GMT*
 
 
 ## Paulina Porizkov
@@ -5975,6 +6713,15 @@ Cuban or camp collar shirts have remained a summer essential for a number of se
 *Published on: Thu, 25 Jul 2024 13:08:00 GMT*
 
 
+## Paulina Porizkov
+
+## [Can adidas Make Its Classic Dad Shoe Cool?](https://www.highsnobiety.com/p/adidas-adistar-3-trend/)
+
+When the adidas Adistar Cushion 3 launched in the early naughts, the excitement didn’t stretch far beyond eager runners wanting a comfy ride on 10-kilometer ru…
+
+*Published on: Thu, 25 Jul 2024 14:32:24 GMT*
+
+
 ## Paris Hilton
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
@@ -6045,6 +6792,15 @@ Nike’s skateboard-focused SB division has countless variations of its Dunk mod
 Cuban or camp collar shirts have remained a summer essential for a number of seasons now, and it seems like the designs are only getting bolder and trippier.Th…
 
 *Published on: Thu, 25 Jul 2024 13:08:00 GMT*
+
+
+## Paris Hilton
+
+## [Can adidas Make Its Classic Dad Shoe Cool?](https://www.highsnobiety.com/p/adidas-adistar-3-trend/)
+
+When the adidas Adistar Cushion 3 launched in the early naughts, the excitement didn’t stretch far beyond eager runners wanting a comfy ride on 10-kilometer ru…
+
+*Published on: Thu, 25 Jul 2024 14:32:24 GMT*
 
 
 ## Metro Boomin
@@ -6119,6 +6875,15 @@ Cuban or camp collar shirts have remained a summer essential for a number of se
 *Published on: Thu, 25 Jul 2024 13:08:00 GMT*
 
 
+## Metro Boomin
+
+## [Can adidas Make Its Classic Dad Shoe Cool?](https://www.highsnobiety.com/p/adidas-adistar-3-trend/)
+
+When the adidas Adistar Cushion 3 launched in the early naughts, the excitement didn’t stretch far beyond eager runners wanting a comfy ride on 10-kilometer ru…
+
+*Published on: Thu, 25 Jul 2024 14:32:24 GMT*
+
+
 ## Meghan Markle
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
@@ -6191,6 +6956,15 @@ Cuban or camp collar shirts have remained a summer essential for a number of se
 *Published on: Thu, 25 Jul 2024 13:08:00 GMT*
 
 
+## Meghan Markle
+
+## [Can adidas Make Its Classic Dad Shoe Cool?](https://www.highsnobiety.com/p/adidas-adistar-3-trend/)
+
+When the adidas Adistar Cushion 3 launched in the early naughts, the excitement didn’t stretch far beyond eager runners wanting a comfy ride on 10-kilometer ru…
+
+*Published on: Thu, 25 Jul 2024 14:32:24 GMT*
+
+
 ## Megan Thee Stallion
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
@@ -6263,6 +7037,15 @@ Cuban or camp collar shirts have remained a summer essential for a number of se
 *Published on: Thu, 25 Jul 2024 13:08:00 GMT*
 
 
+## Megan Thee Stallion
+
+## [Can adidas Make Its Classic Dad Shoe Cool?](https://www.highsnobiety.com/p/adidas-adistar-3-trend/)
+
+When the adidas Adistar Cushion 3 launched in the early naughts, the excitement didn’t stretch far beyond eager runners wanting a comfy ride on 10-kilometer ru…
+
+*Published on: Thu, 25 Jul 2024 14:32:24 GMT*
+
+
 ## Maya Rudolph
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
@@ -6335,6 +7118,15 @@ Cuban or camp collar shirts have remained a summer essential for a number of se
 *Published on: Thu, 25 Jul 2024 13:08:00 GMT*
 
 
+## Maya Rudolph
+
+## [Can adidas Make Its Classic Dad Shoe Cool?](https://www.highsnobiety.com/p/adidas-adistar-3-trend/)
+
+When the adidas Adistar Cushion 3 launched in the early naughts, the excitement didn’t stretch far beyond eager runners wanting a comfy ride on 10-kilometer ru…
+
+*Published on: Thu, 25 Jul 2024 14:32:24 GMT*
+
+
 ## Olivia Rodrigo
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
@@ -6407,6 +7199,15 @@ Cuban or camp collar shirts have remained a summer essential for a number of se
 *Published on: Thu, 25 Jul 2024 13:08:00 GMT*
 
 
+## Olivia Rodrigo
+
+## [Can adidas Make Its Classic Dad Shoe Cool?](https://www.highsnobiety.com/p/adidas-adistar-3-trend/)
+
+When the adidas Adistar Cushion 3 launched in the early naughts, the excitement didn’t stretch far beyond eager runners wanting a comfy ride on 10-kilometer ru…
+
+*Published on: Thu, 25 Jul 2024 14:32:24 GMT*
+
+
 ## Obama
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
@@ -6479,6 +7280,15 @@ Cuban or camp collar shirts have remained a summer essential for a number of se
 *Published on: Thu, 25 Jul 2024 13:08:00 GMT*
 
 
+## Obama
+
+## [Can adidas Make Its Classic Dad Shoe Cool?](https://www.highsnobiety.com/p/adidas-adistar-3-trend/)
+
+When the adidas Adistar Cushion 3 launched in the early naughts, the excitement didn’t stretch far beyond eager runners wanting a comfy ride on 10-kilometer ru…
+
+*Published on: Thu, 25 Jul 2024 14:32:24 GMT*
+
+
 ## Nicki Minaj
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
@@ -6551,6 +7361,15 @@ Cuban or camp collar shirts have remained a summer essential for a number of se
 *Published on: Thu, 25 Jul 2024 13:08:00 GMT*
 
 
+## Nicki Minaj
+
+## [Can adidas Make Its Classic Dad Shoe Cool?](https://www.highsnobiety.com/p/adidas-adistar-3-trend/)
+
+When the adidas Adistar Cushion 3 launched in the early naughts, the excitement didn’t stretch far beyond eager runners wanting a comfy ride on 10-kilometer ru…
+
+*Published on: Thu, 25 Jul 2024 14:32:24 GMT*
+
+
 ## MrBeast
 
 ## [Fashion's Game of Musical Chairs Heats Up](https://www.highsnobiety.com/p/john-galliano-leaving-margiela/)
@@ -6621,5 +7440,14 @@ Nike’s skateboard-focused SB division has countless variations of its Dunk mod
 Cuban or camp collar shirts have remained a summer essential for a number of seasons now, and it seems like the designs are only getting bolder and trippier.Th…
 
 *Published on: Thu, 25 Jul 2024 13:08:00 GMT*
+
+
+## MrBeast
+
+## [Can adidas Make Its Classic Dad Shoe Cool?](https://www.highsnobiety.com/p/adidas-adistar-3-trend/)
+
+When the adidas Adistar Cushion 3 launched in the early naughts, the excitement didn’t stretch far beyond eager runners wanting a comfy ride on 10-kilometer ru…
+
+*Published on: Thu, 25 Jul 2024 14:32:24 GMT*
 
 
