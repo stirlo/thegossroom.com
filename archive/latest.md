@@ -1,6 +1,15 @@
 # Latest Stories
 ## Tim Cook
 
+## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
+
+Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
+
+*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
+
+
+## Tim Cook
+
 ## [Products to Prove the Camo Print's Comeback Was Hiding in Plain Sight](https://www.highsnobiety.com/p/camo-print-comeback/)
 
 After reporting on a camo print comeback no one seemed to notice – ba-dum-tss – we figured it was only fair we did the follow-up work of retrieving some  of th…
@@ -19,15 +28,6 @@ AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end pro
 
 ## Tim Cook
 
-## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
-
-The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
-
-*Published on: Mon, 29 Jul 2024 16:05:34 GMT*
-
-
-## Tim Cook
-
 ## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
 
 PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
@@ -82,20 +82,20 @@ NIGO has the sneaker world on its toes, patiently waiting for his long-awaited N
 
 ## Tim Cook
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Tim Cook
-
 ## [This adidas Sneaker Stares Minimalism Straight In The Face](https://www.highsnobiety.com/p/adidas-keiichi-tanaami-superstar/)
 
 Japanese pop artist Keiichi Tanaami’s paintings are surreal, maximalist compositions.  So, no surprise that Keiichi Tanaami’s adidas Superstar collaboration is…
 
 *Published on: Mon, 29 Jul 2024 09:52:54 GMT*
+
+
+## Taylor Swift
+
+## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
+
+Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
+
+*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
 
 
 ## Taylor Swift
@@ -114,15 +114,6 @@ After reporting on a camo print comeback no one seemed to notice – ba-dum-tss 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
 
 *Published on: Mon, 29 Jul 2024 15:11:18 GMT*
-
-
-## Taylor Swift
-
-## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
-
-The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
-
-*Published on: Mon, 29 Jul 2024 16:05:34 GMT*
 
 
 ## Taylor Swift
@@ -181,20 +172,20 @@ NIGO has the sneaker world on its toes, patiently waiting for his long-awaited N
 
 ## Taylor Swift
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Taylor Swift
-
 ## [This adidas Sneaker Stares Minimalism Straight In The Face](https://www.highsnobiety.com/p/adidas-keiichi-tanaami-superstar/)
 
 Japanese pop artist Keiichi Tanaami’s paintings are surreal, maximalist compositions.  So, no surprise that Keiichi Tanaami’s adidas Superstar collaboration is…
 
 *Published on: Mon, 29 Jul 2024 09:52:54 GMT*
+
+
+## Tom Brady
+
+## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
+
+Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
+
+*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
 
 
 ## Tom Brady
@@ -213,15 +204,6 @@ After reporting on a camo print comeback no one seemed to notice – ba-dum-tss 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
 
 *Published on: Mon, 29 Jul 2024 15:11:18 GMT*
-
-
-## Tom Brady
-
-## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
-
-The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
-
-*Published on: Mon, 29 Jul 2024 16:05:34 GMT*
 
 
 ## Tom Brady
@@ -280,20 +262,20 @@ NIGO has the sneaker world on its toes, patiently waiting for his long-awaited N
 
 ## Tom Brady
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Tom Brady
-
 ## [This adidas Sneaker Stares Minimalism Straight In The Face](https://www.highsnobiety.com/p/adidas-keiichi-tanaami-superstar/)
 
 Japanese pop artist Keiichi Tanaami’s paintings are surreal, maximalist compositions.  So, no surprise that Keiichi Tanaami’s adidas Superstar collaboration is…
 
 *Published on: Mon, 29 Jul 2024 09:52:54 GMT*
+
+
+## Tina Fey
+
+## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
+
+Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
+
+*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
 
 
 ## Tina Fey
@@ -312,15 +294,6 @@ After reporting on a camo print comeback no one seemed to notice – ba-dum-tss 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
 
 *Published on: Mon, 29 Jul 2024 15:11:18 GMT*
-
-
-## Tina Fey
-
-## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
-
-The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
-
-*Published on: Mon, 29 Jul 2024 16:05:34 GMT*
 
 
 ## Tina Fey
@@ -379,20 +352,20 @@ NIGO has the sneaker world on its toes, patiently waiting for his long-awaited N
 
 ## Tina Fey
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Tina Fey
-
 ## [This adidas Sneaker Stares Minimalism Straight In The Face](https://www.highsnobiety.com/p/adidas-keiichi-tanaami-superstar/)
 
 Japanese pop artist Keiichi Tanaami’s paintings are surreal, maximalist compositions.  So, no surprise that Keiichi Tanaami’s adidas Superstar collaboration is…
 
 *Published on: Mon, 29 Jul 2024 09:52:54 GMT*
+
+
+## Steven Yuen
+
+## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
+
+Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
+
+*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
 
 
 ## Steven Yuen
@@ -411,15 +384,6 @@ After reporting on a camo print comeback no one seemed to notice – ba-dum-tss 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
 
 *Published on: Mon, 29 Jul 2024 15:11:18 GMT*
-
-
-## Steven Yuen
-
-## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
-
-The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
-
-*Published on: Mon, 29 Jul 2024 16:05:34 GMT*
 
 
 ## Steven Yuen
@@ -478,20 +442,20 @@ NIGO has the sneaker world on its toes, patiently waiting for his long-awaited N
 
 ## Steven Yuen
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Steven Yuen
-
 ## [This adidas Sneaker Stares Minimalism Straight In The Face](https://www.highsnobiety.com/p/adidas-keiichi-tanaami-superstar/)
 
 Japanese pop artist Keiichi Tanaami’s paintings are surreal, maximalist compositions.  So, no surprise that Keiichi Tanaami’s adidas Superstar collaboration is…
 
 *Published on: Mon, 29 Jul 2024 09:52:54 GMT*
+
+
+## Sommer Ray
+
+## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
+
+Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
+
+*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
 
 
 ## Sommer Ray
@@ -510,15 +474,6 @@ After reporting on a camo print comeback no one seemed to notice – ba-dum-tss 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
 
 *Published on: Mon, 29 Jul 2024 15:11:18 GMT*
-
-
-## Sommer Ray
-
-## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
-
-The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
-
-*Published on: Mon, 29 Jul 2024 16:05:34 GMT*
 
 
 ## Sommer Ray
@@ -577,20 +532,20 @@ NIGO has the sneaker world on its toes, patiently waiting for his long-awaited N
 
 ## Sommer Ray
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Sommer Ray
-
 ## [This adidas Sneaker Stares Minimalism Straight In The Face](https://www.highsnobiety.com/p/adidas-keiichi-tanaami-superstar/)
 
 Japanese pop artist Keiichi Tanaami’s paintings are surreal, maximalist compositions.  So, no surprise that Keiichi Tanaami’s adidas Superstar collaboration is…
 
 *Published on: Mon, 29 Jul 2024 09:52:54 GMT*
+
+
+## Sza
+
+## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
+
+Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
+
+*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
 
 
 ## Sza
@@ -609,15 +564,6 @@ After reporting on a camo print comeback no one seemed to notice – ba-dum-tss 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
 
 *Published on: Mon, 29 Jul 2024 15:11:18 GMT*
-
-
-## Sza
-
-## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
-
-The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
-
-*Published on: Mon, 29 Jul 2024 16:05:34 GMT*
 
 
 ## Sza
@@ -676,20 +622,20 @@ NIGO has the sneaker world on its toes, patiently waiting for his long-awaited N
 
 ## Sza
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Sza
-
 ## [This adidas Sneaker Stares Minimalism Straight In The Face](https://www.highsnobiety.com/p/adidas-keiichi-tanaami-superstar/)
 
 Japanese pop artist Keiichi Tanaami’s paintings are surreal, maximalist compositions.  So, no surprise that Keiichi Tanaami’s adidas Superstar collaboration is…
 
 *Published on: Mon, 29 Jul 2024 09:52:54 GMT*
+
+
+## Sydney Sweeney
+
+## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
+
+Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
+
+*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
 
 
 ## Sydney Sweeney
@@ -708,15 +654,6 @@ After reporting on a camo print comeback no one seemed to notice – ba-dum-tss 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
 
 *Published on: Mon, 29 Jul 2024 15:11:18 GMT*
-
-
-## Sydney Sweeney
-
-## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
-
-The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
-
-*Published on: Mon, 29 Jul 2024 16:05:34 GMT*
 
 
 ## Sydney Sweeney
@@ -775,20 +712,20 @@ NIGO has the sneaker world on its toes, patiently waiting for his long-awaited N
 
 ## Sydney Sweeney
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Sydney Sweeney
-
 ## [This adidas Sneaker Stares Minimalism Straight In The Face](https://www.highsnobiety.com/p/adidas-keiichi-tanaami-superstar/)
 
 Japanese pop artist Keiichi Tanaami’s paintings are surreal, maximalist compositions.  So, no surprise that Keiichi Tanaami’s adidas Superstar collaboration is…
 
 *Published on: Mon, 29 Jul 2024 09:52:54 GMT*
+
+
+## Walton Goggins
+
+## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
+
+Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
+
+*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
 
 
 ## Walton Goggins
@@ -807,15 +744,6 @@ After reporting on a camo print comeback no one seemed to notice – ba-dum-tss 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
 
 *Published on: Mon, 29 Jul 2024 15:11:18 GMT*
-
-
-## Walton Goggins
-
-## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
-
-The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
-
-*Published on: Mon, 29 Jul 2024 16:05:34 GMT*
 
 
 ## Walton Goggins
@@ -874,20 +802,20 @@ NIGO has the sneaker world on its toes, patiently waiting for his long-awaited N
 
 ## Walton Goggins
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Walton Goggins
-
 ## [This adidas Sneaker Stares Minimalism Straight In The Face](https://www.highsnobiety.com/p/adidas-keiichi-tanaami-superstar/)
 
 Japanese pop artist Keiichi Tanaami’s paintings are surreal, maximalist compositions.  So, no surprise that Keiichi Tanaami’s adidas Superstar collaboration is…
 
 *Published on: Mon, 29 Jul 2024 09:52:54 GMT*
+
+
+## Tom Holland
+
+## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
+
+Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
+
+*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
 
 
 ## Tom Holland
@@ -906,15 +834,6 @@ After reporting on a camo print comeback no one seemed to notice – ba-dum-tss 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
 
 *Published on: Mon, 29 Jul 2024 15:11:18 GMT*
-
-
-## Tom Holland
-
-## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
-
-The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
-
-*Published on: Mon, 29 Jul 2024 16:05:34 GMT*
 
 
 ## Tom Holland
@@ -973,20 +892,20 @@ NIGO has the sneaker world on its toes, patiently waiting for his long-awaited N
 
 ## Tom Holland
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Tom Holland
-
 ## [This adidas Sneaker Stares Minimalism Straight In The Face](https://www.highsnobiety.com/p/adidas-keiichi-tanaami-superstar/)
 
 Japanese pop artist Keiichi Tanaami’s paintings are surreal, maximalist compositions.  So, no surprise that Keiichi Tanaami’s adidas Superstar collaboration is…
 
 *Published on: Mon, 29 Jul 2024 09:52:54 GMT*
+
+
+## Gucci Mane
+
+## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
+
+Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
+
+*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
 
 
 ## Gucci Mane
@@ -1005,15 +924,6 @@ After reporting on a camo print comeback no one seemed to notice – ba-dum-tss 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
 
 *Published on: Mon, 29 Jul 2024 15:11:18 GMT*
-
-
-## Gucci Mane
-
-## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
-
-The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
-
-*Published on: Mon, 29 Jul 2024 16:05:34 GMT*
 
 
 ## Gucci Mane
@@ -1072,20 +982,20 @@ NIGO has the sneaker world on its toes, patiently waiting for his long-awaited N
 
 ## Gucci Mane
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Gucci Mane
-
 ## [This adidas Sneaker Stares Minimalism Straight In The Face](https://www.highsnobiety.com/p/adidas-keiichi-tanaami-superstar/)
 
 Japanese pop artist Keiichi Tanaami’s paintings are surreal, maximalist compositions.  So, no surprise that Keiichi Tanaami’s adidas Superstar collaboration is…
 
 *Published on: Mon, 29 Jul 2024 09:52:54 GMT*
+
+
+## Harry Styles
+
+## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
+
+Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
+
+*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
 
 
 ## Harry Styles
@@ -1104,15 +1014,6 @@ After reporting on a camo print comeback no one seemed to notice – ba-dum-tss 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
 
 *Published on: Mon, 29 Jul 2024 15:11:18 GMT*
-
-
-## Harry Styles
-
-## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
-
-The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
-
-*Published on: Mon, 29 Jul 2024 16:05:34 GMT*
 
 
 ## Harry Styles
@@ -1171,20 +1072,20 @@ NIGO has the sneaker world on its toes, patiently waiting for his long-awaited N
 
 ## Harry Styles
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Harry Styles
-
 ## [This adidas Sneaker Stares Minimalism Straight In The Face](https://www.highsnobiety.com/p/adidas-keiichi-tanaami-superstar/)
 
 Japanese pop artist Keiichi Tanaami’s paintings are surreal, maximalist compositions.  So, no surprise that Keiichi Tanaami’s adidas Superstar collaboration is…
 
 *Published on: Mon, 29 Jul 2024 09:52:54 GMT*
+
+
+## Jake Paul
+
+## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
+
+Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
+
+*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
 
 
 ## Jake Paul
@@ -1203,15 +1104,6 @@ After reporting on a camo print comeback no one seemed to notice – ba-dum-tss 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
 
 *Published on: Mon, 29 Jul 2024 15:11:18 GMT*
-
-
-## Jake Paul
-
-## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
-
-The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
-
-*Published on: Mon, 29 Jul 2024 16:05:34 GMT*
 
 
 ## Jake Paul
@@ -1270,20 +1162,20 @@ NIGO has the sneaker world on its toes, patiently waiting for his long-awaited N
 
 ## Jake Paul
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Jake Paul
-
 ## [This adidas Sneaker Stares Minimalism Straight In The Face](https://www.highsnobiety.com/p/adidas-keiichi-tanaami-superstar/)
 
 Japanese pop artist Keiichi Tanaami’s paintings are surreal, maximalist compositions.  So, no surprise that Keiichi Tanaami’s adidas Superstar collaboration is…
 
 *Published on: Mon, 29 Jul 2024 09:52:54 GMT*
+
+
+## Jameela Jamil
+
+## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
+
+Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
+
+*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
 
 
 ## Jameela Jamil
@@ -1302,15 +1194,6 @@ After reporting on a camo print comeback no one seemed to notice – ba-dum-tss 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
 
 *Published on: Mon, 29 Jul 2024 15:11:18 GMT*
-
-
-## Jameela Jamil
-
-## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
-
-The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
-
-*Published on: Mon, 29 Jul 2024 16:05:34 GMT*
 
 
 ## Jameela Jamil
@@ -1369,20 +1252,20 @@ NIGO has the sneaker world on its toes, patiently waiting for his long-awaited N
 
 ## Jameela Jamil
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Jameela Jamil
-
 ## [This adidas Sneaker Stares Minimalism Straight In The Face](https://www.highsnobiety.com/p/adidas-keiichi-tanaami-superstar/)
 
 Japanese pop artist Keiichi Tanaami’s paintings are surreal, maximalist compositions.  So, no surprise that Keiichi Tanaami’s adidas Superstar collaboration is…
 
 *Published on: Mon, 29 Jul 2024 09:52:54 GMT*
+
+
+## Elon Musk
+
+## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
+
+Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
+
+*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
 
 
 ## Elon Musk
@@ -1401,15 +1284,6 @@ After reporting on a camo print comeback no one seemed to notice – ba-dum-tss 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
 
 *Published on: Mon, 29 Jul 2024 15:11:18 GMT*
-
-
-## Elon Musk
-
-## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
-
-The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
-
-*Published on: Mon, 29 Jul 2024 16:05:34 GMT*
 
 
 ## Elon Musk
@@ -1468,20 +1342,20 @@ NIGO has the sneaker world on its toes, patiently waiting for his long-awaited N
 
 ## Elon Musk
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Elon Musk
-
 ## [This adidas Sneaker Stares Minimalism Straight In The Face](https://www.highsnobiety.com/p/adidas-keiichi-tanaami-superstar/)
 
 Japanese pop artist Keiichi Tanaami’s paintings are surreal, maximalist compositions.  So, no surprise that Keiichi Tanaami’s adidas Superstar collaboration is…
 
 *Published on: Mon, 29 Jul 2024 09:52:54 GMT*
+
+
+## Gabrielle Union
+
+## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
+
+Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
+
+*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
 
 
 ## Gabrielle Union
@@ -1500,15 +1374,6 @@ After reporting on a camo print comeback no one seemed to notice – ba-dum-tss 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
 
 *Published on: Mon, 29 Jul 2024 15:11:18 GMT*
-
-
-## Gabrielle Union
-
-## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
-
-The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
-
-*Published on: Mon, 29 Jul 2024 16:05:34 GMT*
 
 
 ## Gabrielle Union
@@ -1567,20 +1432,20 @@ NIGO has the sneaker world on its toes, patiently waiting for his long-awaited N
 
 ## Gabrielle Union
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Gabrielle Union
-
 ## [This adidas Sneaker Stares Minimalism Straight In The Face](https://www.highsnobiety.com/p/adidas-keiichi-tanaami-superstar/)
 
 Japanese pop artist Keiichi Tanaami’s paintings are surreal, maximalist compositions.  So, no surprise that Keiichi Tanaami’s adidas Superstar collaboration is…
 
 *Published on: Mon, 29 Jul 2024 09:52:54 GMT*
+
+
+## Giancarlo Esposito
+
+## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
+
+Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
+
+*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
 
 
 ## Giancarlo Esposito
@@ -1599,15 +1464,6 @@ After reporting on a camo print comeback no one seemed to notice – ba-dum-tss 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
 
 *Published on: Mon, 29 Jul 2024 15:11:18 GMT*
-
-
-## Giancarlo Esposito
-
-## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
-
-The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
-
-*Published on: Mon, 29 Jul 2024 16:05:34 GMT*
 
 
 ## Giancarlo Esposito
@@ -1666,20 +1522,20 @@ NIGO has the sneaker world on its toes, patiently waiting for his long-awaited N
 
 ## Giancarlo Esposito
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Giancarlo Esposito
-
 ## [This adidas Sneaker Stares Minimalism Straight In The Face](https://www.highsnobiety.com/p/adidas-keiichi-tanaami-superstar/)
 
 Japanese pop artist Keiichi Tanaami’s paintings are surreal, maximalist compositions.  So, no surprise that Keiichi Tanaami’s adidas Superstar collaboration is…
 
 *Published on: Mon, 29 Jul 2024 09:52:54 GMT*
+
+
+## Gillian Jacobs
+
+## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
+
+Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
+
+*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
 
 
 ## Gillian Jacobs
@@ -1698,15 +1554,6 @@ After reporting on a camo print comeback no one seemed to notice – ba-dum-tss 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
 
 *Published on: Mon, 29 Jul 2024 15:11:18 GMT*
-
-
-## Gillian Jacobs
-
-## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
-
-The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
-
-*Published on: Mon, 29 Jul 2024 16:05:34 GMT*
 
 
 ## Gillian Jacobs
@@ -1765,20 +1612,20 @@ NIGO has the sneaker world on its toes, patiently waiting for his long-awaited N
 
 ## Gillian Jacobs
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Gillian Jacobs
-
 ## [This adidas Sneaker Stares Minimalism Straight In The Face](https://www.highsnobiety.com/p/adidas-keiichi-tanaami-superstar/)
 
 Japanese pop artist Keiichi Tanaami’s paintings are surreal, maximalist compositions.  So, no surprise that Keiichi Tanaami’s adidas Superstar collaboration is…
 
 *Published on: Mon, 29 Jul 2024 09:52:54 GMT*
+
+
+## Jason Mantzoukas
+
+## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
+
+Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
+
+*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
 
 
 ## Jason Mantzoukas
@@ -1797,15 +1644,6 @@ After reporting on a camo print comeback no one seemed to notice – ba-dum-tss 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
 
 *Published on: Mon, 29 Jul 2024 15:11:18 GMT*
-
-
-## Jason Mantzoukas
-
-## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
-
-The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
-
-*Published on: Mon, 29 Jul 2024 16:05:34 GMT*
 
 
 ## Jason Mantzoukas
@@ -1864,20 +1702,20 @@ NIGO has the sneaker world on its toes, patiently waiting for his long-awaited N
 
 ## Jason Mantzoukas
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Jason Mantzoukas
-
 ## [This adidas Sneaker Stares Minimalism Straight In The Face](https://www.highsnobiety.com/p/adidas-keiichi-tanaami-superstar/)
 
 Japanese pop artist Keiichi Tanaami’s paintings are surreal, maximalist compositions.  So, no surprise that Keiichi Tanaami’s adidas Superstar collaboration is…
 
 *Published on: Mon, 29 Jul 2024 09:52:54 GMT*
+
+
+## JB Smoove
+
+## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
+
+Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
+
+*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
 
 
 ## JB Smoove
@@ -1896,15 +1734,6 @@ After reporting on a camo print comeback no one seemed to notice – ba-dum-tss 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
 
 *Published on: Mon, 29 Jul 2024 15:11:18 GMT*
-
-
-## JB Smoove
-
-## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
-
-The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
-
-*Published on: Mon, 29 Jul 2024 16:05:34 GMT*
 
 
 ## JB Smoove
@@ -1963,20 +1792,20 @@ NIGO has the sneaker world on its toes, patiently waiting for his long-awaited N
 
 ## JB Smoove
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## JB Smoove
-
 ## [This adidas Sneaker Stares Minimalism Straight In The Face](https://www.highsnobiety.com/p/adidas-keiichi-tanaami-superstar/)
 
 Japanese pop artist Keiichi Tanaami’s paintings are surreal, maximalist compositions.  So, no surprise that Keiichi Tanaami’s adidas Superstar collaboration is…
 
 *Published on: Mon, 29 Jul 2024 09:52:54 GMT*
+
+
+## Madison Pettis
+
+## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
+
+Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
+
+*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
 
 
 ## Madison Pettis
@@ -1995,15 +1824,6 @@ After reporting on a camo print comeback no one seemed to notice – ba-dum-tss 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
 
 *Published on: Mon, 29 Jul 2024 15:11:18 GMT*
-
-
-## Madison Pettis
-
-## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
-
-The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
-
-*Published on: Mon, 29 Jul 2024 16:05:34 GMT*
 
 
 ## Madison Pettis
@@ -2062,20 +1882,20 @@ NIGO has the sneaker world on its toes, patiently waiting for his long-awaited N
 
 ## Madison Pettis
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Madison Pettis
-
 ## [This adidas Sneaker Stares Minimalism Straight In The Face](https://www.highsnobiety.com/p/adidas-keiichi-tanaami-superstar/)
 
 Japanese pop artist Keiichi Tanaami’s paintings are surreal, maximalist compositions.  So, no surprise that Keiichi Tanaami’s adidas Superstar collaboration is…
 
 *Published on: Mon, 29 Jul 2024 09:52:54 GMT*
+
+
+## Austin Butler
+
+## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
+
+Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
+
+*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
 
 
 ## Austin Butler
@@ -2094,15 +1914,6 @@ After reporting on a camo print comeback no one seemed to notice – ba-dum-tss 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
 
 *Published on: Mon, 29 Jul 2024 15:11:18 GMT*
-
-
-## Austin Butler
-
-## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
-
-The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
-
-*Published on: Mon, 29 Jul 2024 16:05:34 GMT*
 
 
 ## Austin Butler
@@ -2161,20 +1972,20 @@ NIGO has the sneaker world on its toes, patiently waiting for his long-awaited N
 
 ## Austin Butler
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Austin Butler
-
 ## [This adidas Sneaker Stares Minimalism Straight In The Face](https://www.highsnobiety.com/p/adidas-keiichi-tanaami-superstar/)
 
 Japanese pop artist Keiichi Tanaami’s paintings are surreal, maximalist compositions.  So, no surprise that Keiichi Tanaami’s adidas Superstar collaboration is…
 
 *Published on: Mon, 29 Jul 2024 09:52:54 GMT*
+
+
+## Mark Zuckerberg
+
+## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
+
+Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
+
+*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
 
 
 ## Mark Zuckerberg
@@ -2193,15 +2004,6 @@ After reporting on a camo print comeback no one seemed to notice – ba-dum-tss 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
 
 *Published on: Mon, 29 Jul 2024 15:11:18 GMT*
-
-
-## Mark Zuckerberg
-
-## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
-
-The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
-
-*Published on: Mon, 29 Jul 2024 16:05:34 GMT*
 
 
 ## Mark Zuckerberg
@@ -2260,20 +2062,20 @@ NIGO has the sneaker world on its toes, patiently waiting for his long-awaited N
 
 ## Mark Zuckerberg
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Mark Zuckerberg
-
 ## [This adidas Sneaker Stares Minimalism Straight In The Face](https://www.highsnobiety.com/p/adidas-keiichi-tanaami-superstar/)
 
 Japanese pop artist Keiichi Tanaami’s paintings are surreal, maximalist compositions.  So, no surprise that Keiichi Tanaami’s adidas Superstar collaboration is…
 
 *Published on: Mon, 29 Jul 2024 09:52:54 GMT*
+
+
+## Ariana Grande
+
+## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
+
+Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
+
+*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
 
 
 ## Ariana Grande
@@ -2292,15 +2094,6 @@ After reporting on a camo print comeback no one seemed to notice – ba-dum-tss 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
 
 *Published on: Mon, 29 Jul 2024 15:11:18 GMT*
-
-
-## Ariana Grande
-
-## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
-
-The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
-
-*Published on: Mon, 29 Jul 2024 16:05:34 GMT*
 
 
 ## Ariana Grande
@@ -2359,20 +2152,20 @@ NIGO has the sneaker world on its toes, patiently waiting for his long-awaited N
 
 ## Ariana Grande
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Ariana Grande
-
 ## [This adidas Sneaker Stares Minimalism Straight In The Face](https://www.highsnobiety.com/p/adidas-keiichi-tanaami-superstar/)
 
 Japanese pop artist Keiichi Tanaami’s paintings are surreal, maximalist compositions.  So, no surprise that Keiichi Tanaami’s adidas Superstar collaboration is…
 
 *Published on: Mon, 29 Jul 2024 09:52:54 GMT*
+
+
+## Livvy Dunne
+
+## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
+
+Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
+
+*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
 
 
 ## Livvy Dunne
@@ -2391,15 +2184,6 @@ After reporting on a camo print comeback no one seemed to notice – ba-dum-tss 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
 
 *Published on: Mon, 29 Jul 2024 15:11:18 GMT*
-
-
-## Livvy Dunne
-
-## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
-
-The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
-
-*Published on: Mon, 29 Jul 2024 16:05:34 GMT*
 
 
 ## Livvy Dunne
@@ -2458,20 +2242,20 @@ NIGO has the sneaker world on its toes, patiently waiting for his long-awaited N
 
 ## Livvy Dunne
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Livvy Dunne
-
 ## [This adidas Sneaker Stares Minimalism Straight In The Face](https://www.highsnobiety.com/p/adidas-keiichi-tanaami-superstar/)
 
 Japanese pop artist Keiichi Tanaami’s paintings are surreal, maximalist compositions.  So, no surprise that Keiichi Tanaami’s adidas Superstar collaboration is…
 
 *Published on: Mon, 29 Jul 2024 09:52:54 GMT*
+
+
+## Ali Wong
+
+## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
+
+Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
+
+*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
 
 
 ## Ali Wong
@@ -2490,15 +2274,6 @@ After reporting on a camo print comeback no one seemed to notice – ba-dum-tss 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
 
 *Published on: Mon, 29 Jul 2024 15:11:18 GMT*
-
-
-## Ali Wong
-
-## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
-
-The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
-
-*Published on: Mon, 29 Jul 2024 16:05:34 GMT*
 
 
 ## Ali Wong
@@ -2557,20 +2332,20 @@ NIGO has the sneaker world on its toes, patiently waiting for his long-awaited N
 
 ## Ali Wong
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Ali Wong
-
 ## [This adidas Sneaker Stares Minimalism Straight In The Face](https://www.highsnobiety.com/p/adidas-keiichi-tanaami-superstar/)
 
 Japanese pop artist Keiichi Tanaami’s paintings are surreal, maximalist compositions.  So, no surprise that Keiichi Tanaami’s adidas Superstar collaboration is…
 
 *Published on: Mon, 29 Jul 2024 09:52:54 GMT*
+
+
+## Lizzo
+
+## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
+
+Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
+
+*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
 
 
 ## Lizzo
@@ -2589,15 +2364,6 @@ After reporting on a camo print comeback no one seemed to notice – ba-dum-tss 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
 
 *Published on: Mon, 29 Jul 2024 15:11:18 GMT*
-
-
-## Lizzo
-
-## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
-
-The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
-
-*Published on: Mon, 29 Jul 2024 16:05:34 GMT*
 
 
 ## Lizzo
@@ -2656,20 +2422,20 @@ NIGO has the sneaker world on its toes, patiently waiting for his long-awaited N
 
 ## Lizzo
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Lizzo
-
 ## [This adidas Sneaker Stares Minimalism Straight In The Face](https://www.highsnobiety.com/p/adidas-keiichi-tanaami-superstar/)
 
 Japanese pop artist Keiichi Tanaami’s paintings are surreal, maximalist compositions.  So, no surprise that Keiichi Tanaami’s adidas Superstar collaboration is…
 
 *Published on: Mon, 29 Jul 2024 09:52:54 GMT*
+
+
+## Alison Brie
+
+## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
+
+Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
+
+*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
 
 
 ## Alison Brie
@@ -2688,15 +2454,6 @@ After reporting on a camo print comeback no one seemed to notice – ba-dum-tss 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
 
 *Published on: Mon, 29 Jul 2024 15:11:18 GMT*
-
-
-## Alison Brie
-
-## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
-
-The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
-
-*Published on: Mon, 29 Jul 2024 16:05:34 GMT*
 
 
 ## Alison Brie
@@ -2755,20 +2512,20 @@ NIGO has the sneaker world on its toes, patiently waiting for his long-awaited N
 
 ## Alison Brie
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Alison Brie
-
 ## [This adidas Sneaker Stares Minimalism Straight In The Face](https://www.highsnobiety.com/p/adidas-keiichi-tanaami-superstar/)
 
 Japanese pop artist Keiichi Tanaami’s paintings are surreal, maximalist compositions.  So, no surprise that Keiichi Tanaami’s adidas Superstar collaboration is…
 
 *Published on: Mon, 29 Jul 2024 09:52:54 GMT*
+
+
+## Lil Wayne
+
+## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
+
+Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
+
+*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
 
 
 ## Lil Wayne
@@ -2787,15 +2544,6 @@ After reporting on a camo print comeback no one seemed to notice – ba-dum-tss 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
 
 *Published on: Mon, 29 Jul 2024 15:11:18 GMT*
-
-
-## Lil Wayne
-
-## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
-
-The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
-
-*Published on: Mon, 29 Jul 2024 16:05:34 GMT*
 
 
 ## Lil Wayne
@@ -2854,20 +2602,20 @@ NIGO has the sneaker world on its toes, patiently waiting for his long-awaited N
 
 ## Lil Wayne
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Lil Wayne
-
 ## [This adidas Sneaker Stares Minimalism Straight In The Face](https://www.highsnobiety.com/p/adidas-keiichi-tanaami-superstar/)
 
 Japanese pop artist Keiichi Tanaami’s paintings are surreal, maximalist compositions.  So, no surprise that Keiichi Tanaami’s adidas Superstar collaboration is…
 
 *Published on: Mon, 29 Jul 2024 09:52:54 GMT*
+
+
+## Adele
+
+## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
+
+Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
+
+*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
 
 
 ## Adele
@@ -2886,15 +2634,6 @@ After reporting on a camo print comeback no one seemed to notice – ba-dum-tss 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
 
 *Published on: Mon, 29 Jul 2024 15:11:18 GMT*
-
-
-## Adele
-
-## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
-
-The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
-
-*Published on: Mon, 29 Jul 2024 16:05:34 GMT*
 
 
 ## Adele
@@ -2953,20 +2692,20 @@ NIGO has the sneaker world on its toes, patiently waiting for his long-awaited N
 
 ## Adele
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Adele
-
 ## [This adidas Sneaker Stares Minimalism Straight In The Face](https://www.highsnobiety.com/p/adidas-keiichi-tanaami-superstar/)
 
 Japanese pop artist Keiichi Tanaami’s paintings are surreal, maximalist compositions.  So, no surprise that Keiichi Tanaami’s adidas Superstar collaboration is…
 
 *Published on: Mon, 29 Jul 2024 09:52:54 GMT*
+
+
+## Lindsay Lohan
+
+## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
+
+Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
+
+*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
 
 
 ## Lindsay Lohan
@@ -2985,15 +2724,6 @@ After reporting on a camo print comeback no one seemed to notice – ba-dum-tss 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
 
 *Published on: Mon, 29 Jul 2024 15:11:18 GMT*
-
-
-## Lindsay Lohan
-
-## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
-
-The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
-
-*Published on: Mon, 29 Jul 2024 16:05:34 GMT*
 
 
 ## Lindsay Lohan
@@ -3052,20 +2782,20 @@ NIGO has the sneaker world on its toes, patiently waiting for his long-awaited N
 
 ## Lindsay Lohan
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Lindsay Lohan
-
 ## [This adidas Sneaker Stares Minimalism Straight In The Face](https://www.highsnobiety.com/p/adidas-keiichi-tanaami-superstar/)
 
 Japanese pop artist Keiichi Tanaami’s paintings are surreal, maximalist compositions.  So, no surprise that Keiichi Tanaami’s adidas Superstar collaboration is…
 
 *Published on: Mon, 29 Jul 2024 09:52:54 GMT*
+
+
+## Addison Rae
+
+## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
+
+Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
+
+*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
 
 
 ## Addison Rae
@@ -3084,15 +2814,6 @@ After reporting on a camo print comeback no one seemed to notice – ba-dum-tss 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
 
 *Published on: Mon, 29 Jul 2024 15:11:18 GMT*
-
-
-## Addison Rae
-
-## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
-
-The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
-
-*Published on: Mon, 29 Jul 2024 16:05:34 GMT*
 
 
 ## Addison Rae
@@ -3151,20 +2872,20 @@ NIGO has the sneaker world on its toes, patiently waiting for his long-awaited N
 
 ## Addison Rae
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Addison Rae
-
 ## [This adidas Sneaker Stares Minimalism Straight In The Face](https://www.highsnobiety.com/p/adidas-keiichi-tanaami-superstar/)
 
 Japanese pop artist Keiichi Tanaami’s paintings are surreal, maximalist compositions.  So, no surprise that Keiichi Tanaami’s adidas Superstar collaboration is…
 
 *Published on: Mon, 29 Jul 2024 09:52:54 GMT*
+
+
+## Latto
+
+## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
+
+Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
+
+*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
 
 
 ## Latto
@@ -3183,15 +2904,6 @@ After reporting on a camo print comeback no one seemed to notice – ba-dum-tss 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
 
 *Published on: Mon, 29 Jul 2024 15:11:18 GMT*
-
-
-## Latto
-
-## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
-
-The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
-
-*Published on: Mon, 29 Jul 2024 16:05:34 GMT*
 
 
 ## Latto
@@ -3250,20 +2962,20 @@ NIGO has the sneaker world on its toes, patiently waiting for his long-awaited N
 
 ## Latto
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Latto
-
 ## [This adidas Sneaker Stares Minimalism Straight In The Face](https://www.highsnobiety.com/p/adidas-keiichi-tanaami-superstar/)
 
 Japanese pop artist Keiichi Tanaami’s paintings are surreal, maximalist compositions.  So, no surprise that Keiichi Tanaami’s adidas Superstar collaboration is…
 
 *Published on: Mon, 29 Jul 2024 09:52:54 GMT*
+
+
+## Aaron Paul
+
+## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
+
+Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
+
+*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
 
 
 ## Aaron Paul
@@ -3282,15 +2994,6 @@ After reporting on a camo print comeback no one seemed to notice – ba-dum-tss 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
 
 *Published on: Mon, 29 Jul 2024 15:11:18 GMT*
-
-
-## Aaron Paul
-
-## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
-
-The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
-
-*Published on: Mon, 29 Jul 2024 16:05:34 GMT*
 
 
 ## Aaron Paul
@@ -3349,20 +3052,20 @@ NIGO has the sneaker world on its toes, patiently waiting for his long-awaited N
 
 ## Aaron Paul
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Aaron Paul
-
 ## [This adidas Sneaker Stares Minimalism Straight In The Face](https://www.highsnobiety.com/p/adidas-keiichi-tanaami-superstar/)
 
 Japanese pop artist Keiichi Tanaami’s paintings are surreal, maximalist compositions.  So, no surprise that Keiichi Tanaami’s adidas Superstar collaboration is…
 
 *Published on: Mon, 29 Jul 2024 09:52:54 GMT*
+
+
+## LeBron James
+
+## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
+
+Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
+
+*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
 
 
 ## LeBron James
@@ -3381,15 +3084,6 @@ After reporting on a camo print comeback no one seemed to notice – ba-dum-tss 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
 
 *Published on: Mon, 29 Jul 2024 15:11:18 GMT*
-
-
-## LeBron James
-
-## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
-
-The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
-
-*Published on: Mon, 29 Jul 2024 16:05:34 GMT*
 
 
 ## LeBron James
@@ -3448,20 +3142,20 @@ NIGO has the sneaker world on its toes, patiently waiting for his long-awaited N
 
 ## LeBron James
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## LeBron James
-
 ## [This adidas Sneaker Stares Minimalism Straight In The Face](https://www.highsnobiety.com/p/adidas-keiichi-tanaami-superstar/)
 
 Japanese pop artist Keiichi Tanaami’s paintings are surreal, maximalist compositions.  So, no surprise that Keiichi Tanaami’s adidas Superstar collaboration is…
 
 *Published on: Mon, 29 Jul 2024 09:52:54 GMT*
+
+
+## 50 Cent
+
+## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
+
+Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
+
+*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
 
 
 ## 50 Cent
@@ -3480,15 +3174,6 @@ After reporting on a camo print comeback no one seemed to notice – ba-dum-tss 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
 
 *Published on: Mon, 29 Jul 2024 15:11:18 GMT*
-
-
-## 50 Cent
-
-## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
-
-The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
-
-*Published on: Mon, 29 Jul 2024 16:05:34 GMT*
 
 
 ## 50 Cent
@@ -3547,20 +3232,20 @@ NIGO has the sneaker world on its toes, patiently waiting for his long-awaited N
 
 ## 50 Cent
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## 50 Cent
-
 ## [This adidas Sneaker Stares Minimalism Straight In The Face](https://www.highsnobiety.com/p/adidas-keiichi-tanaami-superstar/)
 
 Japanese pop artist Keiichi Tanaami’s paintings are surreal, maximalist compositions.  So, no surprise that Keiichi Tanaami’s adidas Superstar collaboration is…
 
 *Published on: Mon, 29 Jul 2024 09:52:54 GMT*
+
+
+## Kesha
+
+## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
+
+Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
+
+*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
 
 
 ## Kesha
@@ -3579,15 +3264,6 @@ After reporting on a camo print comeback no one seemed to notice – ba-dum-tss 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
 
 *Published on: Mon, 29 Jul 2024 15:11:18 GMT*
-
-
-## Kesha
-
-## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
-
-The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
-
-*Published on: Mon, 29 Jul 2024 16:05:34 GMT*
 
 
 ## Kesha
@@ -3646,20 +3322,20 @@ NIGO has the sneaker world on its toes, patiently waiting for his long-awaited N
 
 ## Kesha
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Kesha
-
 ## [This adidas Sneaker Stares Minimalism Straight In The Face](https://www.highsnobiety.com/p/adidas-keiichi-tanaami-superstar/)
 
 Japanese pop artist Keiichi Tanaami’s paintings are surreal, maximalist compositions.  So, no surprise that Keiichi Tanaami’s adidas Superstar collaboration is…
 
 *Published on: Mon, 29 Jul 2024 09:52:54 GMT*
+
+
+## 21 Savage
+
+## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
+
+Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
+
+*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
 
 
 ## 21 Savage
@@ -3678,15 +3354,6 @@ After reporting on a camo print comeback no one seemed to notice – ba-dum-tss 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
 
 *Published on: Mon, 29 Jul 2024 15:11:18 GMT*
-
-
-## 21 Savage
-
-## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
-
-The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
-
-*Published on: Mon, 29 Jul 2024 16:05:34 GMT*
 
 
 ## 21 Savage
@@ -3745,20 +3412,20 @@ NIGO has the sneaker world on its toes, patiently waiting for his long-awaited N
 
 ## 21 Savage
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## 21 Savage
-
 ## [This adidas Sneaker Stares Minimalism Straight In The Face](https://www.highsnobiety.com/p/adidas-keiichi-tanaami-superstar/)
 
 Japanese pop artist Keiichi Tanaami’s paintings are surreal, maximalist compositions.  So, no surprise that Keiichi Tanaami’s adidas Superstar collaboration is…
 
 *Published on: Mon, 29 Jul 2024 09:52:54 GMT*
+
+
+## Larry David
+
+## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
+
+Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
+
+*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
 
 
 ## Larry David
@@ -3777,15 +3444,6 @@ After reporting on a camo print comeback no one seemed to notice – ba-dum-tss 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
 
 *Published on: Mon, 29 Jul 2024 15:11:18 GMT*
-
-
-## Larry David
-
-## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
-
-The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
-
-*Published on: Mon, 29 Jul 2024 16:05:34 GMT*
 
 
 ## Larry David
@@ -3844,20 +3502,20 @@ NIGO has the sneaker world on its toes, patiently waiting for his long-awaited N
 
 ## Larry David
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Larry David
-
 ## [This adidas Sneaker Stares Minimalism Straight In The Face](https://www.highsnobiety.com/p/adidas-keiichi-tanaami-superstar/)
 
 Japanese pop artist Keiichi Tanaami’s paintings are surreal, maximalist compositions.  So, no surprise that Keiichi Tanaami’s adidas Superstar collaboration is…
 
 *Published on: Mon, 29 Jul 2024 09:52:54 GMT*
+
+
+## Seth Rogan
+
+## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
+
+Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
+
+*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
 
 
 ## Seth Rogan
@@ -3876,15 +3534,6 @@ After reporting on a camo print comeback no one seemed to notice – ba-dum-tss 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
 
 *Published on: Mon, 29 Jul 2024 15:11:18 GMT*
-
-
-## Seth Rogan
-
-## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
-
-The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
-
-*Published on: Mon, 29 Jul 2024 16:05:34 GMT*
 
 
 ## Seth Rogan
@@ -3943,20 +3592,20 @@ NIGO has the sneaker world on its toes, patiently waiting for his long-awaited N
 
 ## Seth Rogan
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Seth Rogan
-
 ## [This adidas Sneaker Stares Minimalism Straight In The Face](https://www.highsnobiety.com/p/adidas-keiichi-tanaami-superstar/)
 
 Japanese pop artist Keiichi Tanaami’s paintings are surreal, maximalist compositions.  So, no surprise that Keiichi Tanaami’s adidas Superstar collaboration is…
 
 *Published on: Mon, 29 Jul 2024 09:52:54 GMT*
+
+
+## Simone Biles
+
+## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
+
+Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
+
+*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
 
 
 ## Simone Biles
@@ -3975,15 +3624,6 @@ After reporting on a camo print comeback no one seemed to notice – ba-dum-tss 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
 
 *Published on: Mon, 29 Jul 2024 15:11:18 GMT*
-
-
-## Simone Biles
-
-## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
-
-The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
-
-*Published on: Mon, 29 Jul 2024 16:05:34 GMT*
 
 
 ## Simone Biles
@@ -4042,20 +3682,20 @@ NIGO has the sneaker world on its toes, patiently waiting for his long-awaited N
 
 ## Simone Biles
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Simone Biles
-
 ## [This adidas Sneaker Stares Minimalism Straight In The Face](https://www.highsnobiety.com/p/adidas-keiichi-tanaami-superstar/)
 
 Japanese pop artist Keiichi Tanaami’s paintings are surreal, maximalist compositions.  So, no surprise that Keiichi Tanaami’s adidas Superstar collaboration is…
 
 *Published on: Mon, 29 Jul 2024 09:52:54 GMT*
+
+
+## Pete Davidson
+
+## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
+
+Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
+
+*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
 
 
 ## Pete Davidson
@@ -4074,15 +3714,6 @@ After reporting on a camo print comeback no one seemed to notice – ba-dum-tss 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
 
 *Published on: Mon, 29 Jul 2024 15:11:18 GMT*
-
-
-## Pete Davidson
-
-## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
-
-The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
-
-*Published on: Mon, 29 Jul 2024 16:05:34 GMT*
 
 
 ## Pete Davidson
@@ -4141,20 +3772,20 @@ NIGO has the sneaker world on its toes, patiently waiting for his long-awaited N
 
 ## Pete Davidson
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Pete Davidson
-
 ## [This adidas Sneaker Stares Minimalism Straight In The Face](https://www.highsnobiety.com/p/adidas-keiichi-tanaami-superstar/)
 
 Japanese pop artist Keiichi Tanaami’s paintings are surreal, maximalist compositions.  So, no surprise that Keiichi Tanaami’s adidas Superstar collaboration is…
 
 *Published on: Mon, 29 Jul 2024 09:52:54 GMT*
+
+
+## Prince Harry
+
+## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
+
+Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
+
+*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
 
 
 ## Prince Harry
@@ -4173,15 +3804,6 @@ After reporting on a camo print comeback no one seemed to notice – ba-dum-tss 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
 
 *Published on: Mon, 29 Jul 2024 15:11:18 GMT*
-
-
-## Prince Harry
-
-## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
-
-The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
-
-*Published on: Mon, 29 Jul 2024 16:05:34 GMT*
 
 
 ## Prince Harry
@@ -4240,20 +3862,20 @@ NIGO has the sneaker world on its toes, patiently waiting for his long-awaited N
 
 ## Prince Harry
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Prince Harry
-
 ## [This adidas Sneaker Stares Minimalism Straight In The Face](https://www.highsnobiety.com/p/adidas-keiichi-tanaami-superstar/)
 
 Japanese pop artist Keiichi Tanaami’s paintings are surreal, maximalist compositions.  So, no surprise that Keiichi Tanaami’s adidas Superstar collaboration is…
 
 *Published on: Mon, 29 Jul 2024 09:52:54 GMT*
+
+
+## Princess of Wales
+
+## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
+
+Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
+
+*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
 
 
 ## Princess of Wales
@@ -4272,15 +3894,6 @@ After reporting on a camo print comeback no one seemed to notice – ba-dum-tss 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
 
 *Published on: Mon, 29 Jul 2024 15:11:18 GMT*
-
-
-## Princess of Wales
-
-## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
-
-The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
-
-*Published on: Mon, 29 Jul 2024 16:05:34 GMT*
 
 
 ## Princess of Wales
@@ -4339,20 +3952,20 @@ NIGO has the sneaker world on its toes, patiently waiting for his long-awaited N
 
 ## Princess of Wales
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Princess of Wales
-
 ## [This adidas Sneaker Stares Minimalism Straight In The Face](https://www.highsnobiety.com/p/adidas-keiichi-tanaami-superstar/)
 
 Japanese pop artist Keiichi Tanaami’s paintings are surreal, maximalist compositions.  So, no surprise that Keiichi Tanaami’s adidas Superstar collaboration is…
 
 *Published on: Mon, 29 Jul 2024 09:52:54 GMT*
+
+
+## Rachel McAdams
+
+## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
+
+Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
+
+*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
 
 
 ## Rachel McAdams
@@ -4371,15 +3984,6 @@ After reporting on a camo print comeback no one seemed to notice – ba-dum-tss 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
 
 *Published on: Mon, 29 Jul 2024 15:11:18 GMT*
-
-
-## Rachel McAdams
-
-## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
-
-The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
-
-*Published on: Mon, 29 Jul 2024 16:05:34 GMT*
 
 
 ## Rachel McAdams
@@ -4438,20 +4042,20 @@ NIGO has the sneaker world on its toes, patiently waiting for his long-awaited N
 
 ## Rachel McAdams
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Rachel McAdams
-
 ## [This adidas Sneaker Stares Minimalism Straight In The Face](https://www.highsnobiety.com/p/adidas-keiichi-tanaami-superstar/)
 
 Japanese pop artist Keiichi Tanaami’s paintings are surreal, maximalist compositions.  So, no surprise that Keiichi Tanaami’s adidas Superstar collaboration is…
 
 *Published on: Mon, 29 Jul 2024 09:52:54 GMT*
+
+
+## Reneé Rapp
+
+## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
+
+Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
+
+*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
 
 
 ## Reneé Rapp
@@ -4470,15 +4074,6 @@ After reporting on a camo print comeback no one seemed to notice – ba-dum-tss 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
 
 *Published on: Mon, 29 Jul 2024 15:11:18 GMT*
-
-
-## Reneé Rapp
-
-## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
-
-The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
-
-*Published on: Mon, 29 Jul 2024 16:05:34 GMT*
 
 
 ## Reneé Rapp
@@ -4537,20 +4132,20 @@ NIGO has the sneaker world on its toes, patiently waiting for his long-awaited N
 
 ## Reneé Rapp
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Reneé Rapp
-
 ## [This adidas Sneaker Stares Minimalism Straight In The Face](https://www.highsnobiety.com/p/adidas-keiichi-tanaami-superstar/)
 
 Japanese pop artist Keiichi Tanaami’s paintings are surreal, maximalist compositions.  So, no surprise that Keiichi Tanaami’s adidas Superstar collaboration is…
 
 *Published on: Mon, 29 Jul 2024 09:52:54 GMT*
+
+
+## Rick Ross
+
+## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
+
+Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
+
+*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
 
 
 ## Rick Ross
@@ -4569,15 +4164,6 @@ After reporting on a camo print comeback no one seemed to notice – ba-dum-tss 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
 
 *Published on: Mon, 29 Jul 2024 15:11:18 GMT*
-
-
-## Rick Ross
-
-## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
-
-The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
-
-*Published on: Mon, 29 Jul 2024 16:05:34 GMT*
 
 
 ## Rick Ross
@@ -4636,20 +4222,20 @@ NIGO has the sneaker world on its toes, patiently waiting for his long-awaited N
 
 ## Rick Ross
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Rick Ross
-
 ## [This adidas Sneaker Stares Minimalism Straight In The Face](https://www.highsnobiety.com/p/adidas-keiichi-tanaami-superstar/)
 
 Japanese pop artist Keiichi Tanaami’s paintings are surreal, maximalist compositions.  So, no surprise that Keiichi Tanaami’s adidas Superstar collaboration is…
 
 *Published on: Mon, 29 Jul 2024 09:52:54 GMT*
+
+
+## Sam Ashgari
+
+## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
+
+Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
+
+*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
 
 
 ## Sam Ashgari
@@ -4668,15 +4254,6 @@ After reporting on a camo print comeback no one seemed to notice – ba-dum-tss 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
 
 *Published on: Mon, 29 Jul 2024 15:11:18 GMT*
-
-
-## Sam Ashgari
-
-## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
-
-The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
-
-*Published on: Mon, 29 Jul 2024 16:05:34 GMT*
 
 
 ## Sam Ashgari
@@ -4735,20 +4312,20 @@ NIGO has the sneaker world on its toes, patiently waiting for his long-awaited N
 
 ## Sam Ashgari
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Sam Ashgari
-
 ## [This adidas Sneaker Stares Minimalism Straight In The Face](https://www.highsnobiety.com/p/adidas-keiichi-tanaami-superstar/)
 
 Japanese pop artist Keiichi Tanaami’s paintings are surreal, maximalist compositions.  So, no surprise that Keiichi Tanaami’s adidas Superstar collaboration is…
 
 *Published on: Mon, 29 Jul 2024 09:52:54 GMT*
+
+
+## Sandra Oh
+
+## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
+
+Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
+
+*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
 
 
 ## Sandra Oh
@@ -4767,15 +4344,6 @@ After reporting on a camo print comeback no one seemed to notice – ba-dum-tss 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
 
 *Published on: Mon, 29 Jul 2024 15:11:18 GMT*
-
-
-## Sandra Oh
-
-## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
-
-The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
-
-*Published on: Mon, 29 Jul 2024 16:05:34 GMT*
 
 
 ## Sandra Oh
@@ -4834,20 +4402,20 @@ NIGO has the sneaker world on its toes, patiently waiting for his long-awaited N
 
 ## Sandra Oh
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Sandra Oh
-
 ## [This adidas Sneaker Stares Minimalism Straight In The Face](https://www.highsnobiety.com/p/adidas-keiichi-tanaami-superstar/)
 
 Japanese pop artist Keiichi Tanaami’s paintings are surreal, maximalist compositions.  So, no surprise that Keiichi Tanaami’s adidas Superstar collaboration is…
 
 *Published on: Mon, 29 Jul 2024 09:52:54 GMT*
+
+
+## Donald Trump
+
+## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
+
+Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
+
+*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
 
 
 ## Donald Trump
@@ -4866,15 +4434,6 @@ After reporting on a camo print comeback no one seemed to notice – ba-dum-tss 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
 
 *Published on: Mon, 29 Jul 2024 15:11:18 GMT*
-
-
-## Donald Trump
-
-## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
-
-The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
-
-*Published on: Mon, 29 Jul 2024 16:05:34 GMT*
 
 
 ## Donald Trump
@@ -4933,20 +4492,20 @@ NIGO has the sneaker world on its toes, patiently waiting for his long-awaited N
 
 ## Donald Trump
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Donald Trump
-
 ## [This adidas Sneaker Stares Minimalism Straight In The Face](https://www.highsnobiety.com/p/adidas-keiichi-tanaami-superstar/)
 
 Japanese pop artist Keiichi Tanaami’s paintings are surreal, maximalist compositions.  So, no surprise that Keiichi Tanaami’s adidas Superstar collaboration is…
 
 *Published on: Mon, 29 Jul 2024 09:52:54 GMT*
+
+
+## Diddy
+
+## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
+
+Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
+
+*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
 
 
 ## Diddy
@@ -4965,15 +4524,6 @@ After reporting on a camo print comeback no one seemed to notice – ba-dum-tss 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
 
 *Published on: Mon, 29 Jul 2024 15:11:18 GMT*
-
-
-## Diddy
-
-## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
-
-The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
-
-*Published on: Mon, 29 Jul 2024 16:05:34 GMT*
 
 
 ## Diddy
@@ -5032,20 +4582,20 @@ NIGO has the sneaker world on its toes, patiently waiting for his long-awaited N
 
 ## Diddy
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Diddy
-
 ## [This adidas Sneaker Stares Minimalism Straight In The Face](https://www.highsnobiety.com/p/adidas-keiichi-tanaami-superstar/)
 
 Japanese pop artist Keiichi Tanaami’s paintings are surreal, maximalist compositions.  So, no surprise that Keiichi Tanaami’s adidas Superstar collaboration is…
 
 *Published on: Mon, 29 Jul 2024 09:52:54 GMT*
+
+
+## City Girls
+
+## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
+
+Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
+
+*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
 
 
 ## City Girls
@@ -5064,15 +4614,6 @@ After reporting on a camo print comeback no one seemed to notice – ba-dum-tss 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
 
 *Published on: Mon, 29 Jul 2024 15:11:18 GMT*
-
-
-## City Girls
-
-## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
-
-The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
-
-*Published on: Mon, 29 Jul 2024 16:05:34 GMT*
 
 
 ## City Girls
@@ -5131,20 +4672,20 @@ NIGO has the sneaker world on its toes, patiently waiting for his long-awaited N
 
 ## City Girls
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## City Girls
-
 ## [This adidas Sneaker Stares Minimalism Straight In The Face](https://www.highsnobiety.com/p/adidas-keiichi-tanaami-superstar/)
 
 Japanese pop artist Keiichi Tanaami’s paintings are surreal, maximalist compositions.  So, no surprise that Keiichi Tanaami’s adidas Superstar collaboration is…
 
 *Published on: Mon, 29 Jul 2024 09:52:54 GMT*
+
+
+## Chloe Bailey
+
+## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
+
+Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
+
+*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
 
 
 ## Chloe Bailey
@@ -5163,15 +4704,6 @@ After reporting on a camo print comeback no one seemed to notice – ba-dum-tss 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
 
 *Published on: Mon, 29 Jul 2024 15:11:18 GMT*
-
-
-## Chloe Bailey
-
-## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
-
-The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
-
-*Published on: Mon, 29 Jul 2024 16:05:34 GMT*
 
 
 ## Chloe Bailey
@@ -5230,20 +4762,20 @@ NIGO has the sneaker world on its toes, patiently waiting for his long-awaited N
 
 ## Chloe Bailey
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Chloe Bailey
-
 ## [This adidas Sneaker Stares Minimalism Straight In The Face](https://www.highsnobiety.com/p/adidas-keiichi-tanaami-superstar/)
 
 Japanese pop artist Keiichi Tanaami’s paintings are surreal, maximalist compositions.  So, no surprise that Keiichi Tanaami’s adidas Superstar collaboration is…
 
 *Published on: Mon, 29 Jul 2024 09:52:54 GMT*
+
+
+## Charli D Amelio
+
+## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
+
+Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
+
+*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
 
 
 ## Charli D Amelio
@@ -5262,15 +4794,6 @@ After reporting on a camo print comeback no one seemed to notice – ba-dum-tss 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
 
 *Published on: Mon, 29 Jul 2024 15:11:18 GMT*
-
-
-## Charli D Amelio
-
-## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
-
-The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
-
-*Published on: Mon, 29 Jul 2024 16:05:34 GMT*
 
 
 ## Charli D Amelio
@@ -5329,20 +4852,20 @@ NIGO has the sneaker world on its toes, patiently waiting for his long-awaited N
 
 ## Charli D Amelio
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Charli D Amelio
-
 ## [This adidas Sneaker Stares Minimalism Straight In The Face](https://www.highsnobiety.com/p/adidas-keiichi-tanaami-superstar/)
 
 Japanese pop artist Keiichi Tanaami’s paintings are surreal, maximalist compositions.  So, no surprise that Keiichi Tanaami’s adidas Superstar collaboration is…
 
 *Published on: Mon, 29 Jul 2024 09:52:54 GMT*
+
+
+## Cardi B
+
+## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
+
+Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
+
+*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
 
 
 ## Cardi B
@@ -5361,15 +4884,6 @@ After reporting on a camo print comeback no one seemed to notice – ba-dum-tss 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
 
 *Published on: Mon, 29 Jul 2024 15:11:18 GMT*
-
-
-## Cardi B
-
-## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
-
-The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
-
-*Published on: Mon, 29 Jul 2024 16:05:34 GMT*
 
 
 ## Cardi B
@@ -5428,20 +4942,20 @@ NIGO has the sneaker world on its toes, patiently waiting for his long-awaited N
 
 ## Cardi B
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Cardi B
-
 ## [This adidas Sneaker Stares Minimalism Straight In The Face](https://www.highsnobiety.com/p/adidas-keiichi-tanaami-superstar/)
 
 Japanese pop artist Keiichi Tanaami’s paintings are surreal, maximalist compositions.  So, no surprise that Keiichi Tanaami’s adidas Superstar collaboration is…
 
 *Published on: Mon, 29 Jul 2024 09:52:54 GMT*
+
+
+## Bryan Cranston
+
+## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
+
+Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
+
+*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
 
 
 ## Bryan Cranston
@@ -5460,15 +4974,6 @@ After reporting on a camo print comeback no one seemed to notice – ba-dum-tss 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
 
 *Published on: Mon, 29 Jul 2024 15:11:18 GMT*
-
-
-## Bryan Cranston
-
-## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
-
-The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
-
-*Published on: Mon, 29 Jul 2024 16:05:34 GMT*
 
 
 ## Bryan Cranston
@@ -5527,20 +5032,20 @@ NIGO has the sneaker world on its toes, patiently waiting for his long-awaited N
 
 ## Bryan Cranston
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Bryan Cranston
-
 ## [This adidas Sneaker Stares Minimalism Straight In The Face](https://www.highsnobiety.com/p/adidas-keiichi-tanaami-superstar/)
 
 Japanese pop artist Keiichi Tanaami’s paintings are surreal, maximalist compositions.  So, no surprise that Keiichi Tanaami’s adidas Superstar collaboration is…
 
 *Published on: Mon, 29 Jul 2024 09:52:54 GMT*
+
+
+## Brielle Biermann
+
+## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
+
+Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
+
+*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
 
 
 ## Brielle Biermann
@@ -5559,15 +5064,6 @@ After reporting on a camo print comeback no one seemed to notice – ba-dum-tss 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
 
 *Published on: Mon, 29 Jul 2024 15:11:18 GMT*
-
-
-## Brielle Biermann
-
-## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
-
-The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
-
-*Published on: Mon, 29 Jul 2024 16:05:34 GMT*
 
 
 ## Brielle Biermann
@@ -5626,20 +5122,20 @@ NIGO has the sneaker world on its toes, patiently waiting for his long-awaited N
 
 ## Brielle Biermann
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Brielle Biermann
-
 ## [This adidas Sneaker Stares Minimalism Straight In The Face](https://www.highsnobiety.com/p/adidas-keiichi-tanaami-superstar/)
 
 Japanese pop artist Keiichi Tanaami’s paintings are surreal, maximalist compositions.  So, no surprise that Keiichi Tanaami’s adidas Superstar collaboration is…
 
 *Published on: Mon, 29 Jul 2024 09:52:54 GMT*
+
+
+## Dua Lipa
+
+## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
+
+Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
+
+*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
 
 
 ## Dua Lipa
@@ -5658,15 +5154,6 @@ After reporting on a camo print comeback no one seemed to notice – ba-dum-tss 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
 
 *Published on: Mon, 29 Jul 2024 15:11:18 GMT*
-
-
-## Dua Lipa
-
-## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
-
-The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
-
-*Published on: Mon, 29 Jul 2024 16:05:34 GMT*
 
 
 ## Dua Lipa
@@ -5725,20 +5212,20 @@ NIGO has the sneaker world on its toes, patiently waiting for his long-awaited N
 
 ## Dua Lipa
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Dua Lipa
-
 ## [This adidas Sneaker Stares Minimalism Straight In The Face](https://www.highsnobiety.com/p/adidas-keiichi-tanaami-superstar/)
 
 Japanese pop artist Keiichi Tanaami’s paintings are surreal, maximalist compositions.  So, no surprise that Keiichi Tanaami’s adidas Superstar collaboration is…
 
 *Published on: Mon, 29 Jul 2024 09:52:54 GMT*
+
+
+## Drake
+
+## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
+
+Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
+
+*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
 
 
 ## Drake
@@ -5757,15 +5244,6 @@ After reporting on a camo print comeback no one seemed to notice – ba-dum-tss 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
 
 *Published on: Mon, 29 Jul 2024 15:11:18 GMT*
-
-
-## Drake
-
-## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
-
-The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
-
-*Published on: Mon, 29 Jul 2024 16:05:34 GMT*
 
 
 ## Drake
@@ -5824,20 +5302,20 @@ NIGO has the sneaker world on its toes, patiently waiting for his long-awaited N
 
 ## Drake
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Drake
-
 ## [This adidas Sneaker Stares Minimalism Straight In The Face](https://www.highsnobiety.com/p/adidas-keiichi-tanaami-superstar/)
 
 Japanese pop artist Keiichi Tanaami’s paintings are surreal, maximalist compositions.  So, no surprise that Keiichi Tanaami’s adidas Superstar collaboration is…
 
 *Published on: Mon, 29 Jul 2024 09:52:54 GMT*
+
+
+## Jenner
+
+## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
+
+Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
+
+*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
 
 
 ## Jenner
@@ -5856,15 +5334,6 @@ After reporting on a camo print comeback no one seemed to notice – ba-dum-tss 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
 
 *Published on: Mon, 29 Jul 2024 15:11:18 GMT*
-
-
-## Jenner
-
-## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
-
-The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
-
-*Published on: Mon, 29 Jul 2024 16:05:34 GMT*
 
 
 ## Jenner
@@ -5923,20 +5392,20 @@ NIGO has the sneaker world on its toes, patiently waiting for his long-awaited N
 
 ## Jenner
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Jenner
-
 ## [This adidas Sneaker Stares Minimalism Straight In The Face](https://www.highsnobiety.com/p/adidas-keiichi-tanaami-superstar/)
 
 Japanese pop artist Keiichi Tanaami’s paintings are surreal, maximalist compositions.  So, no surprise that Keiichi Tanaami’s adidas Superstar collaboration is…
 
 *Published on: Mon, 29 Jul 2024 09:52:54 GMT*
+
+
+## J. Cole
+
+## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
+
+Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
+
+*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
 
 
 ## J. Cole
@@ -5955,15 +5424,6 @@ After reporting on a camo print comeback no one seemed to notice – ba-dum-tss 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
 
 *Published on: Mon, 29 Jul 2024 15:11:18 GMT*
-
-
-## J. Cole
-
-## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
-
-The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
-
-*Published on: Mon, 29 Jul 2024 16:05:34 GMT*
 
 
 ## J. Cole
@@ -6022,20 +5482,20 @@ NIGO has the sneaker world on its toes, patiently waiting for his long-awaited N
 
 ## J. Cole
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## J. Cole
-
 ## [This adidas Sneaker Stares Minimalism Straight In The Face](https://www.highsnobiety.com/p/adidas-keiichi-tanaami-superstar/)
 
 Japanese pop artist Keiichi Tanaami’s paintings are surreal, maximalist compositions.  So, no surprise that Keiichi Tanaami’s adidas Superstar collaboration is…
 
 *Published on: Mon, 29 Jul 2024 09:52:54 GMT*
+
+
+## Jerrod Carmichael
+
+## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
+
+Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
+
+*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
 
 
 ## Jerrod Carmichael
@@ -6054,15 +5514,6 @@ After reporting on a camo print comeback no one seemed to notice – ba-dum-tss 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
 
 *Published on: Mon, 29 Jul 2024 15:11:18 GMT*
-
-
-## Jerrod Carmichael
-
-## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
-
-The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
-
-*Published on: Mon, 29 Jul 2024 16:05:34 GMT*
 
 
 ## Jerrod Carmichael
@@ -6121,20 +5572,20 @@ NIGO has the sneaker world on its toes, patiently waiting for his long-awaited N
 
 ## Jerrod Carmichael
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Jerrod Carmichael
-
 ## [This adidas Sneaker Stares Minimalism Straight In The Face](https://www.highsnobiety.com/p/adidas-keiichi-tanaami-superstar/)
 
 Japanese pop artist Keiichi Tanaami’s paintings are surreal, maximalist compositions.  So, no surprise that Keiichi Tanaami’s adidas Superstar collaboration is…
 
 *Published on: Mon, 29 Jul 2024 09:52:54 GMT*
+
+
+## Jennifer Lawrence
+
+## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
+
+Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
+
+*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
 
 
 ## Jennifer Lawrence
@@ -6153,15 +5604,6 @@ After reporting on a camo print comeback no one seemed to notice – ba-dum-tss 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
 
 *Published on: Mon, 29 Jul 2024 15:11:18 GMT*
-
-
-## Jennifer Lawrence
-
-## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
-
-The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
-
-*Published on: Mon, 29 Jul 2024 16:05:34 GMT*
 
 
 ## Jennifer Lawrence
@@ -6220,20 +5662,20 @@ NIGO has the sneaker world on its toes, patiently waiting for his long-awaited N
 
 ## Jennifer Lawrence
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Jennifer Lawrence
-
 ## [This adidas Sneaker Stares Minimalism Straight In The Face](https://www.highsnobiety.com/p/adidas-keiichi-tanaami-superstar/)
 
 Japanese pop artist Keiichi Tanaami’s paintings are surreal, maximalist compositions.  So, no surprise that Keiichi Tanaami’s adidas Superstar collaboration is…
 
 *Published on: Mon, 29 Jul 2024 09:52:54 GMT*
+
+
+## Joe Biden
+
+## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
+
+Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
+
+*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
 
 
 ## Joe Biden
@@ -6252,15 +5694,6 @@ After reporting on a camo print comeback no one seemed to notice – ba-dum-tss 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
 
 *Published on: Mon, 29 Jul 2024 15:11:18 GMT*
-
-
-## Joe Biden
-
-## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
-
-The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
-
-*Published on: Mon, 29 Jul 2024 16:05:34 GMT*
 
 
 ## Joe Biden
@@ -6319,20 +5752,20 @@ NIGO has the sneaker world on its toes, patiently waiting for his long-awaited N
 
 ## Joe Biden
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Joe Biden
-
 ## [This adidas Sneaker Stares Minimalism Straight In The Face](https://www.highsnobiety.com/p/adidas-keiichi-tanaami-superstar/)
 
 Japanese pop artist Keiichi Tanaami’s paintings are surreal, maximalist compositions.  So, no surprise that Keiichi Tanaami’s adidas Superstar collaboration is…
 
 *Published on: Mon, 29 Jul 2024 09:52:54 GMT*
+
+
+## J.K. Simmons
+
+## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
+
+Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
+
+*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
 
 
 ## J.K. Simmons
@@ -6351,15 +5784,6 @@ After reporting on a camo print comeback no one seemed to notice – ba-dum-tss 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
 
 *Published on: Mon, 29 Jul 2024 15:11:18 GMT*
-
-
-## J.K. Simmons
-
-## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
-
-The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
-
-*Published on: Mon, 29 Jul 2024 16:05:34 GMT*
 
 
 ## J.K. Simmons
@@ -6418,20 +5842,20 @@ NIGO has the sneaker world on its toes, patiently waiting for his long-awaited N
 
 ## J.K. Simmons
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## J.K. Simmons
-
 ## [This adidas Sneaker Stares Minimalism Straight In The Face](https://www.highsnobiety.com/p/adidas-keiichi-tanaami-superstar/)
 
 Japanese pop artist Keiichi Tanaami’s paintings are surreal, maximalist compositions.  So, no surprise that Keiichi Tanaami’s adidas Superstar collaboration is…
 
 *Published on: Mon, 29 Jul 2024 09:52:54 GMT*
+
+
+## Kamala Harris
+
+## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
+
+Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
+
+*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
 
 
 ## Kamala Harris
@@ -6450,15 +5874,6 @@ After reporting on a camo print comeback no one seemed to notice – ba-dum-tss 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
 
 *Published on: Mon, 29 Jul 2024 15:11:18 GMT*
-
-
-## Kamala Harris
-
-## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
-
-The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
-
-*Published on: Mon, 29 Jul 2024 16:05:34 GMT*
 
 
 ## Kamala Harris
@@ -6517,20 +5932,20 @@ NIGO has the sneaker world on its toes, patiently waiting for his long-awaited N
 
 ## Kamala Harris
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Kamala Harris
-
 ## [This adidas Sneaker Stares Minimalism Straight In The Face](https://www.highsnobiety.com/p/adidas-keiichi-tanaami-superstar/)
 
 Japanese pop artist Keiichi Tanaami’s paintings are surreal, maximalist compositions.  So, no surprise that Keiichi Tanaami’s adidas Superstar collaboration is…
 
 *Published on: Mon, 29 Jul 2024 09:52:54 GMT*
+
+
+## John C Reilly
+
+## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
+
+Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
+
+*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
 
 
 ## John C Reilly
@@ -6549,15 +5964,6 @@ After reporting on a camo print comeback no one seemed to notice – ba-dum-tss 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
 
 *Published on: Mon, 29 Jul 2024 15:11:18 GMT*
-
-
-## John C Reilly
-
-## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
-
-The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
-
-*Published on: Mon, 29 Jul 2024 16:05:34 GMT*
 
 
 ## John C Reilly
@@ -6616,20 +6022,20 @@ NIGO has the sneaker world on its toes, patiently waiting for his long-awaited N
 
 ## John C Reilly
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## John C Reilly
-
 ## [This adidas Sneaker Stares Minimalism Straight In The Face](https://www.highsnobiety.com/p/adidas-keiichi-tanaami-superstar/)
 
 Japanese pop artist Keiichi Tanaami’s paintings are surreal, maximalist compositions.  So, no surprise that Keiichi Tanaami’s adidas Superstar collaboration is…
 
 *Published on: Mon, 29 Jul 2024 09:52:54 GMT*
+
+
+## Kardashian
+
+## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
+
+Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
+
+*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
 
 
 ## Kardashian
@@ -6648,15 +6054,6 @@ After reporting on a camo print comeback no one seemed to notice – ba-dum-tss 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
 
 *Published on: Mon, 29 Jul 2024 15:11:18 GMT*
-
-
-## Kardashian
-
-## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
-
-The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
-
-*Published on: Mon, 29 Jul 2024 16:05:34 GMT*
 
 
 ## Kardashian
@@ -6715,20 +6112,20 @@ NIGO has the sneaker world on its toes, patiently waiting for his long-awaited N
 
 ## Kardashian
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Kardashian
-
 ## [This adidas Sneaker Stares Minimalism Straight In The Face](https://www.highsnobiety.com/p/adidas-keiichi-tanaami-superstar/)
 
 Japanese pop artist Keiichi Tanaami’s paintings are surreal, maximalist compositions.  So, no surprise that Keiichi Tanaami’s adidas Superstar collaboration is…
 
 *Published on: Mon, 29 Jul 2024 09:52:54 GMT*
+
+
+## Kanye
+
+## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
+
+Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
+
+*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
 
 
 ## Kanye
@@ -6747,15 +6144,6 @@ After reporting on a camo print comeback no one seemed to notice – ba-dum-tss 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
 
 *Published on: Mon, 29 Jul 2024 15:11:18 GMT*
-
-
-## Kanye
-
-## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
-
-The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
-
-*Published on: Mon, 29 Jul 2024 16:05:34 GMT*
 
 
 ## Kanye
@@ -6814,20 +6202,20 @@ NIGO has the sneaker world on its toes, patiently waiting for his long-awaited N
 
 ## Kanye
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Kanye
-
 ## [This adidas Sneaker Stares Minimalism Straight In The Face](https://www.highsnobiety.com/p/adidas-keiichi-tanaami-superstar/)
 
 Japanese pop artist Keiichi Tanaami’s paintings are surreal, maximalist compositions.  So, no surprise that Keiichi Tanaami’s adidas Superstar collaboration is…
 
 *Published on: Mon, 29 Jul 2024 09:52:54 GMT*
+
+
+## Zendaya
+
+## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
+
+Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
+
+*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
 
 
 ## Zendaya
@@ -6846,15 +6234,6 @@ After reporting on a camo print comeback no one seemed to notice – ba-dum-tss 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
 
 *Published on: Mon, 29 Jul 2024 15:11:18 GMT*
-
-
-## Zendaya
-
-## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
-
-The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
-
-*Published on: Mon, 29 Jul 2024 16:05:34 GMT*
 
 
 ## Zendaya
@@ -6913,20 +6292,20 @@ NIGO has the sneaker world on its toes, patiently waiting for his long-awaited N
 
 ## Zendaya
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Zendaya
-
 ## [This adidas Sneaker Stares Minimalism Straight In The Face](https://www.highsnobiety.com/p/adidas-keiichi-tanaami-superstar/)
 
 Japanese pop artist Keiichi Tanaami’s paintings are surreal, maximalist compositions.  So, no surprise that Keiichi Tanaami’s adidas Superstar collaboration is…
 
 *Published on: Mon, 29 Jul 2024 09:52:54 GMT*
+
+
+## Will Ferrell
+
+## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
+
+Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
+
+*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
 
 
 ## Will Ferrell
@@ -6945,15 +6324,6 @@ After reporting on a camo print comeback no one seemed to notice – ba-dum-tss 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
 
 *Published on: Mon, 29 Jul 2024 15:11:18 GMT*
-
-
-## Will Ferrell
-
-## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
-
-The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
-
-*Published on: Mon, 29 Jul 2024 16:05:34 GMT*
 
 
 ## Will Ferrell
@@ -7012,20 +6382,20 @@ NIGO has the sneaker world on its toes, patiently waiting for his long-awaited N
 
 ## Will Ferrell
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Will Ferrell
-
 ## [This adidas Sneaker Stares Minimalism Straight In The Face](https://www.highsnobiety.com/p/adidas-keiichi-tanaami-superstar/)
 
 Japanese pop artist Keiichi Tanaami’s paintings are surreal, maximalist compositions.  So, no surprise that Keiichi Tanaami’s adidas Superstar collaboration is…
 
 *Published on: Mon, 29 Jul 2024 09:52:54 GMT*
+
+
+## Zazie Beetz
+
+## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
+
+Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
+
+*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
 
 
 ## Zazie Beetz
@@ -7044,15 +6414,6 @@ After reporting on a camo print comeback no one seemed to notice – ba-dum-tss 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
 
 *Published on: Mon, 29 Jul 2024 15:11:18 GMT*
-
-
-## Zazie Beetz
-
-## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
-
-The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
-
-*Published on: Mon, 29 Jul 2024 16:05:34 GMT*
 
 
 ## Zazie Beetz
@@ -7111,20 +6472,20 @@ NIGO has the sneaker world on its toes, patiently waiting for his long-awaited N
 
 ## Zazie Beetz
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Zazie Beetz
-
 ## [This adidas Sneaker Stares Minimalism Straight In The Face](https://www.highsnobiety.com/p/adidas-keiichi-tanaami-superstar/)
 
 Japanese pop artist Keiichi Tanaami’s paintings are surreal, maximalist compositions.  So, no surprise that Keiichi Tanaami’s adidas Superstar collaboration is…
 
 *Published on: Mon, 29 Jul 2024 09:52:54 GMT*
+
+
+## Bob Odenkirk
+
+## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
+
+Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
+
+*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
 
 
 ## Bob Odenkirk
@@ -7143,15 +6504,6 @@ After reporting on a camo print comeback no one seemed to notice – ba-dum-tss 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
 
 *Published on: Mon, 29 Jul 2024 15:11:18 GMT*
-
-
-## Bob Odenkirk
-
-## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
-
-The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
-
-*Published on: Mon, 29 Jul 2024 16:05:34 GMT*
 
 
 ## Bob Odenkirk
@@ -7210,20 +6562,20 @@ NIGO has the sneaker world on its toes, patiently waiting for his long-awaited N
 
 ## Bob Odenkirk
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Bob Odenkirk
-
 ## [This adidas Sneaker Stares Minimalism Straight In The Face](https://www.highsnobiety.com/p/adidas-keiichi-tanaami-superstar/)
 
 Japanese pop artist Keiichi Tanaami’s paintings are surreal, maximalist compositions.  So, no surprise that Keiichi Tanaami’s adidas Superstar collaboration is…
 
 *Published on: Mon, 29 Jul 2024 09:52:54 GMT*
+
+
+## Brad Pitt
+
+## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
+
+Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
+
+*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
 
 
 ## Brad Pitt
@@ -7242,15 +6594,6 @@ After reporting on a camo print comeback no one seemed to notice – ba-dum-tss 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
 
 *Published on: Mon, 29 Jul 2024 15:11:18 GMT*
-
-
-## Brad Pitt
-
-## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
-
-The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
-
-*Published on: Mon, 29 Jul 2024 16:05:34 GMT*
 
 
 ## Brad Pitt
@@ -7309,20 +6652,20 @@ NIGO has the sneaker world on its toes, patiently waiting for his long-awaited N
 
 ## Brad Pitt
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Brad Pitt
-
 ## [This adidas Sneaker Stares Minimalism Straight In The Face](https://www.highsnobiety.com/p/adidas-keiichi-tanaami-superstar/)
 
 Japanese pop artist Keiichi Tanaami’s paintings are surreal, maximalist compositions.  So, no surprise that Keiichi Tanaami’s adidas Superstar collaboration is…
 
 *Published on: Mon, 29 Jul 2024 09:52:54 GMT*
+
+
+## Beyoncé
+
+## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
+
+Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
+
+*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
 
 
 ## Beyoncé
@@ -7341,15 +6684,6 @@ After reporting on a camo print comeback no one seemed to notice – ba-dum-tss 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
 
 *Published on: Mon, 29 Jul 2024 15:11:18 GMT*
-
-
-## Beyoncé
-
-## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
-
-The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
-
-*Published on: Mon, 29 Jul 2024 16:05:34 GMT*
 
 
 ## Beyoncé
@@ -7408,20 +6742,20 @@ NIGO has the sneaker world on its toes, patiently waiting for his long-awaited N
 
 ## Beyoncé
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Beyoncé
-
 ## [This adidas Sneaker Stares Minimalism Straight In The Face](https://www.highsnobiety.com/p/adidas-keiichi-tanaami-superstar/)
 
 Japanese pop artist Keiichi Tanaami’s paintings are surreal, maximalist compositions.  So, no surprise that Keiichi Tanaami’s adidas Superstar collaboration is…
 
 *Published on: Mon, 29 Jul 2024 09:52:54 GMT*
+
+
+## Bia
+
+## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
+
+Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
+
+*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
 
 
 ## Bia
@@ -7440,15 +6774,6 @@ After reporting on a camo print comeback no one seemed to notice – ba-dum-tss 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
 
 *Published on: Mon, 29 Jul 2024 15:11:18 GMT*
-
-
-## Bia
-
-## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
-
-The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
-
-*Published on: Mon, 29 Jul 2024 16:05:34 GMT*
 
 
 ## Bia
@@ -7507,20 +6832,20 @@ NIGO has the sneaker world on its toes, patiently waiting for his long-awaited N
 
 ## Bia
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Bia
-
 ## [This adidas Sneaker Stares Minimalism Straight In The Face](https://www.highsnobiety.com/p/adidas-keiichi-tanaami-superstar/)
 
 Japanese pop artist Keiichi Tanaami’s paintings are surreal, maximalist compositions.  So, no surprise that Keiichi Tanaami’s adidas Superstar collaboration is…
 
 *Published on: Mon, 29 Jul 2024 09:52:54 GMT*
+
+
+## Avantika
+
+## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
+
+Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
+
+*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
 
 
 ## Avantika
@@ -7539,15 +6864,6 @@ After reporting on a camo print comeback no one seemed to notice – ba-dum-tss 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
 
 *Published on: Mon, 29 Jul 2024 15:11:18 GMT*
-
-
-## Avantika
-
-## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
-
-The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
-
-*Published on: Mon, 29 Jul 2024 16:05:34 GMT*
 
 
 ## Avantika
@@ -7606,20 +6922,20 @@ NIGO has the sneaker world on its toes, patiently waiting for his long-awaited N
 
 ## Avantika
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Avantika
-
 ## [This adidas Sneaker Stares Minimalism Straight In The Face](https://www.highsnobiety.com/p/adidas-keiichi-tanaami-superstar/)
 
 Japanese pop artist Keiichi Tanaami’s paintings are surreal, maximalist compositions.  So, no surprise that Keiichi Tanaami’s adidas Superstar collaboration is…
 
 *Published on: Mon, 29 Jul 2024 09:52:54 GMT*
+
+
+## Bernie Sanders
+
+## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
+
+Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
+
+*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
 
 
 ## Bernie Sanders
@@ -7638,15 +6954,6 @@ After reporting on a camo print comeback no one seemed to notice – ba-dum-tss 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
 
 *Published on: Mon, 29 Jul 2024 15:11:18 GMT*
-
-
-## Bernie Sanders
-
-## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
-
-The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
-
-*Published on: Mon, 29 Jul 2024 16:05:34 GMT*
 
 
 ## Bernie Sanders
@@ -7705,20 +7012,20 @@ NIGO has the sneaker world on its toes, patiently waiting for his long-awaited N
 
 ## Bernie Sanders
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Bernie Sanders
-
 ## [This adidas Sneaker Stares Minimalism Straight In The Face](https://www.highsnobiety.com/p/adidas-keiichi-tanaami-superstar/)
 
 Japanese pop artist Keiichi Tanaami’s paintings are surreal, maximalist compositions.  So, no surprise that Keiichi Tanaami’s adidas Superstar collaboration is…
 
 *Published on: Mon, 29 Jul 2024 09:52:54 GMT*
+
+
+## Big Sean
+
+## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
+
+Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
+
+*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
 
 
 ## Big Sean
@@ -7737,15 +7044,6 @@ After reporting on a camo print comeback no one seemed to notice – ba-dum-tss 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
 
 *Published on: Mon, 29 Jul 2024 15:11:18 GMT*
-
-
-## Big Sean
-
-## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
-
-The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
-
-*Published on: Mon, 29 Jul 2024 16:05:34 GMT*
 
 
 ## Big Sean
@@ -7804,20 +7102,20 @@ NIGO has the sneaker world on its toes, patiently waiting for his long-awaited N
 
 ## Big Sean
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Big Sean
-
 ## [This adidas Sneaker Stares Minimalism Straight In The Face](https://www.highsnobiety.com/p/adidas-keiichi-tanaami-superstar/)
 
 Japanese pop artist Keiichi Tanaami’s paintings are surreal, maximalist compositions.  So, no surprise that Keiichi Tanaami’s adidas Superstar collaboration is…
 
 *Published on: Mon, 29 Jul 2024 09:52:54 GMT*
+
+
+## BlockBoy JB
+
+## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
+
+Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
+
+*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
 
 
 ## BlockBoy JB
@@ -7836,15 +7134,6 @@ After reporting on a camo print comeback no one seemed to notice – ba-dum-tss 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
 
 *Published on: Mon, 29 Jul 2024 15:11:18 GMT*
-
-
-## BlockBoy JB
-
-## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
-
-The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
-
-*Published on: Mon, 29 Jul 2024 16:05:34 GMT*
 
 
 ## BlockBoy JB
@@ -7903,20 +7192,20 @@ NIGO has the sneaker world on its toes, patiently waiting for his long-awaited N
 
 ## BlockBoy JB
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## BlockBoy JB
-
 ## [This adidas Sneaker Stares Minimalism Straight In The Face](https://www.highsnobiety.com/p/adidas-keiichi-tanaami-superstar/)
 
 Japanese pop artist Keiichi Tanaami’s paintings are surreal, maximalist compositions.  So, no surprise that Keiichi Tanaami’s adidas Superstar collaboration is…
 
 *Published on: Mon, 29 Jul 2024 09:52:54 GMT*
+
+
+## Biden
+
+## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
+
+Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
+
+*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
 
 
 ## Biden
@@ -7935,15 +7224,6 @@ After reporting on a camo print comeback no one seemed to notice – ba-dum-tss 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
 
 *Published on: Mon, 29 Jul 2024 15:11:18 GMT*
-
-
-## Biden
-
-## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
-
-The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
-
-*Published on: Mon, 29 Jul 2024 16:05:34 GMT*
 
 
 ## Biden
@@ -8002,20 +7282,20 @@ NIGO has the sneaker world on its toes, patiently waiting for his long-awaited N
 
 ## Biden
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Biden
-
 ## [This adidas Sneaker Stares Minimalism Straight In The Face](https://www.highsnobiety.com/p/adidas-keiichi-tanaami-superstar/)
 
 Japanese pop artist Keiichi Tanaami’s paintings are surreal, maximalist compositions.  So, no surprise that Keiichi Tanaami’s adidas Superstar collaboration is…
 
 *Published on: Mon, 29 Jul 2024 09:52:54 GMT*
+
+
+## Bieber
+
+## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
+
+Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
+
+*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
 
 
 ## Bieber
@@ -8034,15 +7314,6 @@ After reporting on a camo print comeback no one seemed to notice – ba-dum-tss 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
 
 *Published on: Mon, 29 Jul 2024 15:11:18 GMT*
-
-
-## Bieber
-
-## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
-
-The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
-
-*Published on: Mon, 29 Jul 2024 16:05:34 GMT*
 
 
 ## Bieber
@@ -8101,20 +7372,20 @@ NIGO has the sneaker world on its toes, patiently waiting for his long-awaited N
 
 ## Bieber
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Bieber
-
 ## [This adidas Sneaker Stares Minimalism Straight In The Face](https://www.highsnobiety.com/p/adidas-keiichi-tanaami-superstar/)
 
 Japanese pop artist Keiichi Tanaami’s paintings are surreal, maximalist compositions.  So, no surprise that Keiichi Tanaami’s adidas Superstar collaboration is…
 
 *Published on: Mon, 29 Jul 2024 09:52:54 GMT*
+
+
+## Paulina Porizkov
+
+## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
+
+Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
+
+*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
 
 
 ## Paulina Porizkov
@@ -8133,15 +7404,6 @@ After reporting on a camo print comeback no one seemed to notice – ba-dum-tss 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
 
 *Published on: Mon, 29 Jul 2024 15:11:18 GMT*
-
-
-## Paulina Porizkov
-
-## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
-
-The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
-
-*Published on: Mon, 29 Jul 2024 16:05:34 GMT*
 
 
 ## Paulina Porizkov
@@ -8200,20 +7462,20 @@ NIGO has the sneaker world on its toes, patiently waiting for his long-awaited N
 
 ## Paulina Porizkov
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Paulina Porizkov
-
 ## [This adidas Sneaker Stares Minimalism Straight In The Face](https://www.highsnobiety.com/p/adidas-keiichi-tanaami-superstar/)
 
 Japanese pop artist Keiichi Tanaami’s paintings are surreal, maximalist compositions.  So, no surprise that Keiichi Tanaami’s adidas Superstar collaboration is…
 
 *Published on: Mon, 29 Jul 2024 09:52:54 GMT*
+
+
+## Paris Hilton
+
+## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
+
+Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
+
+*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
 
 
 ## Paris Hilton
@@ -8232,15 +7494,6 @@ After reporting on a camo print comeback no one seemed to notice – ba-dum-tss 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
 
 *Published on: Mon, 29 Jul 2024 15:11:18 GMT*
-
-
-## Paris Hilton
-
-## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
-
-The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
-
-*Published on: Mon, 29 Jul 2024 16:05:34 GMT*
 
 
 ## Paris Hilton
@@ -8299,20 +7552,20 @@ NIGO has the sneaker world on its toes, patiently waiting for his long-awaited N
 
 ## Paris Hilton
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Paris Hilton
-
 ## [This adidas Sneaker Stares Minimalism Straight In The Face](https://www.highsnobiety.com/p/adidas-keiichi-tanaami-superstar/)
 
 Japanese pop artist Keiichi Tanaami’s paintings are surreal, maximalist compositions.  So, no surprise that Keiichi Tanaami’s adidas Superstar collaboration is…
 
 *Published on: Mon, 29 Jul 2024 09:52:54 GMT*
+
+
+## Metro Boomin
+
+## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
+
+Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
+
+*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
 
 
 ## Metro Boomin
@@ -8331,15 +7584,6 @@ After reporting on a camo print comeback no one seemed to notice – ba-dum-tss 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
 
 *Published on: Mon, 29 Jul 2024 15:11:18 GMT*
-
-
-## Metro Boomin
-
-## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
-
-The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
-
-*Published on: Mon, 29 Jul 2024 16:05:34 GMT*
 
 
 ## Metro Boomin
@@ -8398,20 +7642,20 @@ NIGO has the sneaker world on its toes, patiently waiting for his long-awaited N
 
 ## Metro Boomin
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Metro Boomin
-
 ## [This adidas Sneaker Stares Minimalism Straight In The Face](https://www.highsnobiety.com/p/adidas-keiichi-tanaami-superstar/)
 
 Japanese pop artist Keiichi Tanaami’s paintings are surreal, maximalist compositions.  So, no surprise that Keiichi Tanaami’s adidas Superstar collaboration is…
 
 *Published on: Mon, 29 Jul 2024 09:52:54 GMT*
+
+
+## Meghan Markle
+
+## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
+
+Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
+
+*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
 
 
 ## Meghan Markle
@@ -8430,15 +7674,6 @@ After reporting on a camo print comeback no one seemed to notice – ba-dum-tss 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
 
 *Published on: Mon, 29 Jul 2024 15:11:18 GMT*
-
-
-## Meghan Markle
-
-## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
-
-The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
-
-*Published on: Mon, 29 Jul 2024 16:05:34 GMT*
 
 
 ## Meghan Markle
@@ -8497,20 +7732,20 @@ NIGO has the sneaker world on its toes, patiently waiting for his long-awaited N
 
 ## Meghan Markle
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Meghan Markle
-
 ## [This adidas Sneaker Stares Minimalism Straight In The Face](https://www.highsnobiety.com/p/adidas-keiichi-tanaami-superstar/)
 
 Japanese pop artist Keiichi Tanaami’s paintings are surreal, maximalist compositions.  So, no surprise that Keiichi Tanaami’s adidas Superstar collaboration is…
 
 *Published on: Mon, 29 Jul 2024 09:52:54 GMT*
+
+
+## Megan Thee Stallion
+
+## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
+
+Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
+
+*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
 
 
 ## Megan Thee Stallion
@@ -8529,15 +7764,6 @@ After reporting on a camo print comeback no one seemed to notice – ba-dum-tss 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
 
 *Published on: Mon, 29 Jul 2024 15:11:18 GMT*
-
-
-## Megan Thee Stallion
-
-## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
-
-The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
-
-*Published on: Mon, 29 Jul 2024 16:05:34 GMT*
 
 
 ## Megan Thee Stallion
@@ -8596,20 +7822,20 @@ NIGO has the sneaker world on its toes, patiently waiting for his long-awaited N
 
 ## Megan Thee Stallion
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Megan Thee Stallion
-
 ## [This adidas Sneaker Stares Minimalism Straight In The Face](https://www.highsnobiety.com/p/adidas-keiichi-tanaami-superstar/)
 
 Japanese pop artist Keiichi Tanaami’s paintings are surreal, maximalist compositions.  So, no surprise that Keiichi Tanaami’s adidas Superstar collaboration is…
 
 *Published on: Mon, 29 Jul 2024 09:52:54 GMT*
+
+
+## Maya Rudolph
+
+## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
+
+Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
+
+*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
 
 
 ## Maya Rudolph
@@ -8628,15 +7854,6 @@ After reporting on a camo print comeback no one seemed to notice – ba-dum-tss 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
 
 *Published on: Mon, 29 Jul 2024 15:11:18 GMT*
-
-
-## Maya Rudolph
-
-## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
-
-The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
-
-*Published on: Mon, 29 Jul 2024 16:05:34 GMT*
 
 
 ## Maya Rudolph
@@ -8695,20 +7912,20 @@ NIGO has the sneaker world on its toes, patiently waiting for his long-awaited N
 
 ## Maya Rudolph
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Maya Rudolph
-
 ## [This adidas Sneaker Stares Minimalism Straight In The Face](https://www.highsnobiety.com/p/adidas-keiichi-tanaami-superstar/)
 
 Japanese pop artist Keiichi Tanaami’s paintings are surreal, maximalist compositions.  So, no surprise that Keiichi Tanaami’s adidas Superstar collaboration is…
 
 *Published on: Mon, 29 Jul 2024 09:52:54 GMT*
+
+
+## Olivia Rodrigo
+
+## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
+
+Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
+
+*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
 
 
 ## Olivia Rodrigo
@@ -8727,15 +7944,6 @@ After reporting on a camo print comeback no one seemed to notice – ba-dum-tss 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
 
 *Published on: Mon, 29 Jul 2024 15:11:18 GMT*
-
-
-## Olivia Rodrigo
-
-## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
-
-The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
-
-*Published on: Mon, 29 Jul 2024 16:05:34 GMT*
 
 
 ## Olivia Rodrigo
@@ -8794,20 +8002,20 @@ NIGO has the sneaker world on its toes, patiently waiting for his long-awaited N
 
 ## Olivia Rodrigo
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Olivia Rodrigo
-
 ## [This adidas Sneaker Stares Minimalism Straight In The Face](https://www.highsnobiety.com/p/adidas-keiichi-tanaami-superstar/)
 
 Japanese pop artist Keiichi Tanaami’s paintings are surreal, maximalist compositions.  So, no surprise that Keiichi Tanaami’s adidas Superstar collaboration is…
 
 *Published on: Mon, 29 Jul 2024 09:52:54 GMT*
+
+
+## Obama
+
+## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
+
+Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
+
+*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
 
 
 ## Obama
@@ -8826,15 +8034,6 @@ After reporting on a camo print comeback no one seemed to notice – ba-dum-tss 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
 
 *Published on: Mon, 29 Jul 2024 15:11:18 GMT*
-
-
-## Obama
-
-## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
-
-The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
-
-*Published on: Mon, 29 Jul 2024 16:05:34 GMT*
 
 
 ## Obama
@@ -8893,20 +8092,20 @@ NIGO has the sneaker world on its toes, patiently waiting for his long-awaited N
 
 ## Obama
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Obama
-
 ## [This adidas Sneaker Stares Minimalism Straight In The Face](https://www.highsnobiety.com/p/adidas-keiichi-tanaami-superstar/)
 
 Japanese pop artist Keiichi Tanaami’s paintings are surreal, maximalist compositions.  So, no surprise that Keiichi Tanaami’s adidas Superstar collaboration is…
 
 *Published on: Mon, 29 Jul 2024 09:52:54 GMT*
+
+
+## Nicki Minaj
+
+## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
+
+Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
+
+*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
 
 
 ## Nicki Minaj
@@ -8925,15 +8124,6 @@ After reporting on a camo print comeback no one seemed to notice – ba-dum-tss 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
 
 *Published on: Mon, 29 Jul 2024 15:11:18 GMT*
-
-
-## Nicki Minaj
-
-## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
-
-The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
-
-*Published on: Mon, 29 Jul 2024 16:05:34 GMT*
 
 
 ## Nicki Minaj
@@ -8992,20 +8182,20 @@ NIGO has the sneaker world on its toes, patiently waiting for his long-awaited N
 
 ## Nicki Minaj
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Nicki Minaj
-
 ## [This adidas Sneaker Stares Minimalism Straight In The Face](https://www.highsnobiety.com/p/adidas-keiichi-tanaami-superstar/)
 
 Japanese pop artist Keiichi Tanaami’s paintings are surreal, maximalist compositions.  So, no surprise that Keiichi Tanaami’s adidas Superstar collaboration is…
 
 *Published on: Mon, 29 Jul 2024 09:52:54 GMT*
+
+
+## MrBeast
+
+## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
+
+Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
+
+*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
 
 
 ## MrBeast
@@ -9024,15 +8214,6 @@ After reporting on a camo print comeback no one seemed to notice – ba-dum-tss 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
 
 *Published on: Mon, 29 Jul 2024 15:11:18 GMT*
-
-
-## MrBeast
-
-## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
-
-The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
-
-*Published on: Mon, 29 Jul 2024 16:05:34 GMT*
 
 
 ## MrBeast
@@ -9087,15 +8268,6 @@ Most athletes performing at Olympic games dress identically. Disparity occasiona
 NIGO has the sneaker world on its toes, patiently waiting for his long-awaited Nike collaboration . For months, the fashion icon has casually offered spoonfuls…
 
 *Published on: Tue, 30 Jul 2024 09:34:32 GMT*
-
-
-## MrBeast
-
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
 
 
 ## MrBeast
