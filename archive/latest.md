@@ -1,15 +1,6 @@
 # Latest Stories
 ## Tim Cook
 
-## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
-
-AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
-
-*Published on: Mon, 29 Jul 2024 15:11:18 GMT*
-
-
-## Tim Cook
-
 ## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
 
 PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
@@ -82,11 +73,11 @@ It’s been a busy six months for the Nike Air Max Dn.Introduced as the American
 
 ## Tim Cook
 
-## [Products to Prove the Camo Print's Comeback Was Hiding in Plain Sight](https://www.highsnobiety.com/p/camo-print-comeback/)
+## [HOKA's Techy Sneaker Is Gloriously Bold](https://www.highsnobiety.com/p/hoka-japan-mafate-speed-2/)
 
-After reporting on a camo print comeback no one seemed to notice – ba-dum-tss – we figured it was only fair we did the follow-up work of retrieving some  of th…
+Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, and techy fabrics are all great, however, they’re not what make the shoe arguably …
 
-*Published on: Mon, 29 Jul 2024 14:26:52 GMT*
+*Published on: Tue, 30 Jul 2024 13:29:04 GMT*
 
 
 ## Tim Cook
@@ -98,13 +89,22 @@ Known as the gems of the ocean, pearls stand for purity and wisdom, and are the 
 *Published on: Mon, 29 Jul 2024 12:00:00 GMT*
 
 
-## Taylor Swift
+## Tim Cook
 
 ## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
 
 *Published on: Mon, 29 Jul 2024 15:11:18 GMT*
+
+
+## Tim Cook
+
+## [Products to Prove the Camo Print's Comeback Was Hiding in Plain Sight](https://www.highsnobiety.com/p/camo-print-comeback/)
+
+After reporting on a camo print comeback no one seemed to notice – ba-dum-tss – we figured it was only fair we did the follow-up work of retrieving some  of th…
+
+*Published on: Mon, 29 Jul 2024 14:26:52 GMT*
 
 
 ## Taylor Swift
@@ -181,6 +181,33 @@ It’s been a busy six months for the Nike Air Max Dn.Introduced as the American
 
 ## Taylor Swift
 
+## [HOKA's Techy Sneaker Is Gloriously Bold](https://www.highsnobiety.com/p/hoka-japan-mafate-speed-2/)
+
+Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, and techy fabrics are all great, however, they’re not what make the shoe arguably …
+
+*Published on: Tue, 30 Jul 2024 13:29:04 GMT*
+
+
+## Taylor Swift
+
+## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
+
+Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
+
+*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
+
+
+## Taylor Swift
+
+## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
+
+AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
+
+*Published on: Mon, 29 Jul 2024 15:11:18 GMT*
+
+
+## Taylor Swift
+
 ## [Products to Prove the Camo Print's Comeback Was Hiding in Plain Sight](https://www.highsnobiety.com/p/camo-print-comeback/)
 
 After reporting on a camo print comeback no one seemed to notice – ba-dum-tss – we figured it was only fair we did the follow-up work of retrieving some  of th…
@@ -188,7 +215,88 @@ After reporting on a camo print comeback no one seemed to notice – ba-dum-tss 
 *Published on: Mon, 29 Jul 2024 14:26:52 GMT*
 
 
-## Taylor Swift
+## Tom Brady
+
+## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
+
+PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
+
+*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
+
+
+## Tom Brady
+
+## [New Balance's "Dunks" Went Back to Basics  Still Look Good ](https://www.highsnobiety.com/p/new-balance-numeric-480-sneakers-2024/)
+
+Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes do no wrong. The 480 "Dunks" get better, actually.After enjoying some of the mos…
+
+*Published on: Mon, 29 Jul 2024 21:21:00 GMT*
+
+
+## Tom Brady
+
+## [Remember Patta  Nike’s Air Max Grail? Well, It's Back!](https://www.highsnobiety.com/p/patta-nike-air-max-1-chlorophyll-release-date-2024/)
+
+In 2009, Patta had an important anniversary to celebrate and it did so by releasing a Nike Air Max 1 collaboration that has become a grail.The Air Max 1 ‘Chlor…
+
+*Published on: Tue, 30 Jul 2024 08:15:43 GMT*
+
+
+## Tom Brady
+
+## [New Balance's Techy Loafer Hybrid (Finally) Steps In ](https://www.highsnobiety.com/p/new-balance-loafer-where-to-buy/)
+
+Since New Balance's 1906 loafer stepped on the runway earlier this year, it has left the sneaker community — post-sneaker advocates, too — perplexed and intrig…
+
+*Published on: Tue, 30 Jul 2024 09:00:00 GMT*
+
+
+## Tom Brady
+
+## [The Beauty of Olympics Skateboarding's Non-Uniforms](https://www.highsnobiety.com/p/olympics-skateboarding-outfits-2024/)
+
+Most athletes performing at Olympic games dress identically. Disparity occasionally goes beyond nationalistic color palettes, like how track runners wear short…
+
+*Published on: Tue, 30 Jul 2024 09:30:28 GMT*
+
+
+## Tom Brady
+
+## [The (Nike) Force Is Strong With NIGO's Sneakers](https://www.highsnobiety.com/p/nigo-victor-victor-nike-air-force-1-sneakers-2024/)
+
+NIGO has the sneaker world on its toes, patiently waiting for his long-awaited Nike collaboration . For months, the fashion icon has casually offered spoonfuls…
+
+*Published on: Tue, 30 Jul 2024 09:34:32 GMT*
+
+
+## Tom Brady
+
+## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
+
+The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
+
+*Published on: Tue, 30 Jul 2024 10:05:34 GMT*
+
+
+## Tom Brady
+
+## [Nike’s Techy New Air Max Gets Into the Olympic Spirit](https://www.highsnobiety.com/p/nike-air-max-dn-usa-olympics/)
+
+It’s been a busy six months for the Nike Air Max Dn.Introduced as the American sportswear giant’s techy new sneaker, the future of its iconic Air Max range, th…
+
+*Published on: Tue, 30 Jul 2024 11:13:24 GMT*
+
+
+## Tom Brady
+
+## [HOKA's Techy Sneaker Is Gloriously Bold](https://www.highsnobiety.com/p/hoka-japan-mafate-speed-2/)
+
+Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, and techy fabrics are all great, however, they’re not what make the shoe arguably …
+
+*Published on: Tue, 30 Jul 2024 13:29:04 GMT*
+
+
+## Tom Brady
 
 ## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
 
@@ -208,101 +316,11 @@ AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end pro
 
 ## Tom Brady
 
-## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
-
-PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
-
-*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
-
-
-## Tom Brady
-
-## [New Balance's "Dunks" Went Back to Basics  Still Look Good ](https://www.highsnobiety.com/p/new-balance-numeric-480-sneakers-2024/)
-
-Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes do no wrong. The 480 "Dunks" get better, actually.After enjoying some of the mos…
-
-*Published on: Mon, 29 Jul 2024 21:21:00 GMT*
-
-
-## Tom Brady
-
-## [Remember Patta  Nike’s Air Max Grail? Well, It's Back!](https://www.highsnobiety.com/p/patta-nike-air-max-1-chlorophyll-release-date-2024/)
-
-In 2009, Patta had an important anniversary to celebrate and it did so by releasing a Nike Air Max 1 collaboration that has become a grail.The Air Max 1 ‘Chlor…
-
-*Published on: Tue, 30 Jul 2024 08:15:43 GMT*
-
-
-## Tom Brady
-
-## [New Balance's Techy Loafer Hybrid (Finally) Steps In ](https://www.highsnobiety.com/p/new-balance-loafer-where-to-buy/)
-
-Since New Balance's 1906 loafer stepped on the runway earlier this year, it has left the sneaker community — post-sneaker advocates, too — perplexed and intrig…
-
-*Published on: Tue, 30 Jul 2024 09:00:00 GMT*
-
-
-## Tom Brady
-
-## [The Beauty of Olympics Skateboarding's Non-Uniforms](https://www.highsnobiety.com/p/olympics-skateboarding-outfits-2024/)
-
-Most athletes performing at Olympic games dress identically. Disparity occasionally goes beyond nationalistic color palettes, like how track runners wear short…
-
-*Published on: Tue, 30 Jul 2024 09:30:28 GMT*
-
-
-## Tom Brady
-
-## [The (Nike) Force Is Strong With NIGO's Sneakers](https://www.highsnobiety.com/p/nigo-victor-victor-nike-air-force-1-sneakers-2024/)
-
-NIGO has the sneaker world on its toes, patiently waiting for his long-awaited Nike collaboration . For months, the fashion icon has casually offered spoonfuls…
-
-*Published on: Tue, 30 Jul 2024 09:34:32 GMT*
-
-
-## Tom Brady
-
-## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
-
-The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
-
-*Published on: Tue, 30 Jul 2024 10:05:34 GMT*
-
-
-## Tom Brady
-
-## [Nike’s Techy New Air Max Gets Into the Olympic Spirit](https://www.highsnobiety.com/p/nike-air-max-dn-usa-olympics/)
-
-It’s been a busy six months for the Nike Air Max Dn.Introduced as the American sportswear giant’s techy new sneaker, the future of its iconic Air Max range, th…
-
-*Published on: Tue, 30 Jul 2024 11:13:24 GMT*
-
-
-## Tom Brady
-
 ## [Products to Prove the Camo Print's Comeback Was Hiding in Plain Sight](https://www.highsnobiety.com/p/camo-print-comeback/)
 
 After reporting on a camo print comeback no one seemed to notice – ba-dum-tss – we figured it was only fair we did the follow-up work of retrieving some  of th…
 
 *Published on: Mon, 29 Jul 2024 14:26:52 GMT*
-
-
-## Tom Brady
-
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Tina Fey
-
-## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
-
-AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
-
-*Published on: Mon, 29 Jul 2024 15:11:18 GMT*
 
 
 ## Tina Fey
@@ -379,11 +397,11 @@ It’s been a busy six months for the Nike Air Max Dn.Introduced as the American
 
 ## Tina Fey
 
-## [Products to Prove the Camo Print's Comeback Was Hiding in Plain Sight](https://www.highsnobiety.com/p/camo-print-comeback/)
+## [HOKA's Techy Sneaker Is Gloriously Bold](https://www.highsnobiety.com/p/hoka-japan-mafate-speed-2/)
 
-After reporting on a camo print comeback no one seemed to notice – ba-dum-tss – we figured it was only fair we did the follow-up work of retrieving some  of th…
+Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, and techy fabrics are all great, however, they’re not what make the shoe arguably …
 
-*Published on: Mon, 29 Jul 2024 14:26:52 GMT*
+*Published on: Tue, 30 Jul 2024 13:29:04 GMT*
 
 
 ## Tina Fey
@@ -395,13 +413,22 @@ Known as the gems of the ocean, pearls stand for purity and wisdom, and are the 
 *Published on: Mon, 29 Jul 2024 12:00:00 GMT*
 
 
-## Steven Yuen
+## Tina Fey
 
 ## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
 
 *Published on: Mon, 29 Jul 2024 15:11:18 GMT*
+
+
+## Tina Fey
+
+## [Products to Prove the Camo Print's Comeback Was Hiding in Plain Sight](https://www.highsnobiety.com/p/camo-print-comeback/)
+
+After reporting on a camo print comeback no one seemed to notice – ba-dum-tss – we figured it was only fair we did the follow-up work of retrieving some  of th…
+
+*Published on: Mon, 29 Jul 2024 14:26:52 GMT*
 
 
 ## Steven Yuen
@@ -478,6 +505,33 @@ It’s been a busy six months for the Nike Air Max Dn.Introduced as the American
 
 ## Steven Yuen
 
+## [HOKA's Techy Sneaker Is Gloriously Bold](https://www.highsnobiety.com/p/hoka-japan-mafate-speed-2/)
+
+Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, and techy fabrics are all great, however, they’re not what make the shoe arguably …
+
+*Published on: Tue, 30 Jul 2024 13:29:04 GMT*
+
+
+## Steven Yuen
+
+## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
+
+Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
+
+*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
+
+
+## Steven Yuen
+
+## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
+
+AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
+
+*Published on: Mon, 29 Jul 2024 15:11:18 GMT*
+
+
+## Steven Yuen
+
 ## [Products to Prove the Camo Print's Comeback Was Hiding in Plain Sight](https://www.highsnobiety.com/p/camo-print-comeback/)
 
 After reporting on a camo print comeback no one seemed to notice – ba-dum-tss – we figured it was only fair we did the follow-up work of retrieving some  of th…
@@ -485,7 +539,88 @@ After reporting on a camo print comeback no one seemed to notice – ba-dum-tss 
 *Published on: Mon, 29 Jul 2024 14:26:52 GMT*
 
 
-## Steven Yuen
+## Sommer Ray
+
+## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
+
+PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
+
+*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
+
+
+## Sommer Ray
+
+## [New Balance's "Dunks" Went Back to Basics  Still Look Good ](https://www.highsnobiety.com/p/new-balance-numeric-480-sneakers-2024/)
+
+Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes do no wrong. The 480 "Dunks" get better, actually.After enjoying some of the mos…
+
+*Published on: Mon, 29 Jul 2024 21:21:00 GMT*
+
+
+## Sommer Ray
+
+## [Remember Patta  Nike’s Air Max Grail? Well, It's Back!](https://www.highsnobiety.com/p/patta-nike-air-max-1-chlorophyll-release-date-2024/)
+
+In 2009, Patta had an important anniversary to celebrate and it did so by releasing a Nike Air Max 1 collaboration that has become a grail.The Air Max 1 ‘Chlor…
+
+*Published on: Tue, 30 Jul 2024 08:15:43 GMT*
+
+
+## Sommer Ray
+
+## [New Balance's Techy Loafer Hybrid (Finally) Steps In ](https://www.highsnobiety.com/p/new-balance-loafer-where-to-buy/)
+
+Since New Balance's 1906 loafer stepped on the runway earlier this year, it has left the sneaker community — post-sneaker advocates, too — perplexed and intrig…
+
+*Published on: Tue, 30 Jul 2024 09:00:00 GMT*
+
+
+## Sommer Ray
+
+## [The Beauty of Olympics Skateboarding's Non-Uniforms](https://www.highsnobiety.com/p/olympics-skateboarding-outfits-2024/)
+
+Most athletes performing at Olympic games dress identically. Disparity occasionally goes beyond nationalistic color palettes, like how track runners wear short…
+
+*Published on: Tue, 30 Jul 2024 09:30:28 GMT*
+
+
+## Sommer Ray
+
+## [The (Nike) Force Is Strong With NIGO's Sneakers](https://www.highsnobiety.com/p/nigo-victor-victor-nike-air-force-1-sneakers-2024/)
+
+NIGO has the sneaker world on its toes, patiently waiting for his long-awaited Nike collaboration . For months, the fashion icon has casually offered spoonfuls…
+
+*Published on: Tue, 30 Jul 2024 09:34:32 GMT*
+
+
+## Sommer Ray
+
+## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
+
+The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
+
+*Published on: Tue, 30 Jul 2024 10:05:34 GMT*
+
+
+## Sommer Ray
+
+## [Nike’s Techy New Air Max Gets Into the Olympic Spirit](https://www.highsnobiety.com/p/nike-air-max-dn-usa-olympics/)
+
+It’s been a busy six months for the Nike Air Max Dn.Introduced as the American sportswear giant’s techy new sneaker, the future of its iconic Air Max range, th…
+
+*Published on: Tue, 30 Jul 2024 11:13:24 GMT*
+
+
+## Sommer Ray
+
+## [HOKA's Techy Sneaker Is Gloriously Bold](https://www.highsnobiety.com/p/hoka-japan-mafate-speed-2/)
+
+Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, and techy fabrics are all great, however, they’re not what make the shoe arguably …
+
+*Published on: Tue, 30 Jul 2024 13:29:04 GMT*
+
+
+## Sommer Ray
 
 ## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
 
@@ -505,101 +640,11 @@ AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end pro
 
 ## Sommer Ray
 
-## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
-
-PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
-
-*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
-
-
-## Sommer Ray
-
-## [New Balance's "Dunks" Went Back to Basics  Still Look Good ](https://www.highsnobiety.com/p/new-balance-numeric-480-sneakers-2024/)
-
-Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes do no wrong. The 480 "Dunks" get better, actually.After enjoying some of the mos…
-
-*Published on: Mon, 29 Jul 2024 21:21:00 GMT*
-
-
-## Sommer Ray
-
-## [Remember Patta  Nike’s Air Max Grail? Well, It's Back!](https://www.highsnobiety.com/p/patta-nike-air-max-1-chlorophyll-release-date-2024/)
-
-In 2009, Patta had an important anniversary to celebrate and it did so by releasing a Nike Air Max 1 collaboration that has become a grail.The Air Max 1 ‘Chlor…
-
-*Published on: Tue, 30 Jul 2024 08:15:43 GMT*
-
-
-## Sommer Ray
-
-## [New Balance's Techy Loafer Hybrid (Finally) Steps In ](https://www.highsnobiety.com/p/new-balance-loafer-where-to-buy/)
-
-Since New Balance's 1906 loafer stepped on the runway earlier this year, it has left the sneaker community — post-sneaker advocates, too — perplexed and intrig…
-
-*Published on: Tue, 30 Jul 2024 09:00:00 GMT*
-
-
-## Sommer Ray
-
-## [The Beauty of Olympics Skateboarding's Non-Uniforms](https://www.highsnobiety.com/p/olympics-skateboarding-outfits-2024/)
-
-Most athletes performing at Olympic games dress identically. Disparity occasionally goes beyond nationalistic color palettes, like how track runners wear short…
-
-*Published on: Tue, 30 Jul 2024 09:30:28 GMT*
-
-
-## Sommer Ray
-
-## [The (Nike) Force Is Strong With NIGO's Sneakers](https://www.highsnobiety.com/p/nigo-victor-victor-nike-air-force-1-sneakers-2024/)
-
-NIGO has the sneaker world on its toes, patiently waiting for his long-awaited Nike collaboration . For months, the fashion icon has casually offered spoonfuls…
-
-*Published on: Tue, 30 Jul 2024 09:34:32 GMT*
-
-
-## Sommer Ray
-
-## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
-
-The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
-
-*Published on: Tue, 30 Jul 2024 10:05:34 GMT*
-
-
-## Sommer Ray
-
-## [Nike’s Techy New Air Max Gets Into the Olympic Spirit](https://www.highsnobiety.com/p/nike-air-max-dn-usa-olympics/)
-
-It’s been a busy six months for the Nike Air Max Dn.Introduced as the American sportswear giant’s techy new sneaker, the future of its iconic Air Max range, th…
-
-*Published on: Tue, 30 Jul 2024 11:13:24 GMT*
-
-
-## Sommer Ray
-
 ## [Products to Prove the Camo Print's Comeback Was Hiding in Plain Sight](https://www.highsnobiety.com/p/camo-print-comeback/)
 
 After reporting on a camo print comeback no one seemed to notice – ba-dum-tss – we figured it was only fair we did the follow-up work of retrieving some  of th…
 
 *Published on: Mon, 29 Jul 2024 14:26:52 GMT*
-
-
-## Sommer Ray
-
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Sza
-
-## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
-
-AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
-
-*Published on: Mon, 29 Jul 2024 15:11:18 GMT*
 
 
 ## Sza
@@ -676,11 +721,11 @@ It’s been a busy six months for the Nike Air Max Dn.Introduced as the American
 
 ## Sza
 
-## [Products to Prove the Camo Print's Comeback Was Hiding in Plain Sight](https://www.highsnobiety.com/p/camo-print-comeback/)
+## [HOKA's Techy Sneaker Is Gloriously Bold](https://www.highsnobiety.com/p/hoka-japan-mafate-speed-2/)
 
-After reporting on a camo print comeback no one seemed to notice – ba-dum-tss – we figured it was only fair we did the follow-up work of retrieving some  of th…
+Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, and techy fabrics are all great, however, they’re not what make the shoe arguably …
 
-*Published on: Mon, 29 Jul 2024 14:26:52 GMT*
+*Published on: Tue, 30 Jul 2024 13:29:04 GMT*
 
 
 ## Sza
@@ -692,13 +737,22 @@ Known as the gems of the ocean, pearls stand for purity and wisdom, and are the 
 *Published on: Mon, 29 Jul 2024 12:00:00 GMT*
 
 
-## Sydney Sweeney
+## Sza
 
 ## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
 
 *Published on: Mon, 29 Jul 2024 15:11:18 GMT*
+
+
+## Sza
+
+## [Products to Prove the Camo Print's Comeback Was Hiding in Plain Sight](https://www.highsnobiety.com/p/camo-print-comeback/)
+
+After reporting on a camo print comeback no one seemed to notice – ba-dum-tss – we figured it was only fair we did the follow-up work of retrieving some  of th…
+
+*Published on: Mon, 29 Jul 2024 14:26:52 GMT*
 
 
 ## Sydney Sweeney
@@ -775,6 +829,33 @@ It’s been a busy six months for the Nike Air Max Dn.Introduced as the American
 
 ## Sydney Sweeney
 
+## [HOKA's Techy Sneaker Is Gloriously Bold](https://www.highsnobiety.com/p/hoka-japan-mafate-speed-2/)
+
+Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, and techy fabrics are all great, however, they’re not what make the shoe arguably …
+
+*Published on: Tue, 30 Jul 2024 13:29:04 GMT*
+
+
+## Sydney Sweeney
+
+## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
+
+Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
+
+*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
+
+
+## Sydney Sweeney
+
+## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
+
+AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
+
+*Published on: Mon, 29 Jul 2024 15:11:18 GMT*
+
+
+## Sydney Sweeney
+
 ## [Products to Prove the Camo Print's Comeback Was Hiding in Plain Sight](https://www.highsnobiety.com/p/camo-print-comeback/)
 
 After reporting on a camo print comeback no one seemed to notice – ba-dum-tss – we figured it was only fair we did the follow-up work of retrieving some  of th…
@@ -782,7 +863,88 @@ After reporting on a camo print comeback no one seemed to notice – ba-dum-tss 
 *Published on: Mon, 29 Jul 2024 14:26:52 GMT*
 
 
-## Sydney Sweeney
+## Walton Goggins
+
+## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
+
+PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
+
+*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
+
+
+## Walton Goggins
+
+## [New Balance's "Dunks" Went Back to Basics  Still Look Good ](https://www.highsnobiety.com/p/new-balance-numeric-480-sneakers-2024/)
+
+Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes do no wrong. The 480 "Dunks" get better, actually.After enjoying some of the mos…
+
+*Published on: Mon, 29 Jul 2024 21:21:00 GMT*
+
+
+## Walton Goggins
+
+## [Remember Patta  Nike’s Air Max Grail? Well, It's Back!](https://www.highsnobiety.com/p/patta-nike-air-max-1-chlorophyll-release-date-2024/)
+
+In 2009, Patta had an important anniversary to celebrate and it did so by releasing a Nike Air Max 1 collaboration that has become a grail.The Air Max 1 ‘Chlor…
+
+*Published on: Tue, 30 Jul 2024 08:15:43 GMT*
+
+
+## Walton Goggins
+
+## [New Balance's Techy Loafer Hybrid (Finally) Steps In ](https://www.highsnobiety.com/p/new-balance-loafer-where-to-buy/)
+
+Since New Balance's 1906 loafer stepped on the runway earlier this year, it has left the sneaker community — post-sneaker advocates, too — perplexed and intrig…
+
+*Published on: Tue, 30 Jul 2024 09:00:00 GMT*
+
+
+## Walton Goggins
+
+## [The Beauty of Olympics Skateboarding's Non-Uniforms](https://www.highsnobiety.com/p/olympics-skateboarding-outfits-2024/)
+
+Most athletes performing at Olympic games dress identically. Disparity occasionally goes beyond nationalistic color palettes, like how track runners wear short…
+
+*Published on: Tue, 30 Jul 2024 09:30:28 GMT*
+
+
+## Walton Goggins
+
+## [The (Nike) Force Is Strong With NIGO's Sneakers](https://www.highsnobiety.com/p/nigo-victor-victor-nike-air-force-1-sneakers-2024/)
+
+NIGO has the sneaker world on its toes, patiently waiting for his long-awaited Nike collaboration . For months, the fashion icon has casually offered spoonfuls…
+
+*Published on: Tue, 30 Jul 2024 09:34:32 GMT*
+
+
+## Walton Goggins
+
+## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
+
+The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
+
+*Published on: Tue, 30 Jul 2024 10:05:34 GMT*
+
+
+## Walton Goggins
+
+## [Nike’s Techy New Air Max Gets Into the Olympic Spirit](https://www.highsnobiety.com/p/nike-air-max-dn-usa-olympics/)
+
+It’s been a busy six months for the Nike Air Max Dn.Introduced as the American sportswear giant’s techy new sneaker, the future of its iconic Air Max range, th…
+
+*Published on: Tue, 30 Jul 2024 11:13:24 GMT*
+
+
+## Walton Goggins
+
+## [HOKA's Techy Sneaker Is Gloriously Bold](https://www.highsnobiety.com/p/hoka-japan-mafate-speed-2/)
+
+Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, and techy fabrics are all great, however, they’re not what make the shoe arguably …
+
+*Published on: Tue, 30 Jul 2024 13:29:04 GMT*
+
+
+## Walton Goggins
 
 ## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
 
@@ -802,101 +964,11 @@ AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end pro
 
 ## Walton Goggins
 
-## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
-
-PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
-
-*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
-
-
-## Walton Goggins
-
-## [New Balance's "Dunks" Went Back to Basics  Still Look Good ](https://www.highsnobiety.com/p/new-balance-numeric-480-sneakers-2024/)
-
-Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes do no wrong. The 480 "Dunks" get better, actually.After enjoying some of the mos…
-
-*Published on: Mon, 29 Jul 2024 21:21:00 GMT*
-
-
-## Walton Goggins
-
-## [Remember Patta  Nike’s Air Max Grail? Well, It's Back!](https://www.highsnobiety.com/p/patta-nike-air-max-1-chlorophyll-release-date-2024/)
-
-In 2009, Patta had an important anniversary to celebrate and it did so by releasing a Nike Air Max 1 collaboration that has become a grail.The Air Max 1 ‘Chlor…
-
-*Published on: Tue, 30 Jul 2024 08:15:43 GMT*
-
-
-## Walton Goggins
-
-## [New Balance's Techy Loafer Hybrid (Finally) Steps In ](https://www.highsnobiety.com/p/new-balance-loafer-where-to-buy/)
-
-Since New Balance's 1906 loafer stepped on the runway earlier this year, it has left the sneaker community — post-sneaker advocates, too — perplexed and intrig…
-
-*Published on: Tue, 30 Jul 2024 09:00:00 GMT*
-
-
-## Walton Goggins
-
-## [The Beauty of Olympics Skateboarding's Non-Uniforms](https://www.highsnobiety.com/p/olympics-skateboarding-outfits-2024/)
-
-Most athletes performing at Olympic games dress identically. Disparity occasionally goes beyond nationalistic color palettes, like how track runners wear short…
-
-*Published on: Tue, 30 Jul 2024 09:30:28 GMT*
-
-
-## Walton Goggins
-
-## [The (Nike) Force Is Strong With NIGO's Sneakers](https://www.highsnobiety.com/p/nigo-victor-victor-nike-air-force-1-sneakers-2024/)
-
-NIGO has the sneaker world on its toes, patiently waiting for his long-awaited Nike collaboration . For months, the fashion icon has casually offered spoonfuls…
-
-*Published on: Tue, 30 Jul 2024 09:34:32 GMT*
-
-
-## Walton Goggins
-
-## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
-
-The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
-
-*Published on: Tue, 30 Jul 2024 10:05:34 GMT*
-
-
-## Walton Goggins
-
-## [Nike’s Techy New Air Max Gets Into the Olympic Spirit](https://www.highsnobiety.com/p/nike-air-max-dn-usa-olympics/)
-
-It’s been a busy six months for the Nike Air Max Dn.Introduced as the American sportswear giant’s techy new sneaker, the future of its iconic Air Max range, th…
-
-*Published on: Tue, 30 Jul 2024 11:13:24 GMT*
-
-
-## Walton Goggins
-
 ## [Products to Prove the Camo Print's Comeback Was Hiding in Plain Sight](https://www.highsnobiety.com/p/camo-print-comeback/)
 
 After reporting on a camo print comeback no one seemed to notice – ba-dum-tss – we figured it was only fair we did the follow-up work of retrieving some  of th…
 
 *Published on: Mon, 29 Jul 2024 14:26:52 GMT*
-
-
-## Walton Goggins
-
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Tom Holland
-
-## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
-
-AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
-
-*Published on: Mon, 29 Jul 2024 15:11:18 GMT*
 
 
 ## Tom Holland
@@ -973,11 +1045,11 @@ It’s been a busy six months for the Nike Air Max Dn.Introduced as the American
 
 ## Tom Holland
 
-## [Products to Prove the Camo Print's Comeback Was Hiding in Plain Sight](https://www.highsnobiety.com/p/camo-print-comeback/)
+## [HOKA's Techy Sneaker Is Gloriously Bold](https://www.highsnobiety.com/p/hoka-japan-mafate-speed-2/)
 
-After reporting on a camo print comeback no one seemed to notice – ba-dum-tss – we figured it was only fair we did the follow-up work of retrieving some  of th…
+Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, and techy fabrics are all great, however, they’re not what make the shoe arguably …
 
-*Published on: Mon, 29 Jul 2024 14:26:52 GMT*
+*Published on: Tue, 30 Jul 2024 13:29:04 GMT*
 
 
 ## Tom Holland
@@ -989,13 +1061,22 @@ Known as the gems of the ocean, pearls stand for purity and wisdom, and are the 
 *Published on: Mon, 29 Jul 2024 12:00:00 GMT*
 
 
-## Gucci Mane
+## Tom Holland
 
 ## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
 
 *Published on: Mon, 29 Jul 2024 15:11:18 GMT*
+
+
+## Tom Holland
+
+## [Products to Prove the Camo Print's Comeback Was Hiding in Plain Sight](https://www.highsnobiety.com/p/camo-print-comeback/)
+
+After reporting on a camo print comeback no one seemed to notice – ba-dum-tss – we figured it was only fair we did the follow-up work of retrieving some  of th…
+
+*Published on: Mon, 29 Jul 2024 14:26:52 GMT*
 
 
 ## Gucci Mane
@@ -1072,6 +1153,33 @@ It’s been a busy six months for the Nike Air Max Dn.Introduced as the American
 
 ## Gucci Mane
 
+## [HOKA's Techy Sneaker Is Gloriously Bold](https://www.highsnobiety.com/p/hoka-japan-mafate-speed-2/)
+
+Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, and techy fabrics are all great, however, they’re not what make the shoe arguably …
+
+*Published on: Tue, 30 Jul 2024 13:29:04 GMT*
+
+
+## Gucci Mane
+
+## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
+
+Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
+
+*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
+
+
+## Gucci Mane
+
+## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
+
+AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
+
+*Published on: Mon, 29 Jul 2024 15:11:18 GMT*
+
+
+## Gucci Mane
+
 ## [Products to Prove the Camo Print's Comeback Was Hiding in Plain Sight](https://www.highsnobiety.com/p/camo-print-comeback/)
 
 After reporting on a camo print comeback no one seemed to notice – ba-dum-tss – we figured it was only fair we did the follow-up work of retrieving some  of th…
@@ -1079,7 +1187,88 @@ After reporting on a camo print comeback no one seemed to notice – ba-dum-tss 
 *Published on: Mon, 29 Jul 2024 14:26:52 GMT*
 
 
-## Gucci Mane
+## Harry Styles
+
+## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
+
+PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
+
+*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
+
+
+## Harry Styles
+
+## [New Balance's "Dunks" Went Back to Basics  Still Look Good ](https://www.highsnobiety.com/p/new-balance-numeric-480-sneakers-2024/)
+
+Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes do no wrong. The 480 "Dunks" get better, actually.After enjoying some of the mos…
+
+*Published on: Mon, 29 Jul 2024 21:21:00 GMT*
+
+
+## Harry Styles
+
+## [Remember Patta  Nike’s Air Max Grail? Well, It's Back!](https://www.highsnobiety.com/p/patta-nike-air-max-1-chlorophyll-release-date-2024/)
+
+In 2009, Patta had an important anniversary to celebrate and it did so by releasing a Nike Air Max 1 collaboration that has become a grail.The Air Max 1 ‘Chlor…
+
+*Published on: Tue, 30 Jul 2024 08:15:43 GMT*
+
+
+## Harry Styles
+
+## [New Balance's Techy Loafer Hybrid (Finally) Steps In ](https://www.highsnobiety.com/p/new-balance-loafer-where-to-buy/)
+
+Since New Balance's 1906 loafer stepped on the runway earlier this year, it has left the sneaker community — post-sneaker advocates, too — perplexed and intrig…
+
+*Published on: Tue, 30 Jul 2024 09:00:00 GMT*
+
+
+## Harry Styles
+
+## [The Beauty of Olympics Skateboarding's Non-Uniforms](https://www.highsnobiety.com/p/olympics-skateboarding-outfits-2024/)
+
+Most athletes performing at Olympic games dress identically. Disparity occasionally goes beyond nationalistic color palettes, like how track runners wear short…
+
+*Published on: Tue, 30 Jul 2024 09:30:28 GMT*
+
+
+## Harry Styles
+
+## [The (Nike) Force Is Strong With NIGO's Sneakers](https://www.highsnobiety.com/p/nigo-victor-victor-nike-air-force-1-sneakers-2024/)
+
+NIGO has the sneaker world on its toes, patiently waiting for his long-awaited Nike collaboration . For months, the fashion icon has casually offered spoonfuls…
+
+*Published on: Tue, 30 Jul 2024 09:34:32 GMT*
+
+
+## Harry Styles
+
+## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
+
+The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
+
+*Published on: Tue, 30 Jul 2024 10:05:34 GMT*
+
+
+## Harry Styles
+
+## [Nike’s Techy New Air Max Gets Into the Olympic Spirit](https://www.highsnobiety.com/p/nike-air-max-dn-usa-olympics/)
+
+It’s been a busy six months for the Nike Air Max Dn.Introduced as the American sportswear giant’s techy new sneaker, the future of its iconic Air Max range, th…
+
+*Published on: Tue, 30 Jul 2024 11:13:24 GMT*
+
+
+## Harry Styles
+
+## [HOKA's Techy Sneaker Is Gloriously Bold](https://www.highsnobiety.com/p/hoka-japan-mafate-speed-2/)
+
+Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, and techy fabrics are all great, however, they’re not what make the shoe arguably …
+
+*Published on: Tue, 30 Jul 2024 13:29:04 GMT*
+
+
+## Harry Styles
 
 ## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
 
@@ -1099,101 +1288,11 @@ AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end pro
 
 ## Harry Styles
 
-## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
-
-PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
-
-*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
-
-
-## Harry Styles
-
-## [New Balance's "Dunks" Went Back to Basics  Still Look Good ](https://www.highsnobiety.com/p/new-balance-numeric-480-sneakers-2024/)
-
-Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes do no wrong. The 480 "Dunks" get better, actually.After enjoying some of the mos…
-
-*Published on: Mon, 29 Jul 2024 21:21:00 GMT*
-
-
-## Harry Styles
-
-## [Remember Patta  Nike’s Air Max Grail? Well, It's Back!](https://www.highsnobiety.com/p/patta-nike-air-max-1-chlorophyll-release-date-2024/)
-
-In 2009, Patta had an important anniversary to celebrate and it did so by releasing a Nike Air Max 1 collaboration that has become a grail.The Air Max 1 ‘Chlor…
-
-*Published on: Tue, 30 Jul 2024 08:15:43 GMT*
-
-
-## Harry Styles
-
-## [New Balance's Techy Loafer Hybrid (Finally) Steps In ](https://www.highsnobiety.com/p/new-balance-loafer-where-to-buy/)
-
-Since New Balance's 1906 loafer stepped on the runway earlier this year, it has left the sneaker community — post-sneaker advocates, too — perplexed and intrig…
-
-*Published on: Tue, 30 Jul 2024 09:00:00 GMT*
-
-
-## Harry Styles
-
-## [The Beauty of Olympics Skateboarding's Non-Uniforms](https://www.highsnobiety.com/p/olympics-skateboarding-outfits-2024/)
-
-Most athletes performing at Olympic games dress identically. Disparity occasionally goes beyond nationalistic color palettes, like how track runners wear short…
-
-*Published on: Tue, 30 Jul 2024 09:30:28 GMT*
-
-
-## Harry Styles
-
-## [The (Nike) Force Is Strong With NIGO's Sneakers](https://www.highsnobiety.com/p/nigo-victor-victor-nike-air-force-1-sneakers-2024/)
-
-NIGO has the sneaker world on its toes, patiently waiting for his long-awaited Nike collaboration . For months, the fashion icon has casually offered spoonfuls…
-
-*Published on: Tue, 30 Jul 2024 09:34:32 GMT*
-
-
-## Harry Styles
-
-## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
-
-The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
-
-*Published on: Tue, 30 Jul 2024 10:05:34 GMT*
-
-
-## Harry Styles
-
-## [Nike’s Techy New Air Max Gets Into the Olympic Spirit](https://www.highsnobiety.com/p/nike-air-max-dn-usa-olympics/)
-
-It’s been a busy six months for the Nike Air Max Dn.Introduced as the American sportswear giant’s techy new sneaker, the future of its iconic Air Max range, th…
-
-*Published on: Tue, 30 Jul 2024 11:13:24 GMT*
-
-
-## Harry Styles
-
 ## [Products to Prove the Camo Print's Comeback Was Hiding in Plain Sight](https://www.highsnobiety.com/p/camo-print-comeback/)
 
 After reporting on a camo print comeback no one seemed to notice – ba-dum-tss – we figured it was only fair we did the follow-up work of retrieving some  of th…
 
 *Published on: Mon, 29 Jul 2024 14:26:52 GMT*
-
-
-## Harry Styles
-
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Jake Paul
-
-## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
-
-AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
-
-*Published on: Mon, 29 Jul 2024 15:11:18 GMT*
 
 
 ## Jake Paul
@@ -1270,11 +1369,11 @@ It’s been a busy six months for the Nike Air Max Dn.Introduced as the American
 
 ## Jake Paul
 
-## [Products to Prove the Camo Print's Comeback Was Hiding in Plain Sight](https://www.highsnobiety.com/p/camo-print-comeback/)
+## [HOKA's Techy Sneaker Is Gloriously Bold](https://www.highsnobiety.com/p/hoka-japan-mafate-speed-2/)
 
-After reporting on a camo print comeback no one seemed to notice – ba-dum-tss – we figured it was only fair we did the follow-up work of retrieving some  of th…
+Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, and techy fabrics are all great, however, they’re not what make the shoe arguably …
 
-*Published on: Mon, 29 Jul 2024 14:26:52 GMT*
+*Published on: Tue, 30 Jul 2024 13:29:04 GMT*
 
 
 ## Jake Paul
@@ -1286,13 +1385,22 @@ Known as the gems of the ocean, pearls stand for purity and wisdom, and are the 
 *Published on: Mon, 29 Jul 2024 12:00:00 GMT*
 
 
-## Jameela Jamil
+## Jake Paul
 
 ## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
 
 *Published on: Mon, 29 Jul 2024 15:11:18 GMT*
+
+
+## Jake Paul
+
+## [Products to Prove the Camo Print's Comeback Was Hiding in Plain Sight](https://www.highsnobiety.com/p/camo-print-comeback/)
+
+After reporting on a camo print comeback no one seemed to notice – ba-dum-tss – we figured it was only fair we did the follow-up work of retrieving some  of th…
+
+*Published on: Mon, 29 Jul 2024 14:26:52 GMT*
 
 
 ## Jameela Jamil
@@ -1369,6 +1477,33 @@ It’s been a busy six months for the Nike Air Max Dn.Introduced as the American
 
 ## Jameela Jamil
 
+## [HOKA's Techy Sneaker Is Gloriously Bold](https://www.highsnobiety.com/p/hoka-japan-mafate-speed-2/)
+
+Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, and techy fabrics are all great, however, they’re not what make the shoe arguably …
+
+*Published on: Tue, 30 Jul 2024 13:29:04 GMT*
+
+
+## Jameela Jamil
+
+## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
+
+Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
+
+*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
+
+
+## Jameela Jamil
+
+## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
+
+AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
+
+*Published on: Mon, 29 Jul 2024 15:11:18 GMT*
+
+
+## Jameela Jamil
+
 ## [Products to Prove the Camo Print's Comeback Was Hiding in Plain Sight](https://www.highsnobiety.com/p/camo-print-comeback/)
 
 After reporting on a camo print comeback no one seemed to notice – ba-dum-tss – we figured it was only fair we did the follow-up work of retrieving some  of th…
@@ -1376,7 +1511,88 @@ After reporting on a camo print comeback no one seemed to notice – ba-dum-tss 
 *Published on: Mon, 29 Jul 2024 14:26:52 GMT*
 
 
-## Jameela Jamil
+## Elon Musk
+
+## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
+
+PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
+
+*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
+
+
+## Elon Musk
+
+## [New Balance's "Dunks" Went Back to Basics  Still Look Good ](https://www.highsnobiety.com/p/new-balance-numeric-480-sneakers-2024/)
+
+Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes do no wrong. The 480 "Dunks" get better, actually.After enjoying some of the mos…
+
+*Published on: Mon, 29 Jul 2024 21:21:00 GMT*
+
+
+## Elon Musk
+
+## [Remember Patta  Nike’s Air Max Grail? Well, It's Back!](https://www.highsnobiety.com/p/patta-nike-air-max-1-chlorophyll-release-date-2024/)
+
+In 2009, Patta had an important anniversary to celebrate and it did so by releasing a Nike Air Max 1 collaboration that has become a grail.The Air Max 1 ‘Chlor…
+
+*Published on: Tue, 30 Jul 2024 08:15:43 GMT*
+
+
+## Elon Musk
+
+## [New Balance's Techy Loafer Hybrid (Finally) Steps In ](https://www.highsnobiety.com/p/new-balance-loafer-where-to-buy/)
+
+Since New Balance's 1906 loafer stepped on the runway earlier this year, it has left the sneaker community — post-sneaker advocates, too — perplexed and intrig…
+
+*Published on: Tue, 30 Jul 2024 09:00:00 GMT*
+
+
+## Elon Musk
+
+## [The Beauty of Olympics Skateboarding's Non-Uniforms](https://www.highsnobiety.com/p/olympics-skateboarding-outfits-2024/)
+
+Most athletes performing at Olympic games dress identically. Disparity occasionally goes beyond nationalistic color palettes, like how track runners wear short…
+
+*Published on: Tue, 30 Jul 2024 09:30:28 GMT*
+
+
+## Elon Musk
+
+## [The (Nike) Force Is Strong With NIGO's Sneakers](https://www.highsnobiety.com/p/nigo-victor-victor-nike-air-force-1-sneakers-2024/)
+
+NIGO has the sneaker world on its toes, patiently waiting for his long-awaited Nike collaboration . For months, the fashion icon has casually offered spoonfuls…
+
+*Published on: Tue, 30 Jul 2024 09:34:32 GMT*
+
+
+## Elon Musk
+
+## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
+
+The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
+
+*Published on: Tue, 30 Jul 2024 10:05:34 GMT*
+
+
+## Elon Musk
+
+## [Nike’s Techy New Air Max Gets Into the Olympic Spirit](https://www.highsnobiety.com/p/nike-air-max-dn-usa-olympics/)
+
+It’s been a busy six months for the Nike Air Max Dn.Introduced as the American sportswear giant’s techy new sneaker, the future of its iconic Air Max range, th…
+
+*Published on: Tue, 30 Jul 2024 11:13:24 GMT*
+
+
+## Elon Musk
+
+## [HOKA's Techy Sneaker Is Gloriously Bold](https://www.highsnobiety.com/p/hoka-japan-mafate-speed-2/)
+
+Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, and techy fabrics are all great, however, they’re not what make the shoe arguably …
+
+*Published on: Tue, 30 Jul 2024 13:29:04 GMT*
+
+
+## Elon Musk
 
 ## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
 
@@ -1396,101 +1612,11 @@ AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end pro
 
 ## Elon Musk
 
-## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
-
-PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
-
-*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
-
-
-## Elon Musk
-
-## [New Balance's "Dunks" Went Back to Basics  Still Look Good ](https://www.highsnobiety.com/p/new-balance-numeric-480-sneakers-2024/)
-
-Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes do no wrong. The 480 "Dunks" get better, actually.After enjoying some of the mos…
-
-*Published on: Mon, 29 Jul 2024 21:21:00 GMT*
-
-
-## Elon Musk
-
-## [Remember Patta  Nike’s Air Max Grail? Well, It's Back!](https://www.highsnobiety.com/p/patta-nike-air-max-1-chlorophyll-release-date-2024/)
-
-In 2009, Patta had an important anniversary to celebrate and it did so by releasing a Nike Air Max 1 collaboration that has become a grail.The Air Max 1 ‘Chlor…
-
-*Published on: Tue, 30 Jul 2024 08:15:43 GMT*
-
-
-## Elon Musk
-
-## [New Balance's Techy Loafer Hybrid (Finally) Steps In ](https://www.highsnobiety.com/p/new-balance-loafer-where-to-buy/)
-
-Since New Balance's 1906 loafer stepped on the runway earlier this year, it has left the sneaker community — post-sneaker advocates, too — perplexed and intrig…
-
-*Published on: Tue, 30 Jul 2024 09:00:00 GMT*
-
-
-## Elon Musk
-
-## [The Beauty of Olympics Skateboarding's Non-Uniforms](https://www.highsnobiety.com/p/olympics-skateboarding-outfits-2024/)
-
-Most athletes performing at Olympic games dress identically. Disparity occasionally goes beyond nationalistic color palettes, like how track runners wear short…
-
-*Published on: Tue, 30 Jul 2024 09:30:28 GMT*
-
-
-## Elon Musk
-
-## [The (Nike) Force Is Strong With NIGO's Sneakers](https://www.highsnobiety.com/p/nigo-victor-victor-nike-air-force-1-sneakers-2024/)
-
-NIGO has the sneaker world on its toes, patiently waiting for his long-awaited Nike collaboration . For months, the fashion icon has casually offered spoonfuls…
-
-*Published on: Tue, 30 Jul 2024 09:34:32 GMT*
-
-
-## Elon Musk
-
-## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
-
-The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
-
-*Published on: Tue, 30 Jul 2024 10:05:34 GMT*
-
-
-## Elon Musk
-
-## [Nike’s Techy New Air Max Gets Into the Olympic Spirit](https://www.highsnobiety.com/p/nike-air-max-dn-usa-olympics/)
-
-It’s been a busy six months for the Nike Air Max Dn.Introduced as the American sportswear giant’s techy new sneaker, the future of its iconic Air Max range, th…
-
-*Published on: Tue, 30 Jul 2024 11:13:24 GMT*
-
-
-## Elon Musk
-
 ## [Products to Prove the Camo Print's Comeback Was Hiding in Plain Sight](https://www.highsnobiety.com/p/camo-print-comeback/)
 
 After reporting on a camo print comeback no one seemed to notice – ba-dum-tss – we figured it was only fair we did the follow-up work of retrieving some  of th…
 
 *Published on: Mon, 29 Jul 2024 14:26:52 GMT*
-
-
-## Elon Musk
-
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Gabrielle Union
-
-## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
-
-AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
-
-*Published on: Mon, 29 Jul 2024 15:11:18 GMT*
 
 
 ## Gabrielle Union
@@ -1567,11 +1693,11 @@ It’s been a busy six months for the Nike Air Max Dn.Introduced as the American
 
 ## Gabrielle Union
 
-## [Products to Prove the Camo Print's Comeback Was Hiding in Plain Sight](https://www.highsnobiety.com/p/camo-print-comeback/)
+## [HOKA's Techy Sneaker Is Gloriously Bold](https://www.highsnobiety.com/p/hoka-japan-mafate-speed-2/)
 
-After reporting on a camo print comeback no one seemed to notice – ba-dum-tss – we figured it was only fair we did the follow-up work of retrieving some  of th…
+Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, and techy fabrics are all great, however, they’re not what make the shoe arguably …
 
-*Published on: Mon, 29 Jul 2024 14:26:52 GMT*
+*Published on: Tue, 30 Jul 2024 13:29:04 GMT*
 
 
 ## Gabrielle Union
@@ -1583,13 +1709,22 @@ Known as the gems of the ocean, pearls stand for purity and wisdom, and are the 
 *Published on: Mon, 29 Jul 2024 12:00:00 GMT*
 
 
-## Giancarlo Esposito
+## Gabrielle Union
 
 ## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
 
 *Published on: Mon, 29 Jul 2024 15:11:18 GMT*
+
+
+## Gabrielle Union
+
+## [Products to Prove the Camo Print's Comeback Was Hiding in Plain Sight](https://www.highsnobiety.com/p/camo-print-comeback/)
+
+After reporting on a camo print comeback no one seemed to notice – ba-dum-tss – we figured it was only fair we did the follow-up work of retrieving some  of th…
+
+*Published on: Mon, 29 Jul 2024 14:26:52 GMT*
 
 
 ## Giancarlo Esposito
@@ -1666,6 +1801,33 @@ It’s been a busy six months for the Nike Air Max Dn.Introduced as the American
 
 ## Giancarlo Esposito
 
+## [HOKA's Techy Sneaker Is Gloriously Bold](https://www.highsnobiety.com/p/hoka-japan-mafate-speed-2/)
+
+Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, and techy fabrics are all great, however, they’re not what make the shoe arguably …
+
+*Published on: Tue, 30 Jul 2024 13:29:04 GMT*
+
+
+## Giancarlo Esposito
+
+## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
+
+Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
+
+*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
+
+
+## Giancarlo Esposito
+
+## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
+
+AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
+
+*Published on: Mon, 29 Jul 2024 15:11:18 GMT*
+
+
+## Giancarlo Esposito
+
 ## [Products to Prove the Camo Print's Comeback Was Hiding in Plain Sight](https://www.highsnobiety.com/p/camo-print-comeback/)
 
 After reporting on a camo print comeback no one seemed to notice – ba-dum-tss – we figured it was only fair we did the follow-up work of retrieving some  of th…
@@ -1673,7 +1835,88 @@ After reporting on a camo print comeback no one seemed to notice – ba-dum-tss 
 *Published on: Mon, 29 Jul 2024 14:26:52 GMT*
 
 
-## Giancarlo Esposito
+## Gillian Jacobs
+
+## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
+
+PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
+
+*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
+
+
+## Gillian Jacobs
+
+## [New Balance's "Dunks" Went Back to Basics  Still Look Good ](https://www.highsnobiety.com/p/new-balance-numeric-480-sneakers-2024/)
+
+Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes do no wrong. The 480 "Dunks" get better, actually.After enjoying some of the mos…
+
+*Published on: Mon, 29 Jul 2024 21:21:00 GMT*
+
+
+## Gillian Jacobs
+
+## [Remember Patta  Nike’s Air Max Grail? Well, It's Back!](https://www.highsnobiety.com/p/patta-nike-air-max-1-chlorophyll-release-date-2024/)
+
+In 2009, Patta had an important anniversary to celebrate and it did so by releasing a Nike Air Max 1 collaboration that has become a grail.The Air Max 1 ‘Chlor…
+
+*Published on: Tue, 30 Jul 2024 08:15:43 GMT*
+
+
+## Gillian Jacobs
+
+## [New Balance's Techy Loafer Hybrid (Finally) Steps In ](https://www.highsnobiety.com/p/new-balance-loafer-where-to-buy/)
+
+Since New Balance's 1906 loafer stepped on the runway earlier this year, it has left the sneaker community — post-sneaker advocates, too — perplexed and intrig…
+
+*Published on: Tue, 30 Jul 2024 09:00:00 GMT*
+
+
+## Gillian Jacobs
+
+## [The Beauty of Olympics Skateboarding's Non-Uniforms](https://www.highsnobiety.com/p/olympics-skateboarding-outfits-2024/)
+
+Most athletes performing at Olympic games dress identically. Disparity occasionally goes beyond nationalistic color palettes, like how track runners wear short…
+
+*Published on: Tue, 30 Jul 2024 09:30:28 GMT*
+
+
+## Gillian Jacobs
+
+## [The (Nike) Force Is Strong With NIGO's Sneakers](https://www.highsnobiety.com/p/nigo-victor-victor-nike-air-force-1-sneakers-2024/)
+
+NIGO has the sneaker world on its toes, patiently waiting for his long-awaited Nike collaboration . For months, the fashion icon has casually offered spoonfuls…
+
+*Published on: Tue, 30 Jul 2024 09:34:32 GMT*
+
+
+## Gillian Jacobs
+
+## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
+
+The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
+
+*Published on: Tue, 30 Jul 2024 10:05:34 GMT*
+
+
+## Gillian Jacobs
+
+## [Nike’s Techy New Air Max Gets Into the Olympic Spirit](https://www.highsnobiety.com/p/nike-air-max-dn-usa-olympics/)
+
+It’s been a busy six months for the Nike Air Max Dn.Introduced as the American sportswear giant’s techy new sneaker, the future of its iconic Air Max range, th…
+
+*Published on: Tue, 30 Jul 2024 11:13:24 GMT*
+
+
+## Gillian Jacobs
+
+## [HOKA's Techy Sneaker Is Gloriously Bold](https://www.highsnobiety.com/p/hoka-japan-mafate-speed-2/)
+
+Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, and techy fabrics are all great, however, they’re not what make the shoe arguably …
+
+*Published on: Tue, 30 Jul 2024 13:29:04 GMT*
+
+
+## Gillian Jacobs
 
 ## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
 
@@ -1693,101 +1936,11 @@ AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end pro
 
 ## Gillian Jacobs
 
-## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
-
-PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
-
-*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
-
-
-## Gillian Jacobs
-
-## [New Balance's "Dunks" Went Back to Basics  Still Look Good ](https://www.highsnobiety.com/p/new-balance-numeric-480-sneakers-2024/)
-
-Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes do no wrong. The 480 "Dunks" get better, actually.After enjoying some of the mos…
-
-*Published on: Mon, 29 Jul 2024 21:21:00 GMT*
-
-
-## Gillian Jacobs
-
-## [Remember Patta  Nike’s Air Max Grail? Well, It's Back!](https://www.highsnobiety.com/p/patta-nike-air-max-1-chlorophyll-release-date-2024/)
-
-In 2009, Patta had an important anniversary to celebrate and it did so by releasing a Nike Air Max 1 collaboration that has become a grail.The Air Max 1 ‘Chlor…
-
-*Published on: Tue, 30 Jul 2024 08:15:43 GMT*
-
-
-## Gillian Jacobs
-
-## [New Balance's Techy Loafer Hybrid (Finally) Steps In ](https://www.highsnobiety.com/p/new-balance-loafer-where-to-buy/)
-
-Since New Balance's 1906 loafer stepped on the runway earlier this year, it has left the sneaker community — post-sneaker advocates, too — perplexed and intrig…
-
-*Published on: Tue, 30 Jul 2024 09:00:00 GMT*
-
-
-## Gillian Jacobs
-
-## [The Beauty of Olympics Skateboarding's Non-Uniforms](https://www.highsnobiety.com/p/olympics-skateboarding-outfits-2024/)
-
-Most athletes performing at Olympic games dress identically. Disparity occasionally goes beyond nationalistic color palettes, like how track runners wear short…
-
-*Published on: Tue, 30 Jul 2024 09:30:28 GMT*
-
-
-## Gillian Jacobs
-
-## [The (Nike) Force Is Strong With NIGO's Sneakers](https://www.highsnobiety.com/p/nigo-victor-victor-nike-air-force-1-sneakers-2024/)
-
-NIGO has the sneaker world on its toes, patiently waiting for his long-awaited Nike collaboration . For months, the fashion icon has casually offered spoonfuls…
-
-*Published on: Tue, 30 Jul 2024 09:34:32 GMT*
-
-
-## Gillian Jacobs
-
-## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
-
-The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
-
-*Published on: Tue, 30 Jul 2024 10:05:34 GMT*
-
-
-## Gillian Jacobs
-
-## [Nike’s Techy New Air Max Gets Into the Olympic Spirit](https://www.highsnobiety.com/p/nike-air-max-dn-usa-olympics/)
-
-It’s been a busy six months for the Nike Air Max Dn.Introduced as the American sportswear giant’s techy new sneaker, the future of its iconic Air Max range, th…
-
-*Published on: Tue, 30 Jul 2024 11:13:24 GMT*
-
-
-## Gillian Jacobs
-
 ## [Products to Prove the Camo Print's Comeback Was Hiding in Plain Sight](https://www.highsnobiety.com/p/camo-print-comeback/)
 
 After reporting on a camo print comeback no one seemed to notice – ba-dum-tss – we figured it was only fair we did the follow-up work of retrieving some  of th…
 
 *Published on: Mon, 29 Jul 2024 14:26:52 GMT*
-
-
-## Gillian Jacobs
-
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Jason Mantzoukas
-
-## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
-
-AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
-
-*Published on: Mon, 29 Jul 2024 15:11:18 GMT*
 
 
 ## Jason Mantzoukas
@@ -1864,11 +2017,11 @@ It’s been a busy six months for the Nike Air Max Dn.Introduced as the American
 
 ## Jason Mantzoukas
 
-## [Products to Prove the Camo Print's Comeback Was Hiding in Plain Sight](https://www.highsnobiety.com/p/camo-print-comeback/)
+## [HOKA's Techy Sneaker Is Gloriously Bold](https://www.highsnobiety.com/p/hoka-japan-mafate-speed-2/)
 
-After reporting on a camo print comeback no one seemed to notice – ba-dum-tss – we figured it was only fair we did the follow-up work of retrieving some  of th…
+Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, and techy fabrics are all great, however, they’re not what make the shoe arguably …
 
-*Published on: Mon, 29 Jul 2024 14:26:52 GMT*
+*Published on: Tue, 30 Jul 2024 13:29:04 GMT*
 
 
 ## Jason Mantzoukas
@@ -1880,13 +2033,22 @@ Known as the gems of the ocean, pearls stand for purity and wisdom, and are the 
 *Published on: Mon, 29 Jul 2024 12:00:00 GMT*
 
 
-## JB Smoove
+## Jason Mantzoukas
 
 ## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
 
 *Published on: Mon, 29 Jul 2024 15:11:18 GMT*
+
+
+## Jason Mantzoukas
+
+## [Products to Prove the Camo Print's Comeback Was Hiding in Plain Sight](https://www.highsnobiety.com/p/camo-print-comeback/)
+
+After reporting on a camo print comeback no one seemed to notice – ba-dum-tss – we figured it was only fair we did the follow-up work of retrieving some  of th…
+
+*Published on: Mon, 29 Jul 2024 14:26:52 GMT*
 
 
 ## JB Smoove
@@ -1963,6 +2125,33 @@ It’s been a busy six months for the Nike Air Max Dn.Introduced as the American
 
 ## JB Smoove
 
+## [HOKA's Techy Sneaker Is Gloriously Bold](https://www.highsnobiety.com/p/hoka-japan-mafate-speed-2/)
+
+Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, and techy fabrics are all great, however, they’re not what make the shoe arguably …
+
+*Published on: Tue, 30 Jul 2024 13:29:04 GMT*
+
+
+## JB Smoove
+
+## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
+
+Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
+
+*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
+
+
+## JB Smoove
+
+## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
+
+AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
+
+*Published on: Mon, 29 Jul 2024 15:11:18 GMT*
+
+
+## JB Smoove
+
 ## [Products to Prove the Camo Print's Comeback Was Hiding in Plain Sight](https://www.highsnobiety.com/p/camo-print-comeback/)
 
 After reporting on a camo print comeback no one seemed to notice – ba-dum-tss – we figured it was only fair we did the follow-up work of retrieving some  of th…
@@ -1970,7 +2159,88 @@ After reporting on a camo print comeback no one seemed to notice – ba-dum-tss 
 *Published on: Mon, 29 Jul 2024 14:26:52 GMT*
 
 
-## JB Smoove
+## Madison Pettis
+
+## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
+
+PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
+
+*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
+
+
+## Madison Pettis
+
+## [New Balance's "Dunks" Went Back to Basics  Still Look Good ](https://www.highsnobiety.com/p/new-balance-numeric-480-sneakers-2024/)
+
+Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes do no wrong. The 480 "Dunks" get better, actually.After enjoying some of the mos…
+
+*Published on: Mon, 29 Jul 2024 21:21:00 GMT*
+
+
+## Madison Pettis
+
+## [Remember Patta  Nike’s Air Max Grail? Well, It's Back!](https://www.highsnobiety.com/p/patta-nike-air-max-1-chlorophyll-release-date-2024/)
+
+In 2009, Patta had an important anniversary to celebrate and it did so by releasing a Nike Air Max 1 collaboration that has become a grail.The Air Max 1 ‘Chlor…
+
+*Published on: Tue, 30 Jul 2024 08:15:43 GMT*
+
+
+## Madison Pettis
+
+## [New Balance's Techy Loafer Hybrid (Finally) Steps In ](https://www.highsnobiety.com/p/new-balance-loafer-where-to-buy/)
+
+Since New Balance's 1906 loafer stepped on the runway earlier this year, it has left the sneaker community — post-sneaker advocates, too — perplexed and intrig…
+
+*Published on: Tue, 30 Jul 2024 09:00:00 GMT*
+
+
+## Madison Pettis
+
+## [The Beauty of Olympics Skateboarding's Non-Uniforms](https://www.highsnobiety.com/p/olympics-skateboarding-outfits-2024/)
+
+Most athletes performing at Olympic games dress identically. Disparity occasionally goes beyond nationalistic color palettes, like how track runners wear short…
+
+*Published on: Tue, 30 Jul 2024 09:30:28 GMT*
+
+
+## Madison Pettis
+
+## [The (Nike) Force Is Strong With NIGO's Sneakers](https://www.highsnobiety.com/p/nigo-victor-victor-nike-air-force-1-sneakers-2024/)
+
+NIGO has the sneaker world on its toes, patiently waiting for his long-awaited Nike collaboration . For months, the fashion icon has casually offered spoonfuls…
+
+*Published on: Tue, 30 Jul 2024 09:34:32 GMT*
+
+
+## Madison Pettis
+
+## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
+
+The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
+
+*Published on: Tue, 30 Jul 2024 10:05:34 GMT*
+
+
+## Madison Pettis
+
+## [Nike’s Techy New Air Max Gets Into the Olympic Spirit](https://www.highsnobiety.com/p/nike-air-max-dn-usa-olympics/)
+
+It’s been a busy six months for the Nike Air Max Dn.Introduced as the American sportswear giant’s techy new sneaker, the future of its iconic Air Max range, th…
+
+*Published on: Tue, 30 Jul 2024 11:13:24 GMT*
+
+
+## Madison Pettis
+
+## [HOKA's Techy Sneaker Is Gloriously Bold](https://www.highsnobiety.com/p/hoka-japan-mafate-speed-2/)
+
+Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, and techy fabrics are all great, however, they’re not what make the shoe arguably …
+
+*Published on: Tue, 30 Jul 2024 13:29:04 GMT*
+
+
+## Madison Pettis
 
 ## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
 
@@ -1990,101 +2260,11 @@ AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end pro
 
 ## Madison Pettis
 
-## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
-
-PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
-
-*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
-
-
-## Madison Pettis
-
-## [New Balance's "Dunks" Went Back to Basics  Still Look Good ](https://www.highsnobiety.com/p/new-balance-numeric-480-sneakers-2024/)
-
-Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes do no wrong. The 480 "Dunks" get better, actually.After enjoying some of the mos…
-
-*Published on: Mon, 29 Jul 2024 21:21:00 GMT*
-
-
-## Madison Pettis
-
-## [Remember Patta  Nike’s Air Max Grail? Well, It's Back!](https://www.highsnobiety.com/p/patta-nike-air-max-1-chlorophyll-release-date-2024/)
-
-In 2009, Patta had an important anniversary to celebrate and it did so by releasing a Nike Air Max 1 collaboration that has become a grail.The Air Max 1 ‘Chlor…
-
-*Published on: Tue, 30 Jul 2024 08:15:43 GMT*
-
-
-## Madison Pettis
-
-## [New Balance's Techy Loafer Hybrid (Finally) Steps In ](https://www.highsnobiety.com/p/new-balance-loafer-where-to-buy/)
-
-Since New Balance's 1906 loafer stepped on the runway earlier this year, it has left the sneaker community — post-sneaker advocates, too — perplexed and intrig…
-
-*Published on: Tue, 30 Jul 2024 09:00:00 GMT*
-
-
-## Madison Pettis
-
-## [The Beauty of Olympics Skateboarding's Non-Uniforms](https://www.highsnobiety.com/p/olympics-skateboarding-outfits-2024/)
-
-Most athletes performing at Olympic games dress identically. Disparity occasionally goes beyond nationalistic color palettes, like how track runners wear short…
-
-*Published on: Tue, 30 Jul 2024 09:30:28 GMT*
-
-
-## Madison Pettis
-
-## [The (Nike) Force Is Strong With NIGO's Sneakers](https://www.highsnobiety.com/p/nigo-victor-victor-nike-air-force-1-sneakers-2024/)
-
-NIGO has the sneaker world on its toes, patiently waiting for his long-awaited Nike collaboration . For months, the fashion icon has casually offered spoonfuls…
-
-*Published on: Tue, 30 Jul 2024 09:34:32 GMT*
-
-
-## Madison Pettis
-
-## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
-
-The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
-
-*Published on: Tue, 30 Jul 2024 10:05:34 GMT*
-
-
-## Madison Pettis
-
-## [Nike’s Techy New Air Max Gets Into the Olympic Spirit](https://www.highsnobiety.com/p/nike-air-max-dn-usa-olympics/)
-
-It’s been a busy six months for the Nike Air Max Dn.Introduced as the American sportswear giant’s techy new sneaker, the future of its iconic Air Max range, th…
-
-*Published on: Tue, 30 Jul 2024 11:13:24 GMT*
-
-
-## Madison Pettis
-
 ## [Products to Prove the Camo Print's Comeback Was Hiding in Plain Sight](https://www.highsnobiety.com/p/camo-print-comeback/)
 
 After reporting on a camo print comeback no one seemed to notice – ba-dum-tss – we figured it was only fair we did the follow-up work of retrieving some  of th…
 
 *Published on: Mon, 29 Jul 2024 14:26:52 GMT*
-
-
-## Madison Pettis
-
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Austin Butler
-
-## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
-
-AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
-
-*Published on: Mon, 29 Jul 2024 15:11:18 GMT*
 
 
 ## Austin Butler
@@ -2161,11 +2341,11 @@ It’s been a busy six months for the Nike Air Max Dn.Introduced as the American
 
 ## Austin Butler
 
-## [Products to Prove the Camo Print's Comeback Was Hiding in Plain Sight](https://www.highsnobiety.com/p/camo-print-comeback/)
+## [HOKA's Techy Sneaker Is Gloriously Bold](https://www.highsnobiety.com/p/hoka-japan-mafate-speed-2/)
 
-After reporting on a camo print comeback no one seemed to notice – ba-dum-tss – we figured it was only fair we did the follow-up work of retrieving some  of th…
+Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, and techy fabrics are all great, however, they’re not what make the shoe arguably …
 
-*Published on: Mon, 29 Jul 2024 14:26:52 GMT*
+*Published on: Tue, 30 Jul 2024 13:29:04 GMT*
 
 
 ## Austin Butler
@@ -2177,13 +2357,22 @@ Known as the gems of the ocean, pearls stand for purity and wisdom, and are the 
 *Published on: Mon, 29 Jul 2024 12:00:00 GMT*
 
 
-## Mark Zuckerberg
+## Austin Butler
 
 ## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
 
 *Published on: Mon, 29 Jul 2024 15:11:18 GMT*
+
+
+## Austin Butler
+
+## [Products to Prove the Camo Print's Comeback Was Hiding in Plain Sight](https://www.highsnobiety.com/p/camo-print-comeback/)
+
+After reporting on a camo print comeback no one seemed to notice – ba-dum-tss – we figured it was only fair we did the follow-up work of retrieving some  of th…
+
+*Published on: Mon, 29 Jul 2024 14:26:52 GMT*
 
 
 ## Mark Zuckerberg
@@ -2260,6 +2449,33 @@ It’s been a busy six months for the Nike Air Max Dn.Introduced as the American
 
 ## Mark Zuckerberg
 
+## [HOKA's Techy Sneaker Is Gloriously Bold](https://www.highsnobiety.com/p/hoka-japan-mafate-speed-2/)
+
+Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, and techy fabrics are all great, however, they’re not what make the shoe arguably …
+
+*Published on: Tue, 30 Jul 2024 13:29:04 GMT*
+
+
+## Mark Zuckerberg
+
+## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
+
+Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
+
+*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
+
+
+## Mark Zuckerberg
+
+## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
+
+AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
+
+*Published on: Mon, 29 Jul 2024 15:11:18 GMT*
+
+
+## Mark Zuckerberg
+
 ## [Products to Prove the Camo Print's Comeback Was Hiding in Plain Sight](https://www.highsnobiety.com/p/camo-print-comeback/)
 
 After reporting on a camo print comeback no one seemed to notice – ba-dum-tss – we figured it was only fair we did the follow-up work of retrieving some  of th…
@@ -2267,7 +2483,88 @@ After reporting on a camo print comeback no one seemed to notice – ba-dum-tss 
 *Published on: Mon, 29 Jul 2024 14:26:52 GMT*
 
 
-## Mark Zuckerberg
+## Ariana Grande
+
+## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
+
+PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
+
+*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
+
+
+## Ariana Grande
+
+## [New Balance's "Dunks" Went Back to Basics  Still Look Good ](https://www.highsnobiety.com/p/new-balance-numeric-480-sneakers-2024/)
+
+Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes do no wrong. The 480 "Dunks" get better, actually.After enjoying some of the mos…
+
+*Published on: Mon, 29 Jul 2024 21:21:00 GMT*
+
+
+## Ariana Grande
+
+## [Remember Patta  Nike’s Air Max Grail? Well, It's Back!](https://www.highsnobiety.com/p/patta-nike-air-max-1-chlorophyll-release-date-2024/)
+
+In 2009, Patta had an important anniversary to celebrate and it did so by releasing a Nike Air Max 1 collaboration that has become a grail.The Air Max 1 ‘Chlor…
+
+*Published on: Tue, 30 Jul 2024 08:15:43 GMT*
+
+
+## Ariana Grande
+
+## [New Balance's Techy Loafer Hybrid (Finally) Steps In ](https://www.highsnobiety.com/p/new-balance-loafer-where-to-buy/)
+
+Since New Balance's 1906 loafer stepped on the runway earlier this year, it has left the sneaker community — post-sneaker advocates, too — perplexed and intrig…
+
+*Published on: Tue, 30 Jul 2024 09:00:00 GMT*
+
+
+## Ariana Grande
+
+## [The Beauty of Olympics Skateboarding's Non-Uniforms](https://www.highsnobiety.com/p/olympics-skateboarding-outfits-2024/)
+
+Most athletes performing at Olympic games dress identically. Disparity occasionally goes beyond nationalistic color palettes, like how track runners wear short…
+
+*Published on: Tue, 30 Jul 2024 09:30:28 GMT*
+
+
+## Ariana Grande
+
+## [The (Nike) Force Is Strong With NIGO's Sneakers](https://www.highsnobiety.com/p/nigo-victor-victor-nike-air-force-1-sneakers-2024/)
+
+NIGO has the sneaker world on its toes, patiently waiting for his long-awaited Nike collaboration . For months, the fashion icon has casually offered spoonfuls…
+
+*Published on: Tue, 30 Jul 2024 09:34:32 GMT*
+
+
+## Ariana Grande
+
+## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
+
+The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
+
+*Published on: Tue, 30 Jul 2024 10:05:34 GMT*
+
+
+## Ariana Grande
+
+## [Nike’s Techy New Air Max Gets Into the Olympic Spirit](https://www.highsnobiety.com/p/nike-air-max-dn-usa-olympics/)
+
+It’s been a busy six months for the Nike Air Max Dn.Introduced as the American sportswear giant’s techy new sneaker, the future of its iconic Air Max range, th…
+
+*Published on: Tue, 30 Jul 2024 11:13:24 GMT*
+
+
+## Ariana Grande
+
+## [HOKA's Techy Sneaker Is Gloriously Bold](https://www.highsnobiety.com/p/hoka-japan-mafate-speed-2/)
+
+Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, and techy fabrics are all great, however, they’re not what make the shoe arguably …
+
+*Published on: Tue, 30 Jul 2024 13:29:04 GMT*
+
+
+## Ariana Grande
 
 ## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
 
@@ -2287,101 +2584,11 @@ AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end pro
 
 ## Ariana Grande
 
-## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
-
-PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
-
-*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
-
-
-## Ariana Grande
-
-## [New Balance's "Dunks" Went Back to Basics  Still Look Good ](https://www.highsnobiety.com/p/new-balance-numeric-480-sneakers-2024/)
-
-Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes do no wrong. The 480 "Dunks" get better, actually.After enjoying some of the mos…
-
-*Published on: Mon, 29 Jul 2024 21:21:00 GMT*
-
-
-## Ariana Grande
-
-## [Remember Patta  Nike’s Air Max Grail? Well, It's Back!](https://www.highsnobiety.com/p/patta-nike-air-max-1-chlorophyll-release-date-2024/)
-
-In 2009, Patta had an important anniversary to celebrate and it did so by releasing a Nike Air Max 1 collaboration that has become a grail.The Air Max 1 ‘Chlor…
-
-*Published on: Tue, 30 Jul 2024 08:15:43 GMT*
-
-
-## Ariana Grande
-
-## [New Balance's Techy Loafer Hybrid (Finally) Steps In ](https://www.highsnobiety.com/p/new-balance-loafer-where-to-buy/)
-
-Since New Balance's 1906 loafer stepped on the runway earlier this year, it has left the sneaker community — post-sneaker advocates, too — perplexed and intrig…
-
-*Published on: Tue, 30 Jul 2024 09:00:00 GMT*
-
-
-## Ariana Grande
-
-## [The Beauty of Olympics Skateboarding's Non-Uniforms](https://www.highsnobiety.com/p/olympics-skateboarding-outfits-2024/)
-
-Most athletes performing at Olympic games dress identically. Disparity occasionally goes beyond nationalistic color palettes, like how track runners wear short…
-
-*Published on: Tue, 30 Jul 2024 09:30:28 GMT*
-
-
-## Ariana Grande
-
-## [The (Nike) Force Is Strong With NIGO's Sneakers](https://www.highsnobiety.com/p/nigo-victor-victor-nike-air-force-1-sneakers-2024/)
-
-NIGO has the sneaker world on its toes, patiently waiting for his long-awaited Nike collaboration . For months, the fashion icon has casually offered spoonfuls…
-
-*Published on: Tue, 30 Jul 2024 09:34:32 GMT*
-
-
-## Ariana Grande
-
-## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
-
-The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
-
-*Published on: Tue, 30 Jul 2024 10:05:34 GMT*
-
-
-## Ariana Grande
-
-## [Nike’s Techy New Air Max Gets Into the Olympic Spirit](https://www.highsnobiety.com/p/nike-air-max-dn-usa-olympics/)
-
-It’s been a busy six months for the Nike Air Max Dn.Introduced as the American sportswear giant’s techy new sneaker, the future of its iconic Air Max range, th…
-
-*Published on: Tue, 30 Jul 2024 11:13:24 GMT*
-
-
-## Ariana Grande
-
 ## [Products to Prove the Camo Print's Comeback Was Hiding in Plain Sight](https://www.highsnobiety.com/p/camo-print-comeback/)
 
 After reporting on a camo print comeback no one seemed to notice – ba-dum-tss – we figured it was only fair we did the follow-up work of retrieving some  of th…
 
 *Published on: Mon, 29 Jul 2024 14:26:52 GMT*
-
-
-## Ariana Grande
-
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Livvy Dunne
-
-## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
-
-AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
-
-*Published on: Mon, 29 Jul 2024 15:11:18 GMT*
 
 
 ## Livvy Dunne
@@ -2458,11 +2665,11 @@ It’s been a busy six months for the Nike Air Max Dn.Introduced as the American
 
 ## Livvy Dunne
 
-## [Products to Prove the Camo Print's Comeback Was Hiding in Plain Sight](https://www.highsnobiety.com/p/camo-print-comeback/)
+## [HOKA's Techy Sneaker Is Gloriously Bold](https://www.highsnobiety.com/p/hoka-japan-mafate-speed-2/)
 
-After reporting on a camo print comeback no one seemed to notice – ba-dum-tss – we figured it was only fair we did the follow-up work of retrieving some  of th…
+Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, and techy fabrics are all great, however, they’re not what make the shoe arguably …
 
-*Published on: Mon, 29 Jul 2024 14:26:52 GMT*
+*Published on: Tue, 30 Jul 2024 13:29:04 GMT*
 
 
 ## Livvy Dunne
@@ -2474,13 +2681,22 @@ Known as the gems of the ocean, pearls stand for purity and wisdom, and are the 
 *Published on: Mon, 29 Jul 2024 12:00:00 GMT*
 
 
-## Ali Wong
+## Livvy Dunne
 
 ## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
 
 *Published on: Mon, 29 Jul 2024 15:11:18 GMT*
+
+
+## Livvy Dunne
+
+## [Products to Prove the Camo Print's Comeback Was Hiding in Plain Sight](https://www.highsnobiety.com/p/camo-print-comeback/)
+
+After reporting on a camo print comeback no one seemed to notice – ba-dum-tss – we figured it was only fair we did the follow-up work of retrieving some  of th…
+
+*Published on: Mon, 29 Jul 2024 14:26:52 GMT*
 
 
 ## Ali Wong
@@ -2557,6 +2773,33 @@ It’s been a busy six months for the Nike Air Max Dn.Introduced as the American
 
 ## Ali Wong
 
+## [HOKA's Techy Sneaker Is Gloriously Bold](https://www.highsnobiety.com/p/hoka-japan-mafate-speed-2/)
+
+Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, and techy fabrics are all great, however, they’re not what make the shoe arguably …
+
+*Published on: Tue, 30 Jul 2024 13:29:04 GMT*
+
+
+## Ali Wong
+
+## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
+
+Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
+
+*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
+
+
+## Ali Wong
+
+## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
+
+AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
+
+*Published on: Mon, 29 Jul 2024 15:11:18 GMT*
+
+
+## Ali Wong
+
 ## [Products to Prove the Camo Print's Comeback Was Hiding in Plain Sight](https://www.highsnobiety.com/p/camo-print-comeback/)
 
 After reporting on a camo print comeback no one seemed to notice – ba-dum-tss – we figured it was only fair we did the follow-up work of retrieving some  of th…
@@ -2564,7 +2807,88 @@ After reporting on a camo print comeback no one seemed to notice – ba-dum-tss 
 *Published on: Mon, 29 Jul 2024 14:26:52 GMT*
 
 
-## Ali Wong
+## Lizzo
+
+## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
+
+PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
+
+*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
+
+
+## Lizzo
+
+## [New Balance's "Dunks" Went Back to Basics  Still Look Good ](https://www.highsnobiety.com/p/new-balance-numeric-480-sneakers-2024/)
+
+Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes do no wrong. The 480 "Dunks" get better, actually.After enjoying some of the mos…
+
+*Published on: Mon, 29 Jul 2024 21:21:00 GMT*
+
+
+## Lizzo
+
+## [Remember Patta  Nike’s Air Max Grail? Well, It's Back!](https://www.highsnobiety.com/p/patta-nike-air-max-1-chlorophyll-release-date-2024/)
+
+In 2009, Patta had an important anniversary to celebrate and it did so by releasing a Nike Air Max 1 collaboration that has become a grail.The Air Max 1 ‘Chlor…
+
+*Published on: Tue, 30 Jul 2024 08:15:43 GMT*
+
+
+## Lizzo
+
+## [New Balance's Techy Loafer Hybrid (Finally) Steps In ](https://www.highsnobiety.com/p/new-balance-loafer-where-to-buy/)
+
+Since New Balance's 1906 loafer stepped on the runway earlier this year, it has left the sneaker community — post-sneaker advocates, too — perplexed and intrig…
+
+*Published on: Tue, 30 Jul 2024 09:00:00 GMT*
+
+
+## Lizzo
+
+## [The Beauty of Olympics Skateboarding's Non-Uniforms](https://www.highsnobiety.com/p/olympics-skateboarding-outfits-2024/)
+
+Most athletes performing at Olympic games dress identically. Disparity occasionally goes beyond nationalistic color palettes, like how track runners wear short…
+
+*Published on: Tue, 30 Jul 2024 09:30:28 GMT*
+
+
+## Lizzo
+
+## [The (Nike) Force Is Strong With NIGO's Sneakers](https://www.highsnobiety.com/p/nigo-victor-victor-nike-air-force-1-sneakers-2024/)
+
+NIGO has the sneaker world on its toes, patiently waiting for his long-awaited Nike collaboration . For months, the fashion icon has casually offered spoonfuls…
+
+*Published on: Tue, 30 Jul 2024 09:34:32 GMT*
+
+
+## Lizzo
+
+## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
+
+The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
+
+*Published on: Tue, 30 Jul 2024 10:05:34 GMT*
+
+
+## Lizzo
+
+## [Nike’s Techy New Air Max Gets Into the Olympic Spirit](https://www.highsnobiety.com/p/nike-air-max-dn-usa-olympics/)
+
+It’s been a busy six months for the Nike Air Max Dn.Introduced as the American sportswear giant’s techy new sneaker, the future of its iconic Air Max range, th…
+
+*Published on: Tue, 30 Jul 2024 11:13:24 GMT*
+
+
+## Lizzo
+
+## [HOKA's Techy Sneaker Is Gloriously Bold](https://www.highsnobiety.com/p/hoka-japan-mafate-speed-2/)
+
+Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, and techy fabrics are all great, however, they’re not what make the shoe arguably …
+
+*Published on: Tue, 30 Jul 2024 13:29:04 GMT*
+
+
+## Lizzo
 
 ## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
 
@@ -2584,101 +2908,11 @@ AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end pro
 
 ## Lizzo
 
-## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
-
-PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
-
-*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
-
-
-## Lizzo
-
-## [New Balance's "Dunks" Went Back to Basics  Still Look Good ](https://www.highsnobiety.com/p/new-balance-numeric-480-sneakers-2024/)
-
-Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes do no wrong. The 480 "Dunks" get better, actually.After enjoying some of the mos…
-
-*Published on: Mon, 29 Jul 2024 21:21:00 GMT*
-
-
-## Lizzo
-
-## [Remember Patta  Nike’s Air Max Grail? Well, It's Back!](https://www.highsnobiety.com/p/patta-nike-air-max-1-chlorophyll-release-date-2024/)
-
-In 2009, Patta had an important anniversary to celebrate and it did so by releasing a Nike Air Max 1 collaboration that has become a grail.The Air Max 1 ‘Chlor…
-
-*Published on: Tue, 30 Jul 2024 08:15:43 GMT*
-
-
-## Lizzo
-
-## [New Balance's Techy Loafer Hybrid (Finally) Steps In ](https://www.highsnobiety.com/p/new-balance-loafer-where-to-buy/)
-
-Since New Balance's 1906 loafer stepped on the runway earlier this year, it has left the sneaker community — post-sneaker advocates, too — perplexed and intrig…
-
-*Published on: Tue, 30 Jul 2024 09:00:00 GMT*
-
-
-## Lizzo
-
-## [The Beauty of Olympics Skateboarding's Non-Uniforms](https://www.highsnobiety.com/p/olympics-skateboarding-outfits-2024/)
-
-Most athletes performing at Olympic games dress identically. Disparity occasionally goes beyond nationalistic color palettes, like how track runners wear short…
-
-*Published on: Tue, 30 Jul 2024 09:30:28 GMT*
-
-
-## Lizzo
-
-## [The (Nike) Force Is Strong With NIGO's Sneakers](https://www.highsnobiety.com/p/nigo-victor-victor-nike-air-force-1-sneakers-2024/)
-
-NIGO has the sneaker world on its toes, patiently waiting for his long-awaited Nike collaboration . For months, the fashion icon has casually offered spoonfuls…
-
-*Published on: Tue, 30 Jul 2024 09:34:32 GMT*
-
-
-## Lizzo
-
-## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
-
-The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
-
-*Published on: Tue, 30 Jul 2024 10:05:34 GMT*
-
-
-## Lizzo
-
-## [Nike’s Techy New Air Max Gets Into the Olympic Spirit](https://www.highsnobiety.com/p/nike-air-max-dn-usa-olympics/)
-
-It’s been a busy six months for the Nike Air Max Dn.Introduced as the American sportswear giant’s techy new sneaker, the future of its iconic Air Max range, th…
-
-*Published on: Tue, 30 Jul 2024 11:13:24 GMT*
-
-
-## Lizzo
-
 ## [Products to Prove the Camo Print's Comeback Was Hiding in Plain Sight](https://www.highsnobiety.com/p/camo-print-comeback/)
 
 After reporting on a camo print comeback no one seemed to notice – ba-dum-tss – we figured it was only fair we did the follow-up work of retrieving some  of th…
 
 *Published on: Mon, 29 Jul 2024 14:26:52 GMT*
-
-
-## Lizzo
-
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Alison Brie
-
-## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
-
-AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
-
-*Published on: Mon, 29 Jul 2024 15:11:18 GMT*
 
 
 ## Alison Brie
@@ -2755,11 +2989,11 @@ It’s been a busy six months for the Nike Air Max Dn.Introduced as the American
 
 ## Alison Brie
 
-## [Products to Prove the Camo Print's Comeback Was Hiding in Plain Sight](https://www.highsnobiety.com/p/camo-print-comeback/)
+## [HOKA's Techy Sneaker Is Gloriously Bold](https://www.highsnobiety.com/p/hoka-japan-mafate-speed-2/)
 
-After reporting on a camo print comeback no one seemed to notice – ba-dum-tss – we figured it was only fair we did the follow-up work of retrieving some  of th…
+Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, and techy fabrics are all great, however, they’re not what make the shoe arguably …
 
-*Published on: Mon, 29 Jul 2024 14:26:52 GMT*
+*Published on: Tue, 30 Jul 2024 13:29:04 GMT*
 
 
 ## Alison Brie
@@ -2771,13 +3005,22 @@ Known as the gems of the ocean, pearls stand for purity and wisdom, and are the 
 *Published on: Mon, 29 Jul 2024 12:00:00 GMT*
 
 
-## Lil Wayne
+## Alison Brie
 
 ## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
 
 *Published on: Mon, 29 Jul 2024 15:11:18 GMT*
+
+
+## Alison Brie
+
+## [Products to Prove the Camo Print's Comeback Was Hiding in Plain Sight](https://www.highsnobiety.com/p/camo-print-comeback/)
+
+After reporting on a camo print comeback no one seemed to notice – ba-dum-tss – we figured it was only fair we did the follow-up work of retrieving some  of th…
+
+*Published on: Mon, 29 Jul 2024 14:26:52 GMT*
 
 
 ## Lil Wayne
@@ -2854,6 +3097,33 @@ It’s been a busy six months for the Nike Air Max Dn.Introduced as the American
 
 ## Lil Wayne
 
+## [HOKA's Techy Sneaker Is Gloriously Bold](https://www.highsnobiety.com/p/hoka-japan-mafate-speed-2/)
+
+Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, and techy fabrics are all great, however, they’re not what make the shoe arguably …
+
+*Published on: Tue, 30 Jul 2024 13:29:04 GMT*
+
+
+## Lil Wayne
+
+## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
+
+Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
+
+*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
+
+
+## Lil Wayne
+
+## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
+
+AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
+
+*Published on: Mon, 29 Jul 2024 15:11:18 GMT*
+
+
+## Lil Wayne
+
 ## [Products to Prove the Camo Print's Comeback Was Hiding in Plain Sight](https://www.highsnobiety.com/p/camo-print-comeback/)
 
 After reporting on a camo print comeback no one seemed to notice – ba-dum-tss – we figured it was only fair we did the follow-up work of retrieving some  of th…
@@ -2861,7 +3131,88 @@ After reporting on a camo print comeback no one seemed to notice – ba-dum-tss 
 *Published on: Mon, 29 Jul 2024 14:26:52 GMT*
 
 
-## Lil Wayne
+## Adele
+
+## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
+
+PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
+
+*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
+
+
+## Adele
+
+## [New Balance's "Dunks" Went Back to Basics  Still Look Good ](https://www.highsnobiety.com/p/new-balance-numeric-480-sneakers-2024/)
+
+Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes do no wrong. The 480 "Dunks" get better, actually.After enjoying some of the mos…
+
+*Published on: Mon, 29 Jul 2024 21:21:00 GMT*
+
+
+## Adele
+
+## [Remember Patta  Nike’s Air Max Grail? Well, It's Back!](https://www.highsnobiety.com/p/patta-nike-air-max-1-chlorophyll-release-date-2024/)
+
+In 2009, Patta had an important anniversary to celebrate and it did so by releasing a Nike Air Max 1 collaboration that has become a grail.The Air Max 1 ‘Chlor…
+
+*Published on: Tue, 30 Jul 2024 08:15:43 GMT*
+
+
+## Adele
+
+## [New Balance's Techy Loafer Hybrid (Finally) Steps In ](https://www.highsnobiety.com/p/new-balance-loafer-where-to-buy/)
+
+Since New Balance's 1906 loafer stepped on the runway earlier this year, it has left the sneaker community — post-sneaker advocates, too — perplexed and intrig…
+
+*Published on: Tue, 30 Jul 2024 09:00:00 GMT*
+
+
+## Adele
+
+## [The Beauty of Olympics Skateboarding's Non-Uniforms](https://www.highsnobiety.com/p/olympics-skateboarding-outfits-2024/)
+
+Most athletes performing at Olympic games dress identically. Disparity occasionally goes beyond nationalistic color palettes, like how track runners wear short…
+
+*Published on: Tue, 30 Jul 2024 09:30:28 GMT*
+
+
+## Adele
+
+## [The (Nike) Force Is Strong With NIGO's Sneakers](https://www.highsnobiety.com/p/nigo-victor-victor-nike-air-force-1-sneakers-2024/)
+
+NIGO has the sneaker world on its toes, patiently waiting for his long-awaited Nike collaboration . For months, the fashion icon has casually offered spoonfuls…
+
+*Published on: Tue, 30 Jul 2024 09:34:32 GMT*
+
+
+## Adele
+
+## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
+
+The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
+
+*Published on: Tue, 30 Jul 2024 10:05:34 GMT*
+
+
+## Adele
+
+## [Nike’s Techy New Air Max Gets Into the Olympic Spirit](https://www.highsnobiety.com/p/nike-air-max-dn-usa-olympics/)
+
+It’s been a busy six months for the Nike Air Max Dn.Introduced as the American sportswear giant’s techy new sneaker, the future of its iconic Air Max range, th…
+
+*Published on: Tue, 30 Jul 2024 11:13:24 GMT*
+
+
+## Adele
+
+## [HOKA's Techy Sneaker Is Gloriously Bold](https://www.highsnobiety.com/p/hoka-japan-mafate-speed-2/)
+
+Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, and techy fabrics are all great, however, they’re not what make the shoe arguably …
+
+*Published on: Tue, 30 Jul 2024 13:29:04 GMT*
+
+
+## Adele
 
 ## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
 
@@ -2881,101 +3232,11 @@ AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end pro
 
 ## Adele
 
-## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
-
-PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
-
-*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
-
-
-## Adele
-
-## [New Balance's "Dunks" Went Back to Basics  Still Look Good ](https://www.highsnobiety.com/p/new-balance-numeric-480-sneakers-2024/)
-
-Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes do no wrong. The 480 "Dunks" get better, actually.After enjoying some of the mos…
-
-*Published on: Mon, 29 Jul 2024 21:21:00 GMT*
-
-
-## Adele
-
-## [Remember Patta  Nike’s Air Max Grail? Well, It's Back!](https://www.highsnobiety.com/p/patta-nike-air-max-1-chlorophyll-release-date-2024/)
-
-In 2009, Patta had an important anniversary to celebrate and it did so by releasing a Nike Air Max 1 collaboration that has become a grail.The Air Max 1 ‘Chlor…
-
-*Published on: Tue, 30 Jul 2024 08:15:43 GMT*
-
-
-## Adele
-
-## [New Balance's Techy Loafer Hybrid (Finally) Steps In ](https://www.highsnobiety.com/p/new-balance-loafer-where-to-buy/)
-
-Since New Balance's 1906 loafer stepped on the runway earlier this year, it has left the sneaker community — post-sneaker advocates, too — perplexed and intrig…
-
-*Published on: Tue, 30 Jul 2024 09:00:00 GMT*
-
-
-## Adele
-
-## [The Beauty of Olympics Skateboarding's Non-Uniforms](https://www.highsnobiety.com/p/olympics-skateboarding-outfits-2024/)
-
-Most athletes performing at Olympic games dress identically. Disparity occasionally goes beyond nationalistic color palettes, like how track runners wear short…
-
-*Published on: Tue, 30 Jul 2024 09:30:28 GMT*
-
-
-## Adele
-
-## [The (Nike) Force Is Strong With NIGO's Sneakers](https://www.highsnobiety.com/p/nigo-victor-victor-nike-air-force-1-sneakers-2024/)
-
-NIGO has the sneaker world on its toes, patiently waiting for his long-awaited Nike collaboration . For months, the fashion icon has casually offered spoonfuls…
-
-*Published on: Tue, 30 Jul 2024 09:34:32 GMT*
-
-
-## Adele
-
-## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
-
-The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
-
-*Published on: Tue, 30 Jul 2024 10:05:34 GMT*
-
-
-## Adele
-
-## [Nike’s Techy New Air Max Gets Into the Olympic Spirit](https://www.highsnobiety.com/p/nike-air-max-dn-usa-olympics/)
-
-It’s been a busy six months for the Nike Air Max Dn.Introduced as the American sportswear giant’s techy new sneaker, the future of its iconic Air Max range, th…
-
-*Published on: Tue, 30 Jul 2024 11:13:24 GMT*
-
-
-## Adele
-
 ## [Products to Prove the Camo Print's Comeback Was Hiding in Plain Sight](https://www.highsnobiety.com/p/camo-print-comeback/)
 
 After reporting on a camo print comeback no one seemed to notice – ba-dum-tss – we figured it was only fair we did the follow-up work of retrieving some  of th…
 
 *Published on: Mon, 29 Jul 2024 14:26:52 GMT*
-
-
-## Adele
-
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Lindsay Lohan
-
-## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
-
-AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
-
-*Published on: Mon, 29 Jul 2024 15:11:18 GMT*
 
 
 ## Lindsay Lohan
@@ -3052,11 +3313,11 @@ It’s been a busy six months for the Nike Air Max Dn.Introduced as the American
 
 ## Lindsay Lohan
 
-## [Products to Prove the Camo Print's Comeback Was Hiding in Plain Sight](https://www.highsnobiety.com/p/camo-print-comeback/)
+## [HOKA's Techy Sneaker Is Gloriously Bold](https://www.highsnobiety.com/p/hoka-japan-mafate-speed-2/)
 
-After reporting on a camo print comeback no one seemed to notice – ba-dum-tss – we figured it was only fair we did the follow-up work of retrieving some  of th…
+Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, and techy fabrics are all great, however, they’re not what make the shoe arguably …
 
-*Published on: Mon, 29 Jul 2024 14:26:52 GMT*
+*Published on: Tue, 30 Jul 2024 13:29:04 GMT*
 
 
 ## Lindsay Lohan
@@ -3068,13 +3329,22 @@ Known as the gems of the ocean, pearls stand for purity and wisdom, and are the 
 *Published on: Mon, 29 Jul 2024 12:00:00 GMT*
 
 
-## Addison Rae
+## Lindsay Lohan
 
 ## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
 
 *Published on: Mon, 29 Jul 2024 15:11:18 GMT*
+
+
+## Lindsay Lohan
+
+## [Products to Prove the Camo Print's Comeback Was Hiding in Plain Sight](https://www.highsnobiety.com/p/camo-print-comeback/)
+
+After reporting on a camo print comeback no one seemed to notice – ba-dum-tss – we figured it was only fair we did the follow-up work of retrieving some  of th…
+
+*Published on: Mon, 29 Jul 2024 14:26:52 GMT*
 
 
 ## Addison Rae
@@ -3151,6 +3421,33 @@ It’s been a busy six months for the Nike Air Max Dn.Introduced as the American
 
 ## Addison Rae
 
+## [HOKA's Techy Sneaker Is Gloriously Bold](https://www.highsnobiety.com/p/hoka-japan-mafate-speed-2/)
+
+Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, and techy fabrics are all great, however, they’re not what make the shoe arguably …
+
+*Published on: Tue, 30 Jul 2024 13:29:04 GMT*
+
+
+## Addison Rae
+
+## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
+
+Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
+
+*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
+
+
+## Addison Rae
+
+## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
+
+AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
+
+*Published on: Mon, 29 Jul 2024 15:11:18 GMT*
+
+
+## Addison Rae
+
 ## [Products to Prove the Camo Print's Comeback Was Hiding in Plain Sight](https://www.highsnobiety.com/p/camo-print-comeback/)
 
 After reporting on a camo print comeback no one seemed to notice – ba-dum-tss – we figured it was only fair we did the follow-up work of retrieving some  of th…
@@ -3158,7 +3455,88 @@ After reporting on a camo print comeback no one seemed to notice – ba-dum-tss 
 *Published on: Mon, 29 Jul 2024 14:26:52 GMT*
 
 
-## Addison Rae
+## Latto
+
+## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
+
+PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
+
+*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
+
+
+## Latto
+
+## [New Balance's "Dunks" Went Back to Basics  Still Look Good ](https://www.highsnobiety.com/p/new-balance-numeric-480-sneakers-2024/)
+
+Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes do no wrong. The 480 "Dunks" get better, actually.After enjoying some of the mos…
+
+*Published on: Mon, 29 Jul 2024 21:21:00 GMT*
+
+
+## Latto
+
+## [Remember Patta  Nike’s Air Max Grail? Well, It's Back!](https://www.highsnobiety.com/p/patta-nike-air-max-1-chlorophyll-release-date-2024/)
+
+In 2009, Patta had an important anniversary to celebrate and it did so by releasing a Nike Air Max 1 collaboration that has become a grail.The Air Max 1 ‘Chlor…
+
+*Published on: Tue, 30 Jul 2024 08:15:43 GMT*
+
+
+## Latto
+
+## [New Balance's Techy Loafer Hybrid (Finally) Steps In ](https://www.highsnobiety.com/p/new-balance-loafer-where-to-buy/)
+
+Since New Balance's 1906 loafer stepped on the runway earlier this year, it has left the sneaker community — post-sneaker advocates, too — perplexed and intrig…
+
+*Published on: Tue, 30 Jul 2024 09:00:00 GMT*
+
+
+## Latto
+
+## [The Beauty of Olympics Skateboarding's Non-Uniforms](https://www.highsnobiety.com/p/olympics-skateboarding-outfits-2024/)
+
+Most athletes performing at Olympic games dress identically. Disparity occasionally goes beyond nationalistic color palettes, like how track runners wear short…
+
+*Published on: Tue, 30 Jul 2024 09:30:28 GMT*
+
+
+## Latto
+
+## [The (Nike) Force Is Strong With NIGO's Sneakers](https://www.highsnobiety.com/p/nigo-victor-victor-nike-air-force-1-sneakers-2024/)
+
+NIGO has the sneaker world on its toes, patiently waiting for his long-awaited Nike collaboration . For months, the fashion icon has casually offered spoonfuls…
+
+*Published on: Tue, 30 Jul 2024 09:34:32 GMT*
+
+
+## Latto
+
+## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
+
+The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
+
+*Published on: Tue, 30 Jul 2024 10:05:34 GMT*
+
+
+## Latto
+
+## [Nike’s Techy New Air Max Gets Into the Olympic Spirit](https://www.highsnobiety.com/p/nike-air-max-dn-usa-olympics/)
+
+It’s been a busy six months for the Nike Air Max Dn.Introduced as the American sportswear giant’s techy new sneaker, the future of its iconic Air Max range, th…
+
+*Published on: Tue, 30 Jul 2024 11:13:24 GMT*
+
+
+## Latto
+
+## [HOKA's Techy Sneaker Is Gloriously Bold](https://www.highsnobiety.com/p/hoka-japan-mafate-speed-2/)
+
+Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, and techy fabrics are all great, however, they’re not what make the shoe arguably …
+
+*Published on: Tue, 30 Jul 2024 13:29:04 GMT*
+
+
+## Latto
 
 ## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
 
@@ -3178,101 +3556,11 @@ AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end pro
 
 ## Latto
 
-## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
-
-PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
-
-*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
-
-
-## Latto
-
-## [New Balance's "Dunks" Went Back to Basics  Still Look Good ](https://www.highsnobiety.com/p/new-balance-numeric-480-sneakers-2024/)
-
-Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes do no wrong. The 480 "Dunks" get better, actually.After enjoying some of the mos…
-
-*Published on: Mon, 29 Jul 2024 21:21:00 GMT*
-
-
-## Latto
-
-## [Remember Patta  Nike’s Air Max Grail? Well, It's Back!](https://www.highsnobiety.com/p/patta-nike-air-max-1-chlorophyll-release-date-2024/)
-
-In 2009, Patta had an important anniversary to celebrate and it did so by releasing a Nike Air Max 1 collaboration that has become a grail.The Air Max 1 ‘Chlor…
-
-*Published on: Tue, 30 Jul 2024 08:15:43 GMT*
-
-
-## Latto
-
-## [New Balance's Techy Loafer Hybrid (Finally) Steps In ](https://www.highsnobiety.com/p/new-balance-loafer-where-to-buy/)
-
-Since New Balance's 1906 loafer stepped on the runway earlier this year, it has left the sneaker community — post-sneaker advocates, too — perplexed and intrig…
-
-*Published on: Tue, 30 Jul 2024 09:00:00 GMT*
-
-
-## Latto
-
-## [The Beauty of Olympics Skateboarding's Non-Uniforms](https://www.highsnobiety.com/p/olympics-skateboarding-outfits-2024/)
-
-Most athletes performing at Olympic games dress identically. Disparity occasionally goes beyond nationalistic color palettes, like how track runners wear short…
-
-*Published on: Tue, 30 Jul 2024 09:30:28 GMT*
-
-
-## Latto
-
-## [The (Nike) Force Is Strong With NIGO's Sneakers](https://www.highsnobiety.com/p/nigo-victor-victor-nike-air-force-1-sneakers-2024/)
-
-NIGO has the sneaker world on its toes, patiently waiting for his long-awaited Nike collaboration . For months, the fashion icon has casually offered spoonfuls…
-
-*Published on: Tue, 30 Jul 2024 09:34:32 GMT*
-
-
-## Latto
-
-## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
-
-The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
-
-*Published on: Tue, 30 Jul 2024 10:05:34 GMT*
-
-
-## Latto
-
-## [Nike’s Techy New Air Max Gets Into the Olympic Spirit](https://www.highsnobiety.com/p/nike-air-max-dn-usa-olympics/)
-
-It’s been a busy six months for the Nike Air Max Dn.Introduced as the American sportswear giant’s techy new sneaker, the future of its iconic Air Max range, th…
-
-*Published on: Tue, 30 Jul 2024 11:13:24 GMT*
-
-
-## Latto
-
 ## [Products to Prove the Camo Print's Comeback Was Hiding in Plain Sight](https://www.highsnobiety.com/p/camo-print-comeback/)
 
 After reporting on a camo print comeback no one seemed to notice – ba-dum-tss – we figured it was only fair we did the follow-up work of retrieving some  of th…
 
 *Published on: Mon, 29 Jul 2024 14:26:52 GMT*
-
-
-## Latto
-
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Aaron Paul
-
-## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
-
-AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
-
-*Published on: Mon, 29 Jul 2024 15:11:18 GMT*
 
 
 ## Aaron Paul
@@ -3349,11 +3637,11 @@ It’s been a busy six months for the Nike Air Max Dn.Introduced as the American
 
 ## Aaron Paul
 
-## [Products to Prove the Camo Print's Comeback Was Hiding in Plain Sight](https://www.highsnobiety.com/p/camo-print-comeback/)
+## [HOKA's Techy Sneaker Is Gloriously Bold](https://www.highsnobiety.com/p/hoka-japan-mafate-speed-2/)
 
-After reporting on a camo print comeback no one seemed to notice – ba-dum-tss – we figured it was only fair we did the follow-up work of retrieving some  of th…
+Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, and techy fabrics are all great, however, they’re not what make the shoe arguably …
 
-*Published on: Mon, 29 Jul 2024 14:26:52 GMT*
+*Published on: Tue, 30 Jul 2024 13:29:04 GMT*
 
 
 ## Aaron Paul
@@ -3365,13 +3653,22 @@ Known as the gems of the ocean, pearls stand for purity and wisdom, and are the 
 *Published on: Mon, 29 Jul 2024 12:00:00 GMT*
 
 
-## LeBron James
+## Aaron Paul
 
 ## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
 
 *Published on: Mon, 29 Jul 2024 15:11:18 GMT*
+
+
+## Aaron Paul
+
+## [Products to Prove the Camo Print's Comeback Was Hiding in Plain Sight](https://www.highsnobiety.com/p/camo-print-comeback/)
+
+After reporting on a camo print comeback no one seemed to notice – ba-dum-tss – we figured it was only fair we did the follow-up work of retrieving some  of th…
+
+*Published on: Mon, 29 Jul 2024 14:26:52 GMT*
 
 
 ## LeBron James
@@ -3448,6 +3745,33 @@ It’s been a busy six months for the Nike Air Max Dn.Introduced as the American
 
 ## LeBron James
 
+## [HOKA's Techy Sneaker Is Gloriously Bold](https://www.highsnobiety.com/p/hoka-japan-mafate-speed-2/)
+
+Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, and techy fabrics are all great, however, they’re not what make the shoe arguably …
+
+*Published on: Tue, 30 Jul 2024 13:29:04 GMT*
+
+
+## LeBron James
+
+## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
+
+Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
+
+*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
+
+
+## LeBron James
+
+## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
+
+AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
+
+*Published on: Mon, 29 Jul 2024 15:11:18 GMT*
+
+
+## LeBron James
+
 ## [Products to Prove the Camo Print's Comeback Was Hiding in Plain Sight](https://www.highsnobiety.com/p/camo-print-comeback/)
 
 After reporting on a camo print comeback no one seemed to notice – ba-dum-tss – we figured it was only fair we did the follow-up work of retrieving some  of th…
@@ -3455,7 +3779,88 @@ After reporting on a camo print comeback no one seemed to notice – ba-dum-tss 
 *Published on: Mon, 29 Jul 2024 14:26:52 GMT*
 
 
-## LeBron James
+## 50 Cent
+
+## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
+
+PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
+
+*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
+
+
+## 50 Cent
+
+## [New Balance's "Dunks" Went Back to Basics  Still Look Good ](https://www.highsnobiety.com/p/new-balance-numeric-480-sneakers-2024/)
+
+Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes do no wrong. The 480 "Dunks" get better, actually.After enjoying some of the mos…
+
+*Published on: Mon, 29 Jul 2024 21:21:00 GMT*
+
+
+## 50 Cent
+
+## [Remember Patta  Nike’s Air Max Grail? Well, It's Back!](https://www.highsnobiety.com/p/patta-nike-air-max-1-chlorophyll-release-date-2024/)
+
+In 2009, Patta had an important anniversary to celebrate and it did so by releasing a Nike Air Max 1 collaboration that has become a grail.The Air Max 1 ‘Chlor…
+
+*Published on: Tue, 30 Jul 2024 08:15:43 GMT*
+
+
+## 50 Cent
+
+## [New Balance's Techy Loafer Hybrid (Finally) Steps In ](https://www.highsnobiety.com/p/new-balance-loafer-where-to-buy/)
+
+Since New Balance's 1906 loafer stepped on the runway earlier this year, it has left the sneaker community — post-sneaker advocates, too — perplexed and intrig…
+
+*Published on: Tue, 30 Jul 2024 09:00:00 GMT*
+
+
+## 50 Cent
+
+## [The Beauty of Olympics Skateboarding's Non-Uniforms](https://www.highsnobiety.com/p/olympics-skateboarding-outfits-2024/)
+
+Most athletes performing at Olympic games dress identically. Disparity occasionally goes beyond nationalistic color palettes, like how track runners wear short…
+
+*Published on: Tue, 30 Jul 2024 09:30:28 GMT*
+
+
+## 50 Cent
+
+## [The (Nike) Force Is Strong With NIGO's Sneakers](https://www.highsnobiety.com/p/nigo-victor-victor-nike-air-force-1-sneakers-2024/)
+
+NIGO has the sneaker world on its toes, patiently waiting for his long-awaited Nike collaboration . For months, the fashion icon has casually offered spoonfuls…
+
+*Published on: Tue, 30 Jul 2024 09:34:32 GMT*
+
+
+## 50 Cent
+
+## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
+
+The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
+
+*Published on: Tue, 30 Jul 2024 10:05:34 GMT*
+
+
+## 50 Cent
+
+## [Nike’s Techy New Air Max Gets Into the Olympic Spirit](https://www.highsnobiety.com/p/nike-air-max-dn-usa-olympics/)
+
+It’s been a busy six months for the Nike Air Max Dn.Introduced as the American sportswear giant’s techy new sneaker, the future of its iconic Air Max range, th…
+
+*Published on: Tue, 30 Jul 2024 11:13:24 GMT*
+
+
+## 50 Cent
+
+## [HOKA's Techy Sneaker Is Gloriously Bold](https://www.highsnobiety.com/p/hoka-japan-mafate-speed-2/)
+
+Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, and techy fabrics are all great, however, they’re not what make the shoe arguably …
+
+*Published on: Tue, 30 Jul 2024 13:29:04 GMT*
+
+
+## 50 Cent
 
 ## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
 
@@ -3475,101 +3880,11 @@ AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end pro
 
 ## 50 Cent
 
-## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
-
-PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
-
-*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
-
-
-## 50 Cent
-
-## [New Balance's "Dunks" Went Back to Basics  Still Look Good ](https://www.highsnobiety.com/p/new-balance-numeric-480-sneakers-2024/)
-
-Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes do no wrong. The 480 "Dunks" get better, actually.After enjoying some of the mos…
-
-*Published on: Mon, 29 Jul 2024 21:21:00 GMT*
-
-
-## 50 Cent
-
-## [Remember Patta  Nike’s Air Max Grail? Well, It's Back!](https://www.highsnobiety.com/p/patta-nike-air-max-1-chlorophyll-release-date-2024/)
-
-In 2009, Patta had an important anniversary to celebrate and it did so by releasing a Nike Air Max 1 collaboration that has become a grail.The Air Max 1 ‘Chlor…
-
-*Published on: Tue, 30 Jul 2024 08:15:43 GMT*
-
-
-## 50 Cent
-
-## [New Balance's Techy Loafer Hybrid (Finally) Steps In ](https://www.highsnobiety.com/p/new-balance-loafer-where-to-buy/)
-
-Since New Balance's 1906 loafer stepped on the runway earlier this year, it has left the sneaker community — post-sneaker advocates, too — perplexed and intrig…
-
-*Published on: Tue, 30 Jul 2024 09:00:00 GMT*
-
-
-## 50 Cent
-
-## [The Beauty of Olympics Skateboarding's Non-Uniforms](https://www.highsnobiety.com/p/olympics-skateboarding-outfits-2024/)
-
-Most athletes performing at Olympic games dress identically. Disparity occasionally goes beyond nationalistic color palettes, like how track runners wear short…
-
-*Published on: Tue, 30 Jul 2024 09:30:28 GMT*
-
-
-## 50 Cent
-
-## [The (Nike) Force Is Strong With NIGO's Sneakers](https://www.highsnobiety.com/p/nigo-victor-victor-nike-air-force-1-sneakers-2024/)
-
-NIGO has the sneaker world on its toes, patiently waiting for his long-awaited Nike collaboration . For months, the fashion icon has casually offered spoonfuls…
-
-*Published on: Tue, 30 Jul 2024 09:34:32 GMT*
-
-
-## 50 Cent
-
-## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
-
-The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
-
-*Published on: Tue, 30 Jul 2024 10:05:34 GMT*
-
-
-## 50 Cent
-
-## [Nike’s Techy New Air Max Gets Into the Olympic Spirit](https://www.highsnobiety.com/p/nike-air-max-dn-usa-olympics/)
-
-It’s been a busy six months for the Nike Air Max Dn.Introduced as the American sportswear giant’s techy new sneaker, the future of its iconic Air Max range, th…
-
-*Published on: Tue, 30 Jul 2024 11:13:24 GMT*
-
-
-## 50 Cent
-
 ## [Products to Prove the Camo Print's Comeback Was Hiding in Plain Sight](https://www.highsnobiety.com/p/camo-print-comeback/)
 
 After reporting on a camo print comeback no one seemed to notice – ba-dum-tss – we figured it was only fair we did the follow-up work of retrieving some  of th…
 
 *Published on: Mon, 29 Jul 2024 14:26:52 GMT*
-
-
-## 50 Cent
-
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Kesha
-
-## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
-
-AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
-
-*Published on: Mon, 29 Jul 2024 15:11:18 GMT*
 
 
 ## Kesha
@@ -3646,11 +3961,11 @@ It’s been a busy six months for the Nike Air Max Dn.Introduced as the American
 
 ## Kesha
 
-## [Products to Prove the Camo Print's Comeback Was Hiding in Plain Sight](https://www.highsnobiety.com/p/camo-print-comeback/)
+## [HOKA's Techy Sneaker Is Gloriously Bold](https://www.highsnobiety.com/p/hoka-japan-mafate-speed-2/)
 
-After reporting on a camo print comeback no one seemed to notice – ba-dum-tss – we figured it was only fair we did the follow-up work of retrieving some  of th…
+Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, and techy fabrics are all great, however, they’re not what make the shoe arguably …
 
-*Published on: Mon, 29 Jul 2024 14:26:52 GMT*
+*Published on: Tue, 30 Jul 2024 13:29:04 GMT*
 
 
 ## Kesha
@@ -3662,13 +3977,22 @@ Known as the gems of the ocean, pearls stand for purity and wisdom, and are the 
 *Published on: Mon, 29 Jul 2024 12:00:00 GMT*
 
 
-## 21 Savage
+## Kesha
 
 ## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
 
 *Published on: Mon, 29 Jul 2024 15:11:18 GMT*
+
+
+## Kesha
+
+## [Products to Prove the Camo Print's Comeback Was Hiding in Plain Sight](https://www.highsnobiety.com/p/camo-print-comeback/)
+
+After reporting on a camo print comeback no one seemed to notice – ba-dum-tss – we figured it was only fair we did the follow-up work of retrieving some  of th…
+
+*Published on: Mon, 29 Jul 2024 14:26:52 GMT*
 
 
 ## 21 Savage
@@ -3745,6 +4069,33 @@ It’s been a busy six months for the Nike Air Max Dn.Introduced as the American
 
 ## 21 Savage
 
+## [HOKA's Techy Sneaker Is Gloriously Bold](https://www.highsnobiety.com/p/hoka-japan-mafate-speed-2/)
+
+Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, and techy fabrics are all great, however, they’re not what make the shoe arguably …
+
+*Published on: Tue, 30 Jul 2024 13:29:04 GMT*
+
+
+## 21 Savage
+
+## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
+
+Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
+
+*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
+
+
+## 21 Savage
+
+## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
+
+AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
+
+*Published on: Mon, 29 Jul 2024 15:11:18 GMT*
+
+
+## 21 Savage
+
 ## [Products to Prove the Camo Print's Comeback Was Hiding in Plain Sight](https://www.highsnobiety.com/p/camo-print-comeback/)
 
 After reporting on a camo print comeback no one seemed to notice – ba-dum-tss – we figured it was only fair we did the follow-up work of retrieving some  of th…
@@ -3752,7 +4103,88 @@ After reporting on a camo print comeback no one seemed to notice – ba-dum-tss 
 *Published on: Mon, 29 Jul 2024 14:26:52 GMT*
 
 
-## 21 Savage
+## Larry David
+
+## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
+
+PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
+
+*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
+
+
+## Larry David
+
+## [New Balance's "Dunks" Went Back to Basics  Still Look Good ](https://www.highsnobiety.com/p/new-balance-numeric-480-sneakers-2024/)
+
+Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes do no wrong. The 480 "Dunks" get better, actually.After enjoying some of the mos…
+
+*Published on: Mon, 29 Jul 2024 21:21:00 GMT*
+
+
+## Larry David
+
+## [Remember Patta  Nike’s Air Max Grail? Well, It's Back!](https://www.highsnobiety.com/p/patta-nike-air-max-1-chlorophyll-release-date-2024/)
+
+In 2009, Patta had an important anniversary to celebrate and it did so by releasing a Nike Air Max 1 collaboration that has become a grail.The Air Max 1 ‘Chlor…
+
+*Published on: Tue, 30 Jul 2024 08:15:43 GMT*
+
+
+## Larry David
+
+## [New Balance's Techy Loafer Hybrid (Finally) Steps In ](https://www.highsnobiety.com/p/new-balance-loafer-where-to-buy/)
+
+Since New Balance's 1906 loafer stepped on the runway earlier this year, it has left the sneaker community — post-sneaker advocates, too — perplexed and intrig…
+
+*Published on: Tue, 30 Jul 2024 09:00:00 GMT*
+
+
+## Larry David
+
+## [The Beauty of Olympics Skateboarding's Non-Uniforms](https://www.highsnobiety.com/p/olympics-skateboarding-outfits-2024/)
+
+Most athletes performing at Olympic games dress identically. Disparity occasionally goes beyond nationalistic color palettes, like how track runners wear short…
+
+*Published on: Tue, 30 Jul 2024 09:30:28 GMT*
+
+
+## Larry David
+
+## [The (Nike) Force Is Strong With NIGO's Sneakers](https://www.highsnobiety.com/p/nigo-victor-victor-nike-air-force-1-sneakers-2024/)
+
+NIGO has the sneaker world on its toes, patiently waiting for his long-awaited Nike collaboration . For months, the fashion icon has casually offered spoonfuls…
+
+*Published on: Tue, 30 Jul 2024 09:34:32 GMT*
+
+
+## Larry David
+
+## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
+
+The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
+
+*Published on: Tue, 30 Jul 2024 10:05:34 GMT*
+
+
+## Larry David
+
+## [Nike’s Techy New Air Max Gets Into the Olympic Spirit](https://www.highsnobiety.com/p/nike-air-max-dn-usa-olympics/)
+
+It’s been a busy six months for the Nike Air Max Dn.Introduced as the American sportswear giant’s techy new sneaker, the future of its iconic Air Max range, th…
+
+*Published on: Tue, 30 Jul 2024 11:13:24 GMT*
+
+
+## Larry David
+
+## [HOKA's Techy Sneaker Is Gloriously Bold](https://www.highsnobiety.com/p/hoka-japan-mafate-speed-2/)
+
+Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, and techy fabrics are all great, however, they’re not what make the shoe arguably …
+
+*Published on: Tue, 30 Jul 2024 13:29:04 GMT*
+
+
+## Larry David
 
 ## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
 
@@ -3772,101 +4204,11 @@ AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end pro
 
 ## Larry David
 
-## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
-
-PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
-
-*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
-
-
-## Larry David
-
-## [New Balance's "Dunks" Went Back to Basics  Still Look Good ](https://www.highsnobiety.com/p/new-balance-numeric-480-sneakers-2024/)
-
-Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes do no wrong. The 480 "Dunks" get better, actually.After enjoying some of the mos…
-
-*Published on: Mon, 29 Jul 2024 21:21:00 GMT*
-
-
-## Larry David
-
-## [Remember Patta  Nike’s Air Max Grail? Well, It's Back!](https://www.highsnobiety.com/p/patta-nike-air-max-1-chlorophyll-release-date-2024/)
-
-In 2009, Patta had an important anniversary to celebrate and it did so by releasing a Nike Air Max 1 collaboration that has become a grail.The Air Max 1 ‘Chlor…
-
-*Published on: Tue, 30 Jul 2024 08:15:43 GMT*
-
-
-## Larry David
-
-## [New Balance's Techy Loafer Hybrid (Finally) Steps In ](https://www.highsnobiety.com/p/new-balance-loafer-where-to-buy/)
-
-Since New Balance's 1906 loafer stepped on the runway earlier this year, it has left the sneaker community — post-sneaker advocates, too — perplexed and intrig…
-
-*Published on: Tue, 30 Jul 2024 09:00:00 GMT*
-
-
-## Larry David
-
-## [The Beauty of Olympics Skateboarding's Non-Uniforms](https://www.highsnobiety.com/p/olympics-skateboarding-outfits-2024/)
-
-Most athletes performing at Olympic games dress identically. Disparity occasionally goes beyond nationalistic color palettes, like how track runners wear short…
-
-*Published on: Tue, 30 Jul 2024 09:30:28 GMT*
-
-
-## Larry David
-
-## [The (Nike) Force Is Strong With NIGO's Sneakers](https://www.highsnobiety.com/p/nigo-victor-victor-nike-air-force-1-sneakers-2024/)
-
-NIGO has the sneaker world on its toes, patiently waiting for his long-awaited Nike collaboration . For months, the fashion icon has casually offered spoonfuls…
-
-*Published on: Tue, 30 Jul 2024 09:34:32 GMT*
-
-
-## Larry David
-
-## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
-
-The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
-
-*Published on: Tue, 30 Jul 2024 10:05:34 GMT*
-
-
-## Larry David
-
-## [Nike’s Techy New Air Max Gets Into the Olympic Spirit](https://www.highsnobiety.com/p/nike-air-max-dn-usa-olympics/)
-
-It’s been a busy six months for the Nike Air Max Dn.Introduced as the American sportswear giant’s techy new sneaker, the future of its iconic Air Max range, th…
-
-*Published on: Tue, 30 Jul 2024 11:13:24 GMT*
-
-
-## Larry David
-
 ## [Products to Prove the Camo Print's Comeback Was Hiding in Plain Sight](https://www.highsnobiety.com/p/camo-print-comeback/)
 
 After reporting on a camo print comeback no one seemed to notice – ba-dum-tss – we figured it was only fair we did the follow-up work of retrieving some  of th…
 
 *Published on: Mon, 29 Jul 2024 14:26:52 GMT*
-
-
-## Larry David
-
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Seth Rogan
-
-## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
-
-AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
-
-*Published on: Mon, 29 Jul 2024 15:11:18 GMT*
 
 
 ## Seth Rogan
@@ -3943,11 +4285,11 @@ It’s been a busy six months for the Nike Air Max Dn.Introduced as the American
 
 ## Seth Rogan
 
-## [Products to Prove the Camo Print's Comeback Was Hiding in Plain Sight](https://www.highsnobiety.com/p/camo-print-comeback/)
+## [HOKA's Techy Sneaker Is Gloriously Bold](https://www.highsnobiety.com/p/hoka-japan-mafate-speed-2/)
 
-After reporting on a camo print comeback no one seemed to notice – ba-dum-tss – we figured it was only fair we did the follow-up work of retrieving some  of th…
+Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, and techy fabrics are all great, however, they’re not what make the shoe arguably …
 
-*Published on: Mon, 29 Jul 2024 14:26:52 GMT*
+*Published on: Tue, 30 Jul 2024 13:29:04 GMT*
 
 
 ## Seth Rogan
@@ -3959,13 +4301,22 @@ Known as the gems of the ocean, pearls stand for purity and wisdom, and are the 
 *Published on: Mon, 29 Jul 2024 12:00:00 GMT*
 
 
-## Simone Biles
+## Seth Rogan
 
 ## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
 
 *Published on: Mon, 29 Jul 2024 15:11:18 GMT*
+
+
+## Seth Rogan
+
+## [Products to Prove the Camo Print's Comeback Was Hiding in Plain Sight](https://www.highsnobiety.com/p/camo-print-comeback/)
+
+After reporting on a camo print comeback no one seemed to notice – ba-dum-tss – we figured it was only fair we did the follow-up work of retrieving some  of th…
+
+*Published on: Mon, 29 Jul 2024 14:26:52 GMT*
 
 
 ## Simone Biles
@@ -4042,6 +4393,33 @@ It’s been a busy six months for the Nike Air Max Dn.Introduced as the American
 
 ## Simone Biles
 
+## [HOKA's Techy Sneaker Is Gloriously Bold](https://www.highsnobiety.com/p/hoka-japan-mafate-speed-2/)
+
+Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, and techy fabrics are all great, however, they’re not what make the shoe arguably …
+
+*Published on: Tue, 30 Jul 2024 13:29:04 GMT*
+
+
+## Simone Biles
+
+## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
+
+Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
+
+*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
+
+
+## Simone Biles
+
+## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
+
+AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
+
+*Published on: Mon, 29 Jul 2024 15:11:18 GMT*
+
+
+## Simone Biles
+
 ## [Products to Prove the Camo Print's Comeback Was Hiding in Plain Sight](https://www.highsnobiety.com/p/camo-print-comeback/)
 
 After reporting on a camo print comeback no one seemed to notice – ba-dum-tss – we figured it was only fair we did the follow-up work of retrieving some  of th…
@@ -4049,7 +4427,88 @@ After reporting on a camo print comeback no one seemed to notice – ba-dum-tss 
 *Published on: Mon, 29 Jul 2024 14:26:52 GMT*
 
 
-## Simone Biles
+## Pete Davidson
+
+## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
+
+PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
+
+*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
+
+
+## Pete Davidson
+
+## [New Balance's "Dunks" Went Back to Basics  Still Look Good ](https://www.highsnobiety.com/p/new-balance-numeric-480-sneakers-2024/)
+
+Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes do no wrong. The 480 "Dunks" get better, actually.After enjoying some of the mos…
+
+*Published on: Mon, 29 Jul 2024 21:21:00 GMT*
+
+
+## Pete Davidson
+
+## [Remember Patta  Nike’s Air Max Grail? Well, It's Back!](https://www.highsnobiety.com/p/patta-nike-air-max-1-chlorophyll-release-date-2024/)
+
+In 2009, Patta had an important anniversary to celebrate and it did so by releasing a Nike Air Max 1 collaboration that has become a grail.The Air Max 1 ‘Chlor…
+
+*Published on: Tue, 30 Jul 2024 08:15:43 GMT*
+
+
+## Pete Davidson
+
+## [New Balance's Techy Loafer Hybrid (Finally) Steps In ](https://www.highsnobiety.com/p/new-balance-loafer-where-to-buy/)
+
+Since New Balance's 1906 loafer stepped on the runway earlier this year, it has left the sneaker community — post-sneaker advocates, too — perplexed and intrig…
+
+*Published on: Tue, 30 Jul 2024 09:00:00 GMT*
+
+
+## Pete Davidson
+
+## [The Beauty of Olympics Skateboarding's Non-Uniforms](https://www.highsnobiety.com/p/olympics-skateboarding-outfits-2024/)
+
+Most athletes performing at Olympic games dress identically. Disparity occasionally goes beyond nationalistic color palettes, like how track runners wear short…
+
+*Published on: Tue, 30 Jul 2024 09:30:28 GMT*
+
+
+## Pete Davidson
+
+## [The (Nike) Force Is Strong With NIGO's Sneakers](https://www.highsnobiety.com/p/nigo-victor-victor-nike-air-force-1-sneakers-2024/)
+
+NIGO has the sneaker world on its toes, patiently waiting for his long-awaited Nike collaboration . For months, the fashion icon has casually offered spoonfuls…
+
+*Published on: Tue, 30 Jul 2024 09:34:32 GMT*
+
+
+## Pete Davidson
+
+## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
+
+The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
+
+*Published on: Tue, 30 Jul 2024 10:05:34 GMT*
+
+
+## Pete Davidson
+
+## [Nike’s Techy New Air Max Gets Into the Olympic Spirit](https://www.highsnobiety.com/p/nike-air-max-dn-usa-olympics/)
+
+It’s been a busy six months for the Nike Air Max Dn.Introduced as the American sportswear giant’s techy new sneaker, the future of its iconic Air Max range, th…
+
+*Published on: Tue, 30 Jul 2024 11:13:24 GMT*
+
+
+## Pete Davidson
+
+## [HOKA's Techy Sneaker Is Gloriously Bold](https://www.highsnobiety.com/p/hoka-japan-mafate-speed-2/)
+
+Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, and techy fabrics are all great, however, they’re not what make the shoe arguably …
+
+*Published on: Tue, 30 Jul 2024 13:29:04 GMT*
+
+
+## Pete Davidson
 
 ## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
 
@@ -4069,101 +4528,11 @@ AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end pro
 
 ## Pete Davidson
 
-## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
-
-PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
-
-*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
-
-
-## Pete Davidson
-
-## [New Balance's "Dunks" Went Back to Basics  Still Look Good ](https://www.highsnobiety.com/p/new-balance-numeric-480-sneakers-2024/)
-
-Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes do no wrong. The 480 "Dunks" get better, actually.After enjoying some of the mos…
-
-*Published on: Mon, 29 Jul 2024 21:21:00 GMT*
-
-
-## Pete Davidson
-
-## [Remember Patta  Nike’s Air Max Grail? Well, It's Back!](https://www.highsnobiety.com/p/patta-nike-air-max-1-chlorophyll-release-date-2024/)
-
-In 2009, Patta had an important anniversary to celebrate and it did so by releasing a Nike Air Max 1 collaboration that has become a grail.The Air Max 1 ‘Chlor…
-
-*Published on: Tue, 30 Jul 2024 08:15:43 GMT*
-
-
-## Pete Davidson
-
-## [New Balance's Techy Loafer Hybrid (Finally) Steps In ](https://www.highsnobiety.com/p/new-balance-loafer-where-to-buy/)
-
-Since New Balance's 1906 loafer stepped on the runway earlier this year, it has left the sneaker community — post-sneaker advocates, too — perplexed and intrig…
-
-*Published on: Tue, 30 Jul 2024 09:00:00 GMT*
-
-
-## Pete Davidson
-
-## [The Beauty of Olympics Skateboarding's Non-Uniforms](https://www.highsnobiety.com/p/olympics-skateboarding-outfits-2024/)
-
-Most athletes performing at Olympic games dress identically. Disparity occasionally goes beyond nationalistic color palettes, like how track runners wear short…
-
-*Published on: Tue, 30 Jul 2024 09:30:28 GMT*
-
-
-## Pete Davidson
-
-## [The (Nike) Force Is Strong With NIGO's Sneakers](https://www.highsnobiety.com/p/nigo-victor-victor-nike-air-force-1-sneakers-2024/)
-
-NIGO has the sneaker world on its toes, patiently waiting for his long-awaited Nike collaboration . For months, the fashion icon has casually offered spoonfuls…
-
-*Published on: Tue, 30 Jul 2024 09:34:32 GMT*
-
-
-## Pete Davidson
-
-## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
-
-The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
-
-*Published on: Tue, 30 Jul 2024 10:05:34 GMT*
-
-
-## Pete Davidson
-
-## [Nike’s Techy New Air Max Gets Into the Olympic Spirit](https://www.highsnobiety.com/p/nike-air-max-dn-usa-olympics/)
-
-It’s been a busy six months for the Nike Air Max Dn.Introduced as the American sportswear giant’s techy new sneaker, the future of its iconic Air Max range, th…
-
-*Published on: Tue, 30 Jul 2024 11:13:24 GMT*
-
-
-## Pete Davidson
-
 ## [Products to Prove the Camo Print's Comeback Was Hiding in Plain Sight](https://www.highsnobiety.com/p/camo-print-comeback/)
 
 After reporting on a camo print comeback no one seemed to notice – ba-dum-tss – we figured it was only fair we did the follow-up work of retrieving some  of th…
 
 *Published on: Mon, 29 Jul 2024 14:26:52 GMT*
-
-
-## Pete Davidson
-
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Prince Harry
-
-## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
-
-AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
-
-*Published on: Mon, 29 Jul 2024 15:11:18 GMT*
 
 
 ## Prince Harry
@@ -4240,11 +4609,11 @@ It’s been a busy six months for the Nike Air Max Dn.Introduced as the American
 
 ## Prince Harry
 
-## [Products to Prove the Camo Print's Comeback Was Hiding in Plain Sight](https://www.highsnobiety.com/p/camo-print-comeback/)
+## [HOKA's Techy Sneaker Is Gloriously Bold](https://www.highsnobiety.com/p/hoka-japan-mafate-speed-2/)
 
-After reporting on a camo print comeback no one seemed to notice – ba-dum-tss – we figured it was only fair we did the follow-up work of retrieving some  of th…
+Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, and techy fabrics are all great, however, they’re not what make the shoe arguably …
 
-*Published on: Mon, 29 Jul 2024 14:26:52 GMT*
+*Published on: Tue, 30 Jul 2024 13:29:04 GMT*
 
 
 ## Prince Harry
@@ -4256,13 +4625,22 @@ Known as the gems of the ocean, pearls stand for purity and wisdom, and are the 
 *Published on: Mon, 29 Jul 2024 12:00:00 GMT*
 
 
-## Princess of Wales
+## Prince Harry
 
 ## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
 
 *Published on: Mon, 29 Jul 2024 15:11:18 GMT*
+
+
+## Prince Harry
+
+## [Products to Prove the Camo Print's Comeback Was Hiding in Plain Sight](https://www.highsnobiety.com/p/camo-print-comeback/)
+
+After reporting on a camo print comeback no one seemed to notice – ba-dum-tss – we figured it was only fair we did the follow-up work of retrieving some  of th…
+
+*Published on: Mon, 29 Jul 2024 14:26:52 GMT*
 
 
 ## Princess of Wales
@@ -4339,6 +4717,33 @@ It’s been a busy six months for the Nike Air Max Dn.Introduced as the American
 
 ## Princess of Wales
 
+## [HOKA's Techy Sneaker Is Gloriously Bold](https://www.highsnobiety.com/p/hoka-japan-mafate-speed-2/)
+
+Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, and techy fabrics are all great, however, they’re not what make the shoe arguably …
+
+*Published on: Tue, 30 Jul 2024 13:29:04 GMT*
+
+
+## Princess of Wales
+
+## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
+
+Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
+
+*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
+
+
+## Princess of Wales
+
+## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
+
+AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
+
+*Published on: Mon, 29 Jul 2024 15:11:18 GMT*
+
+
+## Princess of Wales
+
 ## [Products to Prove the Camo Print's Comeback Was Hiding in Plain Sight](https://www.highsnobiety.com/p/camo-print-comeback/)
 
 After reporting on a camo print comeback no one seemed to notice – ba-dum-tss – we figured it was only fair we did the follow-up work of retrieving some  of th…
@@ -4346,7 +4751,88 @@ After reporting on a camo print comeback no one seemed to notice – ba-dum-tss 
 *Published on: Mon, 29 Jul 2024 14:26:52 GMT*
 
 
-## Princess of Wales
+## Rachel McAdams
+
+## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
+
+PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
+
+*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
+
+
+## Rachel McAdams
+
+## [New Balance's "Dunks" Went Back to Basics  Still Look Good ](https://www.highsnobiety.com/p/new-balance-numeric-480-sneakers-2024/)
+
+Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes do no wrong. The 480 "Dunks" get better, actually.After enjoying some of the mos…
+
+*Published on: Mon, 29 Jul 2024 21:21:00 GMT*
+
+
+## Rachel McAdams
+
+## [Remember Patta  Nike’s Air Max Grail? Well, It's Back!](https://www.highsnobiety.com/p/patta-nike-air-max-1-chlorophyll-release-date-2024/)
+
+In 2009, Patta had an important anniversary to celebrate and it did so by releasing a Nike Air Max 1 collaboration that has become a grail.The Air Max 1 ‘Chlor…
+
+*Published on: Tue, 30 Jul 2024 08:15:43 GMT*
+
+
+## Rachel McAdams
+
+## [New Balance's Techy Loafer Hybrid (Finally) Steps In ](https://www.highsnobiety.com/p/new-balance-loafer-where-to-buy/)
+
+Since New Balance's 1906 loafer stepped on the runway earlier this year, it has left the sneaker community — post-sneaker advocates, too — perplexed and intrig…
+
+*Published on: Tue, 30 Jul 2024 09:00:00 GMT*
+
+
+## Rachel McAdams
+
+## [The Beauty of Olympics Skateboarding's Non-Uniforms](https://www.highsnobiety.com/p/olympics-skateboarding-outfits-2024/)
+
+Most athletes performing at Olympic games dress identically. Disparity occasionally goes beyond nationalistic color palettes, like how track runners wear short…
+
+*Published on: Tue, 30 Jul 2024 09:30:28 GMT*
+
+
+## Rachel McAdams
+
+## [The (Nike) Force Is Strong With NIGO's Sneakers](https://www.highsnobiety.com/p/nigo-victor-victor-nike-air-force-1-sneakers-2024/)
+
+NIGO has the sneaker world on its toes, patiently waiting for his long-awaited Nike collaboration . For months, the fashion icon has casually offered spoonfuls…
+
+*Published on: Tue, 30 Jul 2024 09:34:32 GMT*
+
+
+## Rachel McAdams
+
+## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
+
+The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
+
+*Published on: Tue, 30 Jul 2024 10:05:34 GMT*
+
+
+## Rachel McAdams
+
+## [Nike’s Techy New Air Max Gets Into the Olympic Spirit](https://www.highsnobiety.com/p/nike-air-max-dn-usa-olympics/)
+
+It’s been a busy six months for the Nike Air Max Dn.Introduced as the American sportswear giant’s techy new sneaker, the future of its iconic Air Max range, th…
+
+*Published on: Tue, 30 Jul 2024 11:13:24 GMT*
+
+
+## Rachel McAdams
+
+## [HOKA's Techy Sneaker Is Gloriously Bold](https://www.highsnobiety.com/p/hoka-japan-mafate-speed-2/)
+
+Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, and techy fabrics are all great, however, they’re not what make the shoe arguably …
+
+*Published on: Tue, 30 Jul 2024 13:29:04 GMT*
+
+
+## Rachel McAdams
 
 ## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
 
@@ -4366,101 +4852,11 @@ AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end pro
 
 ## Rachel McAdams
 
-## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
-
-PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
-
-*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
-
-
-## Rachel McAdams
-
-## [New Balance's "Dunks" Went Back to Basics  Still Look Good ](https://www.highsnobiety.com/p/new-balance-numeric-480-sneakers-2024/)
-
-Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes do no wrong. The 480 "Dunks" get better, actually.After enjoying some of the mos…
-
-*Published on: Mon, 29 Jul 2024 21:21:00 GMT*
-
-
-## Rachel McAdams
-
-## [Remember Patta  Nike’s Air Max Grail? Well, It's Back!](https://www.highsnobiety.com/p/patta-nike-air-max-1-chlorophyll-release-date-2024/)
-
-In 2009, Patta had an important anniversary to celebrate and it did so by releasing a Nike Air Max 1 collaboration that has become a grail.The Air Max 1 ‘Chlor…
-
-*Published on: Tue, 30 Jul 2024 08:15:43 GMT*
-
-
-## Rachel McAdams
-
-## [New Balance's Techy Loafer Hybrid (Finally) Steps In ](https://www.highsnobiety.com/p/new-balance-loafer-where-to-buy/)
-
-Since New Balance's 1906 loafer stepped on the runway earlier this year, it has left the sneaker community — post-sneaker advocates, too — perplexed and intrig…
-
-*Published on: Tue, 30 Jul 2024 09:00:00 GMT*
-
-
-## Rachel McAdams
-
-## [The Beauty of Olympics Skateboarding's Non-Uniforms](https://www.highsnobiety.com/p/olympics-skateboarding-outfits-2024/)
-
-Most athletes performing at Olympic games dress identically. Disparity occasionally goes beyond nationalistic color palettes, like how track runners wear short…
-
-*Published on: Tue, 30 Jul 2024 09:30:28 GMT*
-
-
-## Rachel McAdams
-
-## [The (Nike) Force Is Strong With NIGO's Sneakers](https://www.highsnobiety.com/p/nigo-victor-victor-nike-air-force-1-sneakers-2024/)
-
-NIGO has the sneaker world on its toes, patiently waiting for his long-awaited Nike collaboration . For months, the fashion icon has casually offered spoonfuls…
-
-*Published on: Tue, 30 Jul 2024 09:34:32 GMT*
-
-
-## Rachel McAdams
-
-## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
-
-The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
-
-*Published on: Tue, 30 Jul 2024 10:05:34 GMT*
-
-
-## Rachel McAdams
-
-## [Nike’s Techy New Air Max Gets Into the Olympic Spirit](https://www.highsnobiety.com/p/nike-air-max-dn-usa-olympics/)
-
-It’s been a busy six months for the Nike Air Max Dn.Introduced as the American sportswear giant’s techy new sneaker, the future of its iconic Air Max range, th…
-
-*Published on: Tue, 30 Jul 2024 11:13:24 GMT*
-
-
-## Rachel McAdams
-
 ## [Products to Prove the Camo Print's Comeback Was Hiding in Plain Sight](https://www.highsnobiety.com/p/camo-print-comeback/)
 
 After reporting on a camo print comeback no one seemed to notice – ba-dum-tss – we figured it was only fair we did the follow-up work of retrieving some  of th…
 
 *Published on: Mon, 29 Jul 2024 14:26:52 GMT*
-
-
-## Rachel McAdams
-
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Reneé Rapp
-
-## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
-
-AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
-
-*Published on: Mon, 29 Jul 2024 15:11:18 GMT*
 
 
 ## Reneé Rapp
@@ -4537,11 +4933,11 @@ It’s been a busy six months for the Nike Air Max Dn.Introduced as the American
 
 ## Reneé Rapp
 
-## [Products to Prove the Camo Print's Comeback Was Hiding in Plain Sight](https://www.highsnobiety.com/p/camo-print-comeback/)
+## [HOKA's Techy Sneaker Is Gloriously Bold](https://www.highsnobiety.com/p/hoka-japan-mafate-speed-2/)
 
-After reporting on a camo print comeback no one seemed to notice – ba-dum-tss – we figured it was only fair we did the follow-up work of retrieving some  of th…
+Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, and techy fabrics are all great, however, they’re not what make the shoe arguably …
 
-*Published on: Mon, 29 Jul 2024 14:26:52 GMT*
+*Published on: Tue, 30 Jul 2024 13:29:04 GMT*
 
 
 ## Reneé Rapp
@@ -4553,13 +4949,22 @@ Known as the gems of the ocean, pearls stand for purity and wisdom, and are the 
 *Published on: Mon, 29 Jul 2024 12:00:00 GMT*
 
 
-## Rick Ross
+## Reneé Rapp
 
 ## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
 
 *Published on: Mon, 29 Jul 2024 15:11:18 GMT*
+
+
+## Reneé Rapp
+
+## [Products to Prove the Camo Print's Comeback Was Hiding in Plain Sight](https://www.highsnobiety.com/p/camo-print-comeback/)
+
+After reporting on a camo print comeback no one seemed to notice – ba-dum-tss – we figured it was only fair we did the follow-up work of retrieving some  of th…
+
+*Published on: Mon, 29 Jul 2024 14:26:52 GMT*
 
 
 ## Rick Ross
@@ -4636,6 +5041,33 @@ It’s been a busy six months for the Nike Air Max Dn.Introduced as the American
 
 ## Rick Ross
 
+## [HOKA's Techy Sneaker Is Gloriously Bold](https://www.highsnobiety.com/p/hoka-japan-mafate-speed-2/)
+
+Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, and techy fabrics are all great, however, they’re not what make the shoe arguably …
+
+*Published on: Tue, 30 Jul 2024 13:29:04 GMT*
+
+
+## Rick Ross
+
+## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
+
+Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
+
+*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
+
+
+## Rick Ross
+
+## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
+
+AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
+
+*Published on: Mon, 29 Jul 2024 15:11:18 GMT*
+
+
+## Rick Ross
+
 ## [Products to Prove the Camo Print's Comeback Was Hiding in Plain Sight](https://www.highsnobiety.com/p/camo-print-comeback/)
 
 After reporting on a camo print comeback no one seemed to notice – ba-dum-tss – we figured it was only fair we did the follow-up work of retrieving some  of th…
@@ -4643,7 +5075,88 @@ After reporting on a camo print comeback no one seemed to notice – ba-dum-tss 
 *Published on: Mon, 29 Jul 2024 14:26:52 GMT*
 
 
-## Rick Ross
+## Sam Ashgari
+
+## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
+
+PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
+
+*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
+
+
+## Sam Ashgari
+
+## [New Balance's "Dunks" Went Back to Basics  Still Look Good ](https://www.highsnobiety.com/p/new-balance-numeric-480-sneakers-2024/)
+
+Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes do no wrong. The 480 "Dunks" get better, actually.After enjoying some of the mos…
+
+*Published on: Mon, 29 Jul 2024 21:21:00 GMT*
+
+
+## Sam Ashgari
+
+## [Remember Patta  Nike’s Air Max Grail? Well, It's Back!](https://www.highsnobiety.com/p/patta-nike-air-max-1-chlorophyll-release-date-2024/)
+
+In 2009, Patta had an important anniversary to celebrate and it did so by releasing a Nike Air Max 1 collaboration that has become a grail.The Air Max 1 ‘Chlor…
+
+*Published on: Tue, 30 Jul 2024 08:15:43 GMT*
+
+
+## Sam Ashgari
+
+## [New Balance's Techy Loafer Hybrid (Finally) Steps In ](https://www.highsnobiety.com/p/new-balance-loafer-where-to-buy/)
+
+Since New Balance's 1906 loafer stepped on the runway earlier this year, it has left the sneaker community — post-sneaker advocates, too — perplexed and intrig…
+
+*Published on: Tue, 30 Jul 2024 09:00:00 GMT*
+
+
+## Sam Ashgari
+
+## [The Beauty of Olympics Skateboarding's Non-Uniforms](https://www.highsnobiety.com/p/olympics-skateboarding-outfits-2024/)
+
+Most athletes performing at Olympic games dress identically. Disparity occasionally goes beyond nationalistic color palettes, like how track runners wear short…
+
+*Published on: Tue, 30 Jul 2024 09:30:28 GMT*
+
+
+## Sam Ashgari
+
+## [The (Nike) Force Is Strong With NIGO's Sneakers](https://www.highsnobiety.com/p/nigo-victor-victor-nike-air-force-1-sneakers-2024/)
+
+NIGO has the sneaker world on its toes, patiently waiting for his long-awaited Nike collaboration . For months, the fashion icon has casually offered spoonfuls…
+
+*Published on: Tue, 30 Jul 2024 09:34:32 GMT*
+
+
+## Sam Ashgari
+
+## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
+
+The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
+
+*Published on: Tue, 30 Jul 2024 10:05:34 GMT*
+
+
+## Sam Ashgari
+
+## [Nike’s Techy New Air Max Gets Into the Olympic Spirit](https://www.highsnobiety.com/p/nike-air-max-dn-usa-olympics/)
+
+It’s been a busy six months for the Nike Air Max Dn.Introduced as the American sportswear giant’s techy new sneaker, the future of its iconic Air Max range, th…
+
+*Published on: Tue, 30 Jul 2024 11:13:24 GMT*
+
+
+## Sam Ashgari
+
+## [HOKA's Techy Sneaker Is Gloriously Bold](https://www.highsnobiety.com/p/hoka-japan-mafate-speed-2/)
+
+Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, and techy fabrics are all great, however, they’re not what make the shoe arguably …
+
+*Published on: Tue, 30 Jul 2024 13:29:04 GMT*
+
+
+## Sam Ashgari
 
 ## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
 
@@ -4663,101 +5176,11 @@ AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end pro
 
 ## Sam Ashgari
 
-## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
-
-PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
-
-*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
-
-
-## Sam Ashgari
-
-## [New Balance's "Dunks" Went Back to Basics  Still Look Good ](https://www.highsnobiety.com/p/new-balance-numeric-480-sneakers-2024/)
-
-Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes do no wrong. The 480 "Dunks" get better, actually.After enjoying some of the mos…
-
-*Published on: Mon, 29 Jul 2024 21:21:00 GMT*
-
-
-## Sam Ashgari
-
-## [Remember Patta  Nike’s Air Max Grail? Well, It's Back!](https://www.highsnobiety.com/p/patta-nike-air-max-1-chlorophyll-release-date-2024/)
-
-In 2009, Patta had an important anniversary to celebrate and it did so by releasing a Nike Air Max 1 collaboration that has become a grail.The Air Max 1 ‘Chlor…
-
-*Published on: Tue, 30 Jul 2024 08:15:43 GMT*
-
-
-## Sam Ashgari
-
-## [New Balance's Techy Loafer Hybrid (Finally) Steps In ](https://www.highsnobiety.com/p/new-balance-loafer-where-to-buy/)
-
-Since New Balance's 1906 loafer stepped on the runway earlier this year, it has left the sneaker community — post-sneaker advocates, too — perplexed and intrig…
-
-*Published on: Tue, 30 Jul 2024 09:00:00 GMT*
-
-
-## Sam Ashgari
-
-## [The Beauty of Olympics Skateboarding's Non-Uniforms](https://www.highsnobiety.com/p/olympics-skateboarding-outfits-2024/)
-
-Most athletes performing at Olympic games dress identically. Disparity occasionally goes beyond nationalistic color palettes, like how track runners wear short…
-
-*Published on: Tue, 30 Jul 2024 09:30:28 GMT*
-
-
-## Sam Ashgari
-
-## [The (Nike) Force Is Strong With NIGO's Sneakers](https://www.highsnobiety.com/p/nigo-victor-victor-nike-air-force-1-sneakers-2024/)
-
-NIGO has the sneaker world on its toes, patiently waiting for his long-awaited Nike collaboration . For months, the fashion icon has casually offered spoonfuls…
-
-*Published on: Tue, 30 Jul 2024 09:34:32 GMT*
-
-
-## Sam Ashgari
-
-## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
-
-The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
-
-*Published on: Tue, 30 Jul 2024 10:05:34 GMT*
-
-
-## Sam Ashgari
-
-## [Nike’s Techy New Air Max Gets Into the Olympic Spirit](https://www.highsnobiety.com/p/nike-air-max-dn-usa-olympics/)
-
-It’s been a busy six months for the Nike Air Max Dn.Introduced as the American sportswear giant’s techy new sneaker, the future of its iconic Air Max range, th…
-
-*Published on: Tue, 30 Jul 2024 11:13:24 GMT*
-
-
-## Sam Ashgari
-
 ## [Products to Prove the Camo Print's Comeback Was Hiding in Plain Sight](https://www.highsnobiety.com/p/camo-print-comeback/)
 
 After reporting on a camo print comeback no one seemed to notice – ba-dum-tss – we figured it was only fair we did the follow-up work of retrieving some  of th…
 
 *Published on: Mon, 29 Jul 2024 14:26:52 GMT*
-
-
-## Sam Ashgari
-
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Sandra Oh
-
-## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
-
-AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
-
-*Published on: Mon, 29 Jul 2024 15:11:18 GMT*
 
 
 ## Sandra Oh
@@ -4834,11 +5257,11 @@ It’s been a busy six months for the Nike Air Max Dn.Introduced as the American
 
 ## Sandra Oh
 
-## [Products to Prove the Camo Print's Comeback Was Hiding in Plain Sight](https://www.highsnobiety.com/p/camo-print-comeback/)
+## [HOKA's Techy Sneaker Is Gloriously Bold](https://www.highsnobiety.com/p/hoka-japan-mafate-speed-2/)
 
-After reporting on a camo print comeback no one seemed to notice – ba-dum-tss – we figured it was only fair we did the follow-up work of retrieving some  of th…
+Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, and techy fabrics are all great, however, they’re not what make the shoe arguably …
 
-*Published on: Mon, 29 Jul 2024 14:26:52 GMT*
+*Published on: Tue, 30 Jul 2024 13:29:04 GMT*
 
 
 ## Sandra Oh
@@ -4850,13 +5273,22 @@ Known as the gems of the ocean, pearls stand for purity and wisdom, and are the 
 *Published on: Mon, 29 Jul 2024 12:00:00 GMT*
 
 
-## Donald Trump
+## Sandra Oh
 
 ## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
 
 *Published on: Mon, 29 Jul 2024 15:11:18 GMT*
+
+
+## Sandra Oh
+
+## [Products to Prove the Camo Print's Comeback Was Hiding in Plain Sight](https://www.highsnobiety.com/p/camo-print-comeback/)
+
+After reporting on a camo print comeback no one seemed to notice – ba-dum-tss – we figured it was only fair we did the follow-up work of retrieving some  of th…
+
+*Published on: Mon, 29 Jul 2024 14:26:52 GMT*
 
 
 ## Donald Trump
@@ -4933,6 +5365,33 @@ It’s been a busy six months for the Nike Air Max Dn.Introduced as the American
 
 ## Donald Trump
 
+## [HOKA's Techy Sneaker Is Gloriously Bold](https://www.highsnobiety.com/p/hoka-japan-mafate-speed-2/)
+
+Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, and techy fabrics are all great, however, they’re not what make the shoe arguably …
+
+*Published on: Tue, 30 Jul 2024 13:29:04 GMT*
+
+
+## Donald Trump
+
+## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
+
+Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
+
+*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
+
+
+## Donald Trump
+
+## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
+
+AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
+
+*Published on: Mon, 29 Jul 2024 15:11:18 GMT*
+
+
+## Donald Trump
+
 ## [Products to Prove the Camo Print's Comeback Was Hiding in Plain Sight](https://www.highsnobiety.com/p/camo-print-comeback/)
 
 After reporting on a camo print comeback no one seemed to notice – ba-dum-tss – we figured it was only fair we did the follow-up work of retrieving some  of th…
@@ -4940,7 +5399,88 @@ After reporting on a camo print comeback no one seemed to notice – ba-dum-tss 
 *Published on: Mon, 29 Jul 2024 14:26:52 GMT*
 
 
-## Donald Trump
+## Diddy
+
+## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
+
+PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
+
+*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
+
+
+## Diddy
+
+## [New Balance's "Dunks" Went Back to Basics  Still Look Good ](https://www.highsnobiety.com/p/new-balance-numeric-480-sneakers-2024/)
+
+Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes do no wrong. The 480 "Dunks" get better, actually.After enjoying some of the mos…
+
+*Published on: Mon, 29 Jul 2024 21:21:00 GMT*
+
+
+## Diddy
+
+## [Remember Patta  Nike’s Air Max Grail? Well, It's Back!](https://www.highsnobiety.com/p/patta-nike-air-max-1-chlorophyll-release-date-2024/)
+
+In 2009, Patta had an important anniversary to celebrate and it did so by releasing a Nike Air Max 1 collaboration that has become a grail.The Air Max 1 ‘Chlor…
+
+*Published on: Tue, 30 Jul 2024 08:15:43 GMT*
+
+
+## Diddy
+
+## [New Balance's Techy Loafer Hybrid (Finally) Steps In ](https://www.highsnobiety.com/p/new-balance-loafer-where-to-buy/)
+
+Since New Balance's 1906 loafer stepped on the runway earlier this year, it has left the sneaker community — post-sneaker advocates, too — perplexed and intrig…
+
+*Published on: Tue, 30 Jul 2024 09:00:00 GMT*
+
+
+## Diddy
+
+## [The Beauty of Olympics Skateboarding's Non-Uniforms](https://www.highsnobiety.com/p/olympics-skateboarding-outfits-2024/)
+
+Most athletes performing at Olympic games dress identically. Disparity occasionally goes beyond nationalistic color palettes, like how track runners wear short…
+
+*Published on: Tue, 30 Jul 2024 09:30:28 GMT*
+
+
+## Diddy
+
+## [The (Nike) Force Is Strong With NIGO's Sneakers](https://www.highsnobiety.com/p/nigo-victor-victor-nike-air-force-1-sneakers-2024/)
+
+NIGO has the sneaker world on its toes, patiently waiting for his long-awaited Nike collaboration . For months, the fashion icon has casually offered spoonfuls…
+
+*Published on: Tue, 30 Jul 2024 09:34:32 GMT*
+
+
+## Diddy
+
+## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
+
+The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
+
+*Published on: Tue, 30 Jul 2024 10:05:34 GMT*
+
+
+## Diddy
+
+## [Nike’s Techy New Air Max Gets Into the Olympic Spirit](https://www.highsnobiety.com/p/nike-air-max-dn-usa-olympics/)
+
+It’s been a busy six months for the Nike Air Max Dn.Introduced as the American sportswear giant’s techy new sneaker, the future of its iconic Air Max range, th…
+
+*Published on: Tue, 30 Jul 2024 11:13:24 GMT*
+
+
+## Diddy
+
+## [HOKA's Techy Sneaker Is Gloriously Bold](https://www.highsnobiety.com/p/hoka-japan-mafate-speed-2/)
+
+Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, and techy fabrics are all great, however, they’re not what make the shoe arguably …
+
+*Published on: Tue, 30 Jul 2024 13:29:04 GMT*
+
+
+## Diddy
 
 ## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
 
@@ -4960,101 +5500,11 @@ AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end pro
 
 ## Diddy
 
-## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
-
-PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
-
-*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
-
-
-## Diddy
-
-## [New Balance's "Dunks" Went Back to Basics  Still Look Good ](https://www.highsnobiety.com/p/new-balance-numeric-480-sneakers-2024/)
-
-Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes do no wrong. The 480 "Dunks" get better, actually.After enjoying some of the mos…
-
-*Published on: Mon, 29 Jul 2024 21:21:00 GMT*
-
-
-## Diddy
-
-## [Remember Patta  Nike’s Air Max Grail? Well, It's Back!](https://www.highsnobiety.com/p/patta-nike-air-max-1-chlorophyll-release-date-2024/)
-
-In 2009, Patta had an important anniversary to celebrate and it did so by releasing a Nike Air Max 1 collaboration that has become a grail.The Air Max 1 ‘Chlor…
-
-*Published on: Tue, 30 Jul 2024 08:15:43 GMT*
-
-
-## Diddy
-
-## [New Balance's Techy Loafer Hybrid (Finally) Steps In ](https://www.highsnobiety.com/p/new-balance-loafer-where-to-buy/)
-
-Since New Balance's 1906 loafer stepped on the runway earlier this year, it has left the sneaker community — post-sneaker advocates, too — perplexed and intrig…
-
-*Published on: Tue, 30 Jul 2024 09:00:00 GMT*
-
-
-## Diddy
-
-## [The Beauty of Olympics Skateboarding's Non-Uniforms](https://www.highsnobiety.com/p/olympics-skateboarding-outfits-2024/)
-
-Most athletes performing at Olympic games dress identically. Disparity occasionally goes beyond nationalistic color palettes, like how track runners wear short…
-
-*Published on: Tue, 30 Jul 2024 09:30:28 GMT*
-
-
-## Diddy
-
-## [The (Nike) Force Is Strong With NIGO's Sneakers](https://www.highsnobiety.com/p/nigo-victor-victor-nike-air-force-1-sneakers-2024/)
-
-NIGO has the sneaker world on its toes, patiently waiting for his long-awaited Nike collaboration . For months, the fashion icon has casually offered spoonfuls…
-
-*Published on: Tue, 30 Jul 2024 09:34:32 GMT*
-
-
-## Diddy
-
-## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
-
-The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
-
-*Published on: Tue, 30 Jul 2024 10:05:34 GMT*
-
-
-## Diddy
-
-## [Nike’s Techy New Air Max Gets Into the Olympic Spirit](https://www.highsnobiety.com/p/nike-air-max-dn-usa-olympics/)
-
-It’s been a busy six months for the Nike Air Max Dn.Introduced as the American sportswear giant’s techy new sneaker, the future of its iconic Air Max range, th…
-
-*Published on: Tue, 30 Jul 2024 11:13:24 GMT*
-
-
-## Diddy
-
 ## [Products to Prove the Camo Print's Comeback Was Hiding in Plain Sight](https://www.highsnobiety.com/p/camo-print-comeback/)
 
 After reporting on a camo print comeback no one seemed to notice – ba-dum-tss – we figured it was only fair we did the follow-up work of retrieving some  of th…
 
 *Published on: Mon, 29 Jul 2024 14:26:52 GMT*
-
-
-## Diddy
-
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## City Girls
-
-## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
-
-AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
-
-*Published on: Mon, 29 Jul 2024 15:11:18 GMT*
 
 
 ## City Girls
@@ -5131,11 +5581,11 @@ It’s been a busy six months for the Nike Air Max Dn.Introduced as the American
 
 ## City Girls
 
-## [Products to Prove the Camo Print's Comeback Was Hiding in Plain Sight](https://www.highsnobiety.com/p/camo-print-comeback/)
+## [HOKA's Techy Sneaker Is Gloriously Bold](https://www.highsnobiety.com/p/hoka-japan-mafate-speed-2/)
 
-After reporting on a camo print comeback no one seemed to notice – ba-dum-tss – we figured it was only fair we did the follow-up work of retrieving some  of th…
+Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, and techy fabrics are all great, however, they’re not what make the shoe arguably …
 
-*Published on: Mon, 29 Jul 2024 14:26:52 GMT*
+*Published on: Tue, 30 Jul 2024 13:29:04 GMT*
 
 
 ## City Girls
@@ -5147,13 +5597,22 @@ Known as the gems of the ocean, pearls stand for purity and wisdom, and are the 
 *Published on: Mon, 29 Jul 2024 12:00:00 GMT*
 
 
-## Chloe Bailey
+## City Girls
 
 ## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
 
 *Published on: Mon, 29 Jul 2024 15:11:18 GMT*
+
+
+## City Girls
+
+## [Products to Prove the Camo Print's Comeback Was Hiding in Plain Sight](https://www.highsnobiety.com/p/camo-print-comeback/)
+
+After reporting on a camo print comeback no one seemed to notice – ba-dum-tss – we figured it was only fair we did the follow-up work of retrieving some  of th…
+
+*Published on: Mon, 29 Jul 2024 14:26:52 GMT*
 
 
 ## Chloe Bailey
@@ -5230,6 +5689,33 @@ It’s been a busy six months for the Nike Air Max Dn.Introduced as the American
 
 ## Chloe Bailey
 
+## [HOKA's Techy Sneaker Is Gloriously Bold](https://www.highsnobiety.com/p/hoka-japan-mafate-speed-2/)
+
+Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, and techy fabrics are all great, however, they’re not what make the shoe arguably …
+
+*Published on: Tue, 30 Jul 2024 13:29:04 GMT*
+
+
+## Chloe Bailey
+
+## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
+
+Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
+
+*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
+
+
+## Chloe Bailey
+
+## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
+
+AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
+
+*Published on: Mon, 29 Jul 2024 15:11:18 GMT*
+
+
+## Chloe Bailey
+
 ## [Products to Prove the Camo Print's Comeback Was Hiding in Plain Sight](https://www.highsnobiety.com/p/camo-print-comeback/)
 
 After reporting on a camo print comeback no one seemed to notice – ba-dum-tss – we figured it was only fair we did the follow-up work of retrieving some  of th…
@@ -5237,7 +5723,88 @@ After reporting on a camo print comeback no one seemed to notice – ba-dum-tss 
 *Published on: Mon, 29 Jul 2024 14:26:52 GMT*
 
 
-## Chloe Bailey
+## Charli D Amelio
+
+## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
+
+PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
+
+*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
+
+
+## Charli D Amelio
+
+## [New Balance's "Dunks" Went Back to Basics  Still Look Good ](https://www.highsnobiety.com/p/new-balance-numeric-480-sneakers-2024/)
+
+Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes do no wrong. The 480 "Dunks" get better, actually.After enjoying some of the mos…
+
+*Published on: Mon, 29 Jul 2024 21:21:00 GMT*
+
+
+## Charli D Amelio
+
+## [Remember Patta  Nike’s Air Max Grail? Well, It's Back!](https://www.highsnobiety.com/p/patta-nike-air-max-1-chlorophyll-release-date-2024/)
+
+In 2009, Patta had an important anniversary to celebrate and it did so by releasing a Nike Air Max 1 collaboration that has become a grail.The Air Max 1 ‘Chlor…
+
+*Published on: Tue, 30 Jul 2024 08:15:43 GMT*
+
+
+## Charli D Amelio
+
+## [New Balance's Techy Loafer Hybrid (Finally) Steps In ](https://www.highsnobiety.com/p/new-balance-loafer-where-to-buy/)
+
+Since New Balance's 1906 loafer stepped on the runway earlier this year, it has left the sneaker community — post-sneaker advocates, too — perplexed and intrig…
+
+*Published on: Tue, 30 Jul 2024 09:00:00 GMT*
+
+
+## Charli D Amelio
+
+## [The Beauty of Olympics Skateboarding's Non-Uniforms](https://www.highsnobiety.com/p/olympics-skateboarding-outfits-2024/)
+
+Most athletes performing at Olympic games dress identically. Disparity occasionally goes beyond nationalistic color palettes, like how track runners wear short…
+
+*Published on: Tue, 30 Jul 2024 09:30:28 GMT*
+
+
+## Charli D Amelio
+
+## [The (Nike) Force Is Strong With NIGO's Sneakers](https://www.highsnobiety.com/p/nigo-victor-victor-nike-air-force-1-sneakers-2024/)
+
+NIGO has the sneaker world on its toes, patiently waiting for his long-awaited Nike collaboration . For months, the fashion icon has casually offered spoonfuls…
+
+*Published on: Tue, 30 Jul 2024 09:34:32 GMT*
+
+
+## Charli D Amelio
+
+## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
+
+The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
+
+*Published on: Tue, 30 Jul 2024 10:05:34 GMT*
+
+
+## Charli D Amelio
+
+## [Nike’s Techy New Air Max Gets Into the Olympic Spirit](https://www.highsnobiety.com/p/nike-air-max-dn-usa-olympics/)
+
+It’s been a busy six months for the Nike Air Max Dn.Introduced as the American sportswear giant’s techy new sneaker, the future of its iconic Air Max range, th…
+
+*Published on: Tue, 30 Jul 2024 11:13:24 GMT*
+
+
+## Charli D Amelio
+
+## [HOKA's Techy Sneaker Is Gloriously Bold](https://www.highsnobiety.com/p/hoka-japan-mafate-speed-2/)
+
+Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, and techy fabrics are all great, however, they’re not what make the shoe arguably …
+
+*Published on: Tue, 30 Jul 2024 13:29:04 GMT*
+
+
+## Charli D Amelio
 
 ## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
 
@@ -5257,101 +5824,11 @@ AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end pro
 
 ## Charli D Amelio
 
-## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
-
-PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
-
-*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
-
-
-## Charli D Amelio
-
-## [New Balance's "Dunks" Went Back to Basics  Still Look Good ](https://www.highsnobiety.com/p/new-balance-numeric-480-sneakers-2024/)
-
-Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes do no wrong. The 480 "Dunks" get better, actually.After enjoying some of the mos…
-
-*Published on: Mon, 29 Jul 2024 21:21:00 GMT*
-
-
-## Charli D Amelio
-
-## [Remember Patta  Nike’s Air Max Grail? Well, It's Back!](https://www.highsnobiety.com/p/patta-nike-air-max-1-chlorophyll-release-date-2024/)
-
-In 2009, Patta had an important anniversary to celebrate and it did so by releasing a Nike Air Max 1 collaboration that has become a grail.The Air Max 1 ‘Chlor…
-
-*Published on: Tue, 30 Jul 2024 08:15:43 GMT*
-
-
-## Charli D Amelio
-
-## [New Balance's Techy Loafer Hybrid (Finally) Steps In ](https://www.highsnobiety.com/p/new-balance-loafer-where-to-buy/)
-
-Since New Balance's 1906 loafer stepped on the runway earlier this year, it has left the sneaker community — post-sneaker advocates, too — perplexed and intrig…
-
-*Published on: Tue, 30 Jul 2024 09:00:00 GMT*
-
-
-## Charli D Amelio
-
-## [The Beauty of Olympics Skateboarding's Non-Uniforms](https://www.highsnobiety.com/p/olympics-skateboarding-outfits-2024/)
-
-Most athletes performing at Olympic games dress identically. Disparity occasionally goes beyond nationalistic color palettes, like how track runners wear short…
-
-*Published on: Tue, 30 Jul 2024 09:30:28 GMT*
-
-
-## Charli D Amelio
-
-## [The (Nike) Force Is Strong With NIGO's Sneakers](https://www.highsnobiety.com/p/nigo-victor-victor-nike-air-force-1-sneakers-2024/)
-
-NIGO has the sneaker world on its toes, patiently waiting for his long-awaited Nike collaboration . For months, the fashion icon has casually offered spoonfuls…
-
-*Published on: Tue, 30 Jul 2024 09:34:32 GMT*
-
-
-## Charli D Amelio
-
-## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
-
-The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
-
-*Published on: Tue, 30 Jul 2024 10:05:34 GMT*
-
-
-## Charli D Amelio
-
-## [Nike’s Techy New Air Max Gets Into the Olympic Spirit](https://www.highsnobiety.com/p/nike-air-max-dn-usa-olympics/)
-
-It’s been a busy six months for the Nike Air Max Dn.Introduced as the American sportswear giant’s techy new sneaker, the future of its iconic Air Max range, th…
-
-*Published on: Tue, 30 Jul 2024 11:13:24 GMT*
-
-
-## Charli D Amelio
-
 ## [Products to Prove the Camo Print's Comeback Was Hiding in Plain Sight](https://www.highsnobiety.com/p/camo-print-comeback/)
 
 After reporting on a camo print comeback no one seemed to notice – ba-dum-tss – we figured it was only fair we did the follow-up work of retrieving some  of th…
 
 *Published on: Mon, 29 Jul 2024 14:26:52 GMT*
-
-
-## Charli D Amelio
-
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Cardi B
-
-## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
-
-AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
-
-*Published on: Mon, 29 Jul 2024 15:11:18 GMT*
 
 
 ## Cardi B
@@ -5428,11 +5905,11 @@ It’s been a busy six months for the Nike Air Max Dn.Introduced as the American
 
 ## Cardi B
 
-## [Products to Prove the Camo Print's Comeback Was Hiding in Plain Sight](https://www.highsnobiety.com/p/camo-print-comeback/)
+## [HOKA's Techy Sneaker Is Gloriously Bold](https://www.highsnobiety.com/p/hoka-japan-mafate-speed-2/)
 
-After reporting on a camo print comeback no one seemed to notice – ba-dum-tss – we figured it was only fair we did the follow-up work of retrieving some  of th…
+Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, and techy fabrics are all great, however, they’re not what make the shoe arguably …
 
-*Published on: Mon, 29 Jul 2024 14:26:52 GMT*
+*Published on: Tue, 30 Jul 2024 13:29:04 GMT*
 
 
 ## Cardi B
@@ -5444,13 +5921,22 @@ Known as the gems of the ocean, pearls stand for purity and wisdom, and are the 
 *Published on: Mon, 29 Jul 2024 12:00:00 GMT*
 
 
-## Bryan Cranston
+## Cardi B
 
 ## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
 
 *Published on: Mon, 29 Jul 2024 15:11:18 GMT*
+
+
+## Cardi B
+
+## [Products to Prove the Camo Print's Comeback Was Hiding in Plain Sight](https://www.highsnobiety.com/p/camo-print-comeback/)
+
+After reporting on a camo print comeback no one seemed to notice – ba-dum-tss – we figured it was only fair we did the follow-up work of retrieving some  of th…
+
+*Published on: Mon, 29 Jul 2024 14:26:52 GMT*
 
 
 ## Bryan Cranston
@@ -5527,6 +6013,33 @@ It’s been a busy six months for the Nike Air Max Dn.Introduced as the American
 
 ## Bryan Cranston
 
+## [HOKA's Techy Sneaker Is Gloriously Bold](https://www.highsnobiety.com/p/hoka-japan-mafate-speed-2/)
+
+Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, and techy fabrics are all great, however, they’re not what make the shoe arguably …
+
+*Published on: Tue, 30 Jul 2024 13:29:04 GMT*
+
+
+## Bryan Cranston
+
+## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
+
+Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
+
+*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
+
+
+## Bryan Cranston
+
+## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
+
+AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
+
+*Published on: Mon, 29 Jul 2024 15:11:18 GMT*
+
+
+## Bryan Cranston
+
 ## [Products to Prove the Camo Print's Comeback Was Hiding in Plain Sight](https://www.highsnobiety.com/p/camo-print-comeback/)
 
 After reporting on a camo print comeback no one seemed to notice – ba-dum-tss – we figured it was only fair we did the follow-up work of retrieving some  of th…
@@ -5534,7 +6047,88 @@ After reporting on a camo print comeback no one seemed to notice – ba-dum-tss 
 *Published on: Mon, 29 Jul 2024 14:26:52 GMT*
 
 
-## Bryan Cranston
+## Brielle Biermann
+
+## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
+
+PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
+
+*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
+
+
+## Brielle Biermann
+
+## [New Balance's "Dunks" Went Back to Basics  Still Look Good ](https://www.highsnobiety.com/p/new-balance-numeric-480-sneakers-2024/)
+
+Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes do no wrong. The 480 "Dunks" get better, actually.After enjoying some of the mos…
+
+*Published on: Mon, 29 Jul 2024 21:21:00 GMT*
+
+
+## Brielle Biermann
+
+## [Remember Patta  Nike’s Air Max Grail? Well, It's Back!](https://www.highsnobiety.com/p/patta-nike-air-max-1-chlorophyll-release-date-2024/)
+
+In 2009, Patta had an important anniversary to celebrate and it did so by releasing a Nike Air Max 1 collaboration that has become a grail.The Air Max 1 ‘Chlor…
+
+*Published on: Tue, 30 Jul 2024 08:15:43 GMT*
+
+
+## Brielle Biermann
+
+## [New Balance's Techy Loafer Hybrid (Finally) Steps In ](https://www.highsnobiety.com/p/new-balance-loafer-where-to-buy/)
+
+Since New Balance's 1906 loafer stepped on the runway earlier this year, it has left the sneaker community — post-sneaker advocates, too — perplexed and intrig…
+
+*Published on: Tue, 30 Jul 2024 09:00:00 GMT*
+
+
+## Brielle Biermann
+
+## [The Beauty of Olympics Skateboarding's Non-Uniforms](https://www.highsnobiety.com/p/olympics-skateboarding-outfits-2024/)
+
+Most athletes performing at Olympic games dress identically. Disparity occasionally goes beyond nationalistic color palettes, like how track runners wear short…
+
+*Published on: Tue, 30 Jul 2024 09:30:28 GMT*
+
+
+## Brielle Biermann
+
+## [The (Nike) Force Is Strong With NIGO's Sneakers](https://www.highsnobiety.com/p/nigo-victor-victor-nike-air-force-1-sneakers-2024/)
+
+NIGO has the sneaker world on its toes, patiently waiting for his long-awaited Nike collaboration . For months, the fashion icon has casually offered spoonfuls…
+
+*Published on: Tue, 30 Jul 2024 09:34:32 GMT*
+
+
+## Brielle Biermann
+
+## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
+
+The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
+
+*Published on: Tue, 30 Jul 2024 10:05:34 GMT*
+
+
+## Brielle Biermann
+
+## [Nike’s Techy New Air Max Gets Into the Olympic Spirit](https://www.highsnobiety.com/p/nike-air-max-dn-usa-olympics/)
+
+It’s been a busy six months for the Nike Air Max Dn.Introduced as the American sportswear giant’s techy new sneaker, the future of its iconic Air Max range, th…
+
+*Published on: Tue, 30 Jul 2024 11:13:24 GMT*
+
+
+## Brielle Biermann
+
+## [HOKA's Techy Sneaker Is Gloriously Bold](https://www.highsnobiety.com/p/hoka-japan-mafate-speed-2/)
+
+Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, and techy fabrics are all great, however, they’re not what make the shoe arguably …
+
+*Published on: Tue, 30 Jul 2024 13:29:04 GMT*
+
+
+## Brielle Biermann
 
 ## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
 
@@ -5554,101 +6148,11 @@ AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end pro
 
 ## Brielle Biermann
 
-## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
-
-PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
-
-*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
-
-
-## Brielle Biermann
-
-## [New Balance's "Dunks" Went Back to Basics  Still Look Good ](https://www.highsnobiety.com/p/new-balance-numeric-480-sneakers-2024/)
-
-Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes do no wrong. The 480 "Dunks" get better, actually.After enjoying some of the mos…
-
-*Published on: Mon, 29 Jul 2024 21:21:00 GMT*
-
-
-## Brielle Biermann
-
-## [Remember Patta  Nike’s Air Max Grail? Well, It's Back!](https://www.highsnobiety.com/p/patta-nike-air-max-1-chlorophyll-release-date-2024/)
-
-In 2009, Patta had an important anniversary to celebrate and it did so by releasing a Nike Air Max 1 collaboration that has become a grail.The Air Max 1 ‘Chlor…
-
-*Published on: Tue, 30 Jul 2024 08:15:43 GMT*
-
-
-## Brielle Biermann
-
-## [New Balance's Techy Loafer Hybrid (Finally) Steps In ](https://www.highsnobiety.com/p/new-balance-loafer-where-to-buy/)
-
-Since New Balance's 1906 loafer stepped on the runway earlier this year, it has left the sneaker community — post-sneaker advocates, too — perplexed and intrig…
-
-*Published on: Tue, 30 Jul 2024 09:00:00 GMT*
-
-
-## Brielle Biermann
-
-## [The Beauty of Olympics Skateboarding's Non-Uniforms](https://www.highsnobiety.com/p/olympics-skateboarding-outfits-2024/)
-
-Most athletes performing at Olympic games dress identically. Disparity occasionally goes beyond nationalistic color palettes, like how track runners wear short…
-
-*Published on: Tue, 30 Jul 2024 09:30:28 GMT*
-
-
-## Brielle Biermann
-
-## [The (Nike) Force Is Strong With NIGO's Sneakers](https://www.highsnobiety.com/p/nigo-victor-victor-nike-air-force-1-sneakers-2024/)
-
-NIGO has the sneaker world on its toes, patiently waiting for his long-awaited Nike collaboration . For months, the fashion icon has casually offered spoonfuls…
-
-*Published on: Tue, 30 Jul 2024 09:34:32 GMT*
-
-
-## Brielle Biermann
-
-## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
-
-The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
-
-*Published on: Tue, 30 Jul 2024 10:05:34 GMT*
-
-
-## Brielle Biermann
-
-## [Nike’s Techy New Air Max Gets Into the Olympic Spirit](https://www.highsnobiety.com/p/nike-air-max-dn-usa-olympics/)
-
-It’s been a busy six months for the Nike Air Max Dn.Introduced as the American sportswear giant’s techy new sneaker, the future of its iconic Air Max range, th…
-
-*Published on: Tue, 30 Jul 2024 11:13:24 GMT*
-
-
-## Brielle Biermann
-
 ## [Products to Prove the Camo Print's Comeback Was Hiding in Plain Sight](https://www.highsnobiety.com/p/camo-print-comeback/)
 
 After reporting on a camo print comeback no one seemed to notice – ba-dum-tss – we figured it was only fair we did the follow-up work of retrieving some  of th…
 
 *Published on: Mon, 29 Jul 2024 14:26:52 GMT*
-
-
-## Brielle Biermann
-
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Dua Lipa
-
-## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
-
-AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
-
-*Published on: Mon, 29 Jul 2024 15:11:18 GMT*
 
 
 ## Dua Lipa
@@ -5725,11 +6229,11 @@ It’s been a busy six months for the Nike Air Max Dn.Introduced as the American
 
 ## Dua Lipa
 
-## [Products to Prove the Camo Print's Comeback Was Hiding in Plain Sight](https://www.highsnobiety.com/p/camo-print-comeback/)
+## [HOKA's Techy Sneaker Is Gloriously Bold](https://www.highsnobiety.com/p/hoka-japan-mafate-speed-2/)
 
-After reporting on a camo print comeback no one seemed to notice – ba-dum-tss – we figured it was only fair we did the follow-up work of retrieving some  of th…
+Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, and techy fabrics are all great, however, they’re not what make the shoe arguably …
 
-*Published on: Mon, 29 Jul 2024 14:26:52 GMT*
+*Published on: Tue, 30 Jul 2024 13:29:04 GMT*
 
 
 ## Dua Lipa
@@ -5741,13 +6245,22 @@ Known as the gems of the ocean, pearls stand for purity and wisdom, and are the 
 *Published on: Mon, 29 Jul 2024 12:00:00 GMT*
 
 
-## Drake
+## Dua Lipa
 
 ## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
 
 *Published on: Mon, 29 Jul 2024 15:11:18 GMT*
+
+
+## Dua Lipa
+
+## [Products to Prove the Camo Print's Comeback Was Hiding in Plain Sight](https://www.highsnobiety.com/p/camo-print-comeback/)
+
+After reporting on a camo print comeback no one seemed to notice – ba-dum-tss – we figured it was only fair we did the follow-up work of retrieving some  of th…
+
+*Published on: Mon, 29 Jul 2024 14:26:52 GMT*
 
 
 ## Drake
@@ -5824,6 +6337,33 @@ It’s been a busy six months for the Nike Air Max Dn.Introduced as the American
 
 ## Drake
 
+## [HOKA's Techy Sneaker Is Gloriously Bold](https://www.highsnobiety.com/p/hoka-japan-mafate-speed-2/)
+
+Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, and techy fabrics are all great, however, they’re not what make the shoe arguably …
+
+*Published on: Tue, 30 Jul 2024 13:29:04 GMT*
+
+
+## Drake
+
+## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
+
+Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
+
+*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
+
+
+## Drake
+
+## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
+
+AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
+
+*Published on: Mon, 29 Jul 2024 15:11:18 GMT*
+
+
+## Drake
+
 ## [Products to Prove the Camo Print's Comeback Was Hiding in Plain Sight](https://www.highsnobiety.com/p/camo-print-comeback/)
 
 After reporting on a camo print comeback no one seemed to notice – ba-dum-tss – we figured it was only fair we did the follow-up work of retrieving some  of th…
@@ -5831,7 +6371,88 @@ After reporting on a camo print comeback no one seemed to notice – ba-dum-tss 
 *Published on: Mon, 29 Jul 2024 14:26:52 GMT*
 
 
-## Drake
+## Jenner
+
+## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
+
+PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
+
+*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
+
+
+## Jenner
+
+## [New Balance's "Dunks" Went Back to Basics  Still Look Good ](https://www.highsnobiety.com/p/new-balance-numeric-480-sneakers-2024/)
+
+Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes do no wrong. The 480 "Dunks" get better, actually.After enjoying some of the mos…
+
+*Published on: Mon, 29 Jul 2024 21:21:00 GMT*
+
+
+## Jenner
+
+## [Remember Patta  Nike’s Air Max Grail? Well, It's Back!](https://www.highsnobiety.com/p/patta-nike-air-max-1-chlorophyll-release-date-2024/)
+
+In 2009, Patta had an important anniversary to celebrate and it did so by releasing a Nike Air Max 1 collaboration that has become a grail.The Air Max 1 ‘Chlor…
+
+*Published on: Tue, 30 Jul 2024 08:15:43 GMT*
+
+
+## Jenner
+
+## [New Balance's Techy Loafer Hybrid (Finally) Steps In ](https://www.highsnobiety.com/p/new-balance-loafer-where-to-buy/)
+
+Since New Balance's 1906 loafer stepped on the runway earlier this year, it has left the sneaker community — post-sneaker advocates, too — perplexed and intrig…
+
+*Published on: Tue, 30 Jul 2024 09:00:00 GMT*
+
+
+## Jenner
+
+## [The Beauty of Olympics Skateboarding's Non-Uniforms](https://www.highsnobiety.com/p/olympics-skateboarding-outfits-2024/)
+
+Most athletes performing at Olympic games dress identically. Disparity occasionally goes beyond nationalistic color palettes, like how track runners wear short…
+
+*Published on: Tue, 30 Jul 2024 09:30:28 GMT*
+
+
+## Jenner
+
+## [The (Nike) Force Is Strong With NIGO's Sneakers](https://www.highsnobiety.com/p/nigo-victor-victor-nike-air-force-1-sneakers-2024/)
+
+NIGO has the sneaker world on its toes, patiently waiting for his long-awaited Nike collaboration . For months, the fashion icon has casually offered spoonfuls…
+
+*Published on: Tue, 30 Jul 2024 09:34:32 GMT*
+
+
+## Jenner
+
+## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
+
+The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
+
+*Published on: Tue, 30 Jul 2024 10:05:34 GMT*
+
+
+## Jenner
+
+## [Nike’s Techy New Air Max Gets Into the Olympic Spirit](https://www.highsnobiety.com/p/nike-air-max-dn-usa-olympics/)
+
+It’s been a busy six months for the Nike Air Max Dn.Introduced as the American sportswear giant’s techy new sneaker, the future of its iconic Air Max range, th…
+
+*Published on: Tue, 30 Jul 2024 11:13:24 GMT*
+
+
+## Jenner
+
+## [HOKA's Techy Sneaker Is Gloriously Bold](https://www.highsnobiety.com/p/hoka-japan-mafate-speed-2/)
+
+Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, and techy fabrics are all great, however, they’re not what make the shoe arguably …
+
+*Published on: Tue, 30 Jul 2024 13:29:04 GMT*
+
+
+## Jenner
 
 ## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
 
@@ -5851,101 +6472,11 @@ AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end pro
 
 ## Jenner
 
-## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
-
-PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
-
-*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
-
-
-## Jenner
-
-## [New Balance's "Dunks" Went Back to Basics  Still Look Good ](https://www.highsnobiety.com/p/new-balance-numeric-480-sneakers-2024/)
-
-Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes do no wrong. The 480 "Dunks" get better, actually.After enjoying some of the mos…
-
-*Published on: Mon, 29 Jul 2024 21:21:00 GMT*
-
-
-## Jenner
-
-## [Remember Patta  Nike’s Air Max Grail? Well, It's Back!](https://www.highsnobiety.com/p/patta-nike-air-max-1-chlorophyll-release-date-2024/)
-
-In 2009, Patta had an important anniversary to celebrate and it did so by releasing a Nike Air Max 1 collaboration that has become a grail.The Air Max 1 ‘Chlor…
-
-*Published on: Tue, 30 Jul 2024 08:15:43 GMT*
-
-
-## Jenner
-
-## [New Balance's Techy Loafer Hybrid (Finally) Steps In ](https://www.highsnobiety.com/p/new-balance-loafer-where-to-buy/)
-
-Since New Balance's 1906 loafer stepped on the runway earlier this year, it has left the sneaker community — post-sneaker advocates, too — perplexed and intrig…
-
-*Published on: Tue, 30 Jul 2024 09:00:00 GMT*
-
-
-## Jenner
-
-## [The Beauty of Olympics Skateboarding's Non-Uniforms](https://www.highsnobiety.com/p/olympics-skateboarding-outfits-2024/)
-
-Most athletes performing at Olympic games dress identically. Disparity occasionally goes beyond nationalistic color palettes, like how track runners wear short…
-
-*Published on: Tue, 30 Jul 2024 09:30:28 GMT*
-
-
-## Jenner
-
-## [The (Nike) Force Is Strong With NIGO's Sneakers](https://www.highsnobiety.com/p/nigo-victor-victor-nike-air-force-1-sneakers-2024/)
-
-NIGO has the sneaker world on its toes, patiently waiting for his long-awaited Nike collaboration . For months, the fashion icon has casually offered spoonfuls…
-
-*Published on: Tue, 30 Jul 2024 09:34:32 GMT*
-
-
-## Jenner
-
-## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
-
-The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
-
-*Published on: Tue, 30 Jul 2024 10:05:34 GMT*
-
-
-## Jenner
-
-## [Nike’s Techy New Air Max Gets Into the Olympic Spirit](https://www.highsnobiety.com/p/nike-air-max-dn-usa-olympics/)
-
-It’s been a busy six months for the Nike Air Max Dn.Introduced as the American sportswear giant’s techy new sneaker, the future of its iconic Air Max range, th…
-
-*Published on: Tue, 30 Jul 2024 11:13:24 GMT*
-
-
-## Jenner
-
 ## [Products to Prove the Camo Print's Comeback Was Hiding in Plain Sight](https://www.highsnobiety.com/p/camo-print-comeback/)
 
 After reporting on a camo print comeback no one seemed to notice – ba-dum-tss – we figured it was only fair we did the follow-up work of retrieving some  of th…
 
 *Published on: Mon, 29 Jul 2024 14:26:52 GMT*
-
-
-## Jenner
-
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## J. Cole
-
-## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
-
-AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
-
-*Published on: Mon, 29 Jul 2024 15:11:18 GMT*
 
 
 ## J. Cole
@@ -6022,11 +6553,11 @@ It’s been a busy six months for the Nike Air Max Dn.Introduced as the American
 
 ## J. Cole
 
-## [Products to Prove the Camo Print's Comeback Was Hiding in Plain Sight](https://www.highsnobiety.com/p/camo-print-comeback/)
+## [HOKA's Techy Sneaker Is Gloriously Bold](https://www.highsnobiety.com/p/hoka-japan-mafate-speed-2/)
 
-After reporting on a camo print comeback no one seemed to notice – ba-dum-tss – we figured it was only fair we did the follow-up work of retrieving some  of th…
+Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, and techy fabrics are all great, however, they’re not what make the shoe arguably …
 
-*Published on: Mon, 29 Jul 2024 14:26:52 GMT*
+*Published on: Tue, 30 Jul 2024 13:29:04 GMT*
 
 
 ## J. Cole
@@ -6038,13 +6569,22 @@ Known as the gems of the ocean, pearls stand for purity and wisdom, and are the 
 *Published on: Mon, 29 Jul 2024 12:00:00 GMT*
 
 
-## Jerrod Carmichael
+## J. Cole
 
 ## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
 
 *Published on: Mon, 29 Jul 2024 15:11:18 GMT*
+
+
+## J. Cole
+
+## [Products to Prove the Camo Print's Comeback Was Hiding in Plain Sight](https://www.highsnobiety.com/p/camo-print-comeback/)
+
+After reporting on a camo print comeback no one seemed to notice – ba-dum-tss – we figured it was only fair we did the follow-up work of retrieving some  of th…
+
+*Published on: Mon, 29 Jul 2024 14:26:52 GMT*
 
 
 ## Jerrod Carmichael
@@ -6121,6 +6661,33 @@ It’s been a busy six months for the Nike Air Max Dn.Introduced as the American
 
 ## Jerrod Carmichael
 
+## [HOKA's Techy Sneaker Is Gloriously Bold](https://www.highsnobiety.com/p/hoka-japan-mafate-speed-2/)
+
+Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, and techy fabrics are all great, however, they’re not what make the shoe arguably …
+
+*Published on: Tue, 30 Jul 2024 13:29:04 GMT*
+
+
+## Jerrod Carmichael
+
+## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
+
+Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
+
+*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
+
+
+## Jerrod Carmichael
+
+## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
+
+AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
+
+*Published on: Mon, 29 Jul 2024 15:11:18 GMT*
+
+
+## Jerrod Carmichael
+
 ## [Products to Prove the Camo Print's Comeback Was Hiding in Plain Sight](https://www.highsnobiety.com/p/camo-print-comeback/)
 
 After reporting on a camo print comeback no one seemed to notice – ba-dum-tss – we figured it was only fair we did the follow-up work of retrieving some  of th…
@@ -6128,7 +6695,88 @@ After reporting on a camo print comeback no one seemed to notice – ba-dum-tss 
 *Published on: Mon, 29 Jul 2024 14:26:52 GMT*
 
 
-## Jerrod Carmichael
+## Jennifer Lawrence
+
+## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
+
+PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
+
+*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
+
+
+## Jennifer Lawrence
+
+## [New Balance's "Dunks" Went Back to Basics  Still Look Good ](https://www.highsnobiety.com/p/new-balance-numeric-480-sneakers-2024/)
+
+Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes do no wrong. The 480 "Dunks" get better, actually.After enjoying some of the mos…
+
+*Published on: Mon, 29 Jul 2024 21:21:00 GMT*
+
+
+## Jennifer Lawrence
+
+## [Remember Patta  Nike’s Air Max Grail? Well, It's Back!](https://www.highsnobiety.com/p/patta-nike-air-max-1-chlorophyll-release-date-2024/)
+
+In 2009, Patta had an important anniversary to celebrate and it did so by releasing a Nike Air Max 1 collaboration that has become a grail.The Air Max 1 ‘Chlor…
+
+*Published on: Tue, 30 Jul 2024 08:15:43 GMT*
+
+
+## Jennifer Lawrence
+
+## [New Balance's Techy Loafer Hybrid (Finally) Steps In ](https://www.highsnobiety.com/p/new-balance-loafer-where-to-buy/)
+
+Since New Balance's 1906 loafer stepped on the runway earlier this year, it has left the sneaker community — post-sneaker advocates, too — perplexed and intrig…
+
+*Published on: Tue, 30 Jul 2024 09:00:00 GMT*
+
+
+## Jennifer Lawrence
+
+## [The Beauty of Olympics Skateboarding's Non-Uniforms](https://www.highsnobiety.com/p/olympics-skateboarding-outfits-2024/)
+
+Most athletes performing at Olympic games dress identically. Disparity occasionally goes beyond nationalistic color palettes, like how track runners wear short…
+
+*Published on: Tue, 30 Jul 2024 09:30:28 GMT*
+
+
+## Jennifer Lawrence
+
+## [The (Nike) Force Is Strong With NIGO's Sneakers](https://www.highsnobiety.com/p/nigo-victor-victor-nike-air-force-1-sneakers-2024/)
+
+NIGO has the sneaker world on its toes, patiently waiting for his long-awaited Nike collaboration . For months, the fashion icon has casually offered spoonfuls…
+
+*Published on: Tue, 30 Jul 2024 09:34:32 GMT*
+
+
+## Jennifer Lawrence
+
+## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
+
+The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
+
+*Published on: Tue, 30 Jul 2024 10:05:34 GMT*
+
+
+## Jennifer Lawrence
+
+## [Nike’s Techy New Air Max Gets Into the Olympic Spirit](https://www.highsnobiety.com/p/nike-air-max-dn-usa-olympics/)
+
+It’s been a busy six months for the Nike Air Max Dn.Introduced as the American sportswear giant’s techy new sneaker, the future of its iconic Air Max range, th…
+
+*Published on: Tue, 30 Jul 2024 11:13:24 GMT*
+
+
+## Jennifer Lawrence
+
+## [HOKA's Techy Sneaker Is Gloriously Bold](https://www.highsnobiety.com/p/hoka-japan-mafate-speed-2/)
+
+Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, and techy fabrics are all great, however, they’re not what make the shoe arguably …
+
+*Published on: Tue, 30 Jul 2024 13:29:04 GMT*
+
+
+## Jennifer Lawrence
 
 ## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
 
@@ -6148,101 +6796,11 @@ AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end pro
 
 ## Jennifer Lawrence
 
-## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
-
-PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
-
-*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
-
-
-## Jennifer Lawrence
-
-## [New Balance's "Dunks" Went Back to Basics  Still Look Good ](https://www.highsnobiety.com/p/new-balance-numeric-480-sneakers-2024/)
-
-Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes do no wrong. The 480 "Dunks" get better, actually.After enjoying some of the mos…
-
-*Published on: Mon, 29 Jul 2024 21:21:00 GMT*
-
-
-## Jennifer Lawrence
-
-## [Remember Patta  Nike’s Air Max Grail? Well, It's Back!](https://www.highsnobiety.com/p/patta-nike-air-max-1-chlorophyll-release-date-2024/)
-
-In 2009, Patta had an important anniversary to celebrate and it did so by releasing a Nike Air Max 1 collaboration that has become a grail.The Air Max 1 ‘Chlor…
-
-*Published on: Tue, 30 Jul 2024 08:15:43 GMT*
-
-
-## Jennifer Lawrence
-
-## [New Balance's Techy Loafer Hybrid (Finally) Steps In ](https://www.highsnobiety.com/p/new-balance-loafer-where-to-buy/)
-
-Since New Balance's 1906 loafer stepped on the runway earlier this year, it has left the sneaker community — post-sneaker advocates, too — perplexed and intrig…
-
-*Published on: Tue, 30 Jul 2024 09:00:00 GMT*
-
-
-## Jennifer Lawrence
-
-## [The Beauty of Olympics Skateboarding's Non-Uniforms](https://www.highsnobiety.com/p/olympics-skateboarding-outfits-2024/)
-
-Most athletes performing at Olympic games dress identically. Disparity occasionally goes beyond nationalistic color palettes, like how track runners wear short…
-
-*Published on: Tue, 30 Jul 2024 09:30:28 GMT*
-
-
-## Jennifer Lawrence
-
-## [The (Nike) Force Is Strong With NIGO's Sneakers](https://www.highsnobiety.com/p/nigo-victor-victor-nike-air-force-1-sneakers-2024/)
-
-NIGO has the sneaker world on its toes, patiently waiting for his long-awaited Nike collaboration . For months, the fashion icon has casually offered spoonfuls…
-
-*Published on: Tue, 30 Jul 2024 09:34:32 GMT*
-
-
-## Jennifer Lawrence
-
-## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
-
-The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
-
-*Published on: Tue, 30 Jul 2024 10:05:34 GMT*
-
-
-## Jennifer Lawrence
-
-## [Nike’s Techy New Air Max Gets Into the Olympic Spirit](https://www.highsnobiety.com/p/nike-air-max-dn-usa-olympics/)
-
-It’s been a busy six months for the Nike Air Max Dn.Introduced as the American sportswear giant’s techy new sneaker, the future of its iconic Air Max range, th…
-
-*Published on: Tue, 30 Jul 2024 11:13:24 GMT*
-
-
-## Jennifer Lawrence
-
 ## [Products to Prove the Camo Print's Comeback Was Hiding in Plain Sight](https://www.highsnobiety.com/p/camo-print-comeback/)
 
 After reporting on a camo print comeback no one seemed to notice – ba-dum-tss – we figured it was only fair we did the follow-up work of retrieving some  of th…
 
 *Published on: Mon, 29 Jul 2024 14:26:52 GMT*
-
-
-## Jennifer Lawrence
-
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Joe Biden
-
-## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
-
-AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
-
-*Published on: Mon, 29 Jul 2024 15:11:18 GMT*
 
 
 ## Joe Biden
@@ -6319,11 +6877,11 @@ It’s been a busy six months for the Nike Air Max Dn.Introduced as the American
 
 ## Joe Biden
 
-## [Products to Prove the Camo Print's Comeback Was Hiding in Plain Sight](https://www.highsnobiety.com/p/camo-print-comeback/)
+## [HOKA's Techy Sneaker Is Gloriously Bold](https://www.highsnobiety.com/p/hoka-japan-mafate-speed-2/)
 
-After reporting on a camo print comeback no one seemed to notice – ba-dum-tss – we figured it was only fair we did the follow-up work of retrieving some  of th…
+Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, and techy fabrics are all great, however, they’re not what make the shoe arguably …
 
-*Published on: Mon, 29 Jul 2024 14:26:52 GMT*
+*Published on: Tue, 30 Jul 2024 13:29:04 GMT*
 
 
 ## Joe Biden
@@ -6335,13 +6893,22 @@ Known as the gems of the ocean, pearls stand for purity and wisdom, and are the 
 *Published on: Mon, 29 Jul 2024 12:00:00 GMT*
 
 
-## J.K. Simmons
+## Joe Biden
 
 ## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
 
 *Published on: Mon, 29 Jul 2024 15:11:18 GMT*
+
+
+## Joe Biden
+
+## [Products to Prove the Camo Print's Comeback Was Hiding in Plain Sight](https://www.highsnobiety.com/p/camo-print-comeback/)
+
+After reporting on a camo print comeback no one seemed to notice – ba-dum-tss – we figured it was only fair we did the follow-up work of retrieving some  of th…
+
+*Published on: Mon, 29 Jul 2024 14:26:52 GMT*
 
 
 ## J.K. Simmons
@@ -6418,6 +6985,33 @@ It’s been a busy six months for the Nike Air Max Dn.Introduced as the American
 
 ## J.K. Simmons
 
+## [HOKA's Techy Sneaker Is Gloriously Bold](https://www.highsnobiety.com/p/hoka-japan-mafate-speed-2/)
+
+Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, and techy fabrics are all great, however, they’re not what make the shoe arguably …
+
+*Published on: Tue, 30 Jul 2024 13:29:04 GMT*
+
+
+## J.K. Simmons
+
+## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
+
+Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
+
+*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
+
+
+## J.K. Simmons
+
+## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
+
+AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
+
+*Published on: Mon, 29 Jul 2024 15:11:18 GMT*
+
+
+## J.K. Simmons
+
 ## [Products to Prove the Camo Print's Comeback Was Hiding in Plain Sight](https://www.highsnobiety.com/p/camo-print-comeback/)
 
 After reporting on a camo print comeback no one seemed to notice – ba-dum-tss – we figured it was only fair we did the follow-up work of retrieving some  of th…
@@ -6425,7 +7019,88 @@ After reporting on a camo print comeback no one seemed to notice – ba-dum-tss 
 *Published on: Mon, 29 Jul 2024 14:26:52 GMT*
 
 
-## J.K. Simmons
+## Kamala Harris
+
+## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
+
+PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
+
+*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
+
+
+## Kamala Harris
+
+## [New Balance's "Dunks" Went Back to Basics  Still Look Good ](https://www.highsnobiety.com/p/new-balance-numeric-480-sneakers-2024/)
+
+Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes do no wrong. The 480 "Dunks" get better, actually.After enjoying some of the mos…
+
+*Published on: Mon, 29 Jul 2024 21:21:00 GMT*
+
+
+## Kamala Harris
+
+## [Remember Patta  Nike’s Air Max Grail? Well, It's Back!](https://www.highsnobiety.com/p/patta-nike-air-max-1-chlorophyll-release-date-2024/)
+
+In 2009, Patta had an important anniversary to celebrate and it did so by releasing a Nike Air Max 1 collaboration that has become a grail.The Air Max 1 ‘Chlor…
+
+*Published on: Tue, 30 Jul 2024 08:15:43 GMT*
+
+
+## Kamala Harris
+
+## [New Balance's Techy Loafer Hybrid (Finally) Steps In ](https://www.highsnobiety.com/p/new-balance-loafer-where-to-buy/)
+
+Since New Balance's 1906 loafer stepped on the runway earlier this year, it has left the sneaker community — post-sneaker advocates, too — perplexed and intrig…
+
+*Published on: Tue, 30 Jul 2024 09:00:00 GMT*
+
+
+## Kamala Harris
+
+## [The Beauty of Olympics Skateboarding's Non-Uniforms](https://www.highsnobiety.com/p/olympics-skateboarding-outfits-2024/)
+
+Most athletes performing at Olympic games dress identically. Disparity occasionally goes beyond nationalistic color palettes, like how track runners wear short…
+
+*Published on: Tue, 30 Jul 2024 09:30:28 GMT*
+
+
+## Kamala Harris
+
+## [The (Nike) Force Is Strong With NIGO's Sneakers](https://www.highsnobiety.com/p/nigo-victor-victor-nike-air-force-1-sneakers-2024/)
+
+NIGO has the sneaker world on its toes, patiently waiting for his long-awaited Nike collaboration . For months, the fashion icon has casually offered spoonfuls…
+
+*Published on: Tue, 30 Jul 2024 09:34:32 GMT*
+
+
+## Kamala Harris
+
+## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
+
+The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
+
+*Published on: Tue, 30 Jul 2024 10:05:34 GMT*
+
+
+## Kamala Harris
+
+## [Nike’s Techy New Air Max Gets Into the Olympic Spirit](https://www.highsnobiety.com/p/nike-air-max-dn-usa-olympics/)
+
+It’s been a busy six months for the Nike Air Max Dn.Introduced as the American sportswear giant’s techy new sneaker, the future of its iconic Air Max range, th…
+
+*Published on: Tue, 30 Jul 2024 11:13:24 GMT*
+
+
+## Kamala Harris
+
+## [HOKA's Techy Sneaker Is Gloriously Bold](https://www.highsnobiety.com/p/hoka-japan-mafate-speed-2/)
+
+Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, and techy fabrics are all great, however, they’re not what make the shoe arguably …
+
+*Published on: Tue, 30 Jul 2024 13:29:04 GMT*
+
+
+## Kamala Harris
 
 ## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
 
@@ -6445,101 +7120,11 @@ AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end pro
 
 ## Kamala Harris
 
-## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
-
-PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
-
-*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
-
-
-## Kamala Harris
-
-## [New Balance's "Dunks" Went Back to Basics  Still Look Good ](https://www.highsnobiety.com/p/new-balance-numeric-480-sneakers-2024/)
-
-Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes do no wrong. The 480 "Dunks" get better, actually.After enjoying some of the mos…
-
-*Published on: Mon, 29 Jul 2024 21:21:00 GMT*
-
-
-## Kamala Harris
-
-## [Remember Patta  Nike’s Air Max Grail? Well, It's Back!](https://www.highsnobiety.com/p/patta-nike-air-max-1-chlorophyll-release-date-2024/)
-
-In 2009, Patta had an important anniversary to celebrate and it did so by releasing a Nike Air Max 1 collaboration that has become a grail.The Air Max 1 ‘Chlor…
-
-*Published on: Tue, 30 Jul 2024 08:15:43 GMT*
-
-
-## Kamala Harris
-
-## [New Balance's Techy Loafer Hybrid (Finally) Steps In ](https://www.highsnobiety.com/p/new-balance-loafer-where-to-buy/)
-
-Since New Balance's 1906 loafer stepped on the runway earlier this year, it has left the sneaker community — post-sneaker advocates, too — perplexed and intrig…
-
-*Published on: Tue, 30 Jul 2024 09:00:00 GMT*
-
-
-## Kamala Harris
-
-## [The Beauty of Olympics Skateboarding's Non-Uniforms](https://www.highsnobiety.com/p/olympics-skateboarding-outfits-2024/)
-
-Most athletes performing at Olympic games dress identically. Disparity occasionally goes beyond nationalistic color palettes, like how track runners wear short…
-
-*Published on: Tue, 30 Jul 2024 09:30:28 GMT*
-
-
-## Kamala Harris
-
-## [The (Nike) Force Is Strong With NIGO's Sneakers](https://www.highsnobiety.com/p/nigo-victor-victor-nike-air-force-1-sneakers-2024/)
-
-NIGO has the sneaker world on its toes, patiently waiting for his long-awaited Nike collaboration . For months, the fashion icon has casually offered spoonfuls…
-
-*Published on: Tue, 30 Jul 2024 09:34:32 GMT*
-
-
-## Kamala Harris
-
-## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
-
-The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
-
-*Published on: Tue, 30 Jul 2024 10:05:34 GMT*
-
-
-## Kamala Harris
-
-## [Nike’s Techy New Air Max Gets Into the Olympic Spirit](https://www.highsnobiety.com/p/nike-air-max-dn-usa-olympics/)
-
-It’s been a busy six months for the Nike Air Max Dn.Introduced as the American sportswear giant’s techy new sneaker, the future of its iconic Air Max range, th…
-
-*Published on: Tue, 30 Jul 2024 11:13:24 GMT*
-
-
-## Kamala Harris
-
 ## [Products to Prove the Camo Print's Comeback Was Hiding in Plain Sight](https://www.highsnobiety.com/p/camo-print-comeback/)
 
 After reporting on a camo print comeback no one seemed to notice – ba-dum-tss – we figured it was only fair we did the follow-up work of retrieving some  of th…
 
 *Published on: Mon, 29 Jul 2024 14:26:52 GMT*
-
-
-## Kamala Harris
-
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## John C Reilly
-
-## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
-
-AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
-
-*Published on: Mon, 29 Jul 2024 15:11:18 GMT*
 
 
 ## John C Reilly
@@ -6616,11 +7201,11 @@ It’s been a busy six months for the Nike Air Max Dn.Introduced as the American
 
 ## John C Reilly
 
-## [Products to Prove the Camo Print's Comeback Was Hiding in Plain Sight](https://www.highsnobiety.com/p/camo-print-comeback/)
+## [HOKA's Techy Sneaker Is Gloriously Bold](https://www.highsnobiety.com/p/hoka-japan-mafate-speed-2/)
 
-After reporting on a camo print comeback no one seemed to notice – ba-dum-tss – we figured it was only fair we did the follow-up work of retrieving some  of th…
+Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, and techy fabrics are all great, however, they’re not what make the shoe arguably …
 
-*Published on: Mon, 29 Jul 2024 14:26:52 GMT*
+*Published on: Tue, 30 Jul 2024 13:29:04 GMT*
 
 
 ## John C Reilly
@@ -6632,13 +7217,22 @@ Known as the gems of the ocean, pearls stand for purity and wisdom, and are the 
 *Published on: Mon, 29 Jul 2024 12:00:00 GMT*
 
 
-## Kardashian
+## John C Reilly
 
 ## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
 
 *Published on: Mon, 29 Jul 2024 15:11:18 GMT*
+
+
+## John C Reilly
+
+## [Products to Prove the Camo Print's Comeback Was Hiding in Plain Sight](https://www.highsnobiety.com/p/camo-print-comeback/)
+
+After reporting on a camo print comeback no one seemed to notice – ba-dum-tss – we figured it was only fair we did the follow-up work of retrieving some  of th…
+
+*Published on: Mon, 29 Jul 2024 14:26:52 GMT*
 
 
 ## Kardashian
@@ -6715,6 +7309,33 @@ It’s been a busy six months for the Nike Air Max Dn.Introduced as the American
 
 ## Kardashian
 
+## [HOKA's Techy Sneaker Is Gloriously Bold](https://www.highsnobiety.com/p/hoka-japan-mafate-speed-2/)
+
+Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, and techy fabrics are all great, however, they’re not what make the shoe arguably …
+
+*Published on: Tue, 30 Jul 2024 13:29:04 GMT*
+
+
+## Kardashian
+
+## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
+
+Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
+
+*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
+
+
+## Kardashian
+
+## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
+
+AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
+
+*Published on: Mon, 29 Jul 2024 15:11:18 GMT*
+
+
+## Kardashian
+
 ## [Products to Prove the Camo Print's Comeback Was Hiding in Plain Sight](https://www.highsnobiety.com/p/camo-print-comeback/)
 
 After reporting on a camo print comeback no one seemed to notice – ba-dum-tss – we figured it was only fair we did the follow-up work of retrieving some  of th…
@@ -6722,7 +7343,88 @@ After reporting on a camo print comeback no one seemed to notice – ba-dum-tss 
 *Published on: Mon, 29 Jul 2024 14:26:52 GMT*
 
 
-## Kardashian
+## Kanye
+
+## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
+
+PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
+
+*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
+
+
+## Kanye
+
+## [New Balance's "Dunks" Went Back to Basics  Still Look Good ](https://www.highsnobiety.com/p/new-balance-numeric-480-sneakers-2024/)
+
+Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes do no wrong. The 480 "Dunks" get better, actually.After enjoying some of the mos…
+
+*Published on: Mon, 29 Jul 2024 21:21:00 GMT*
+
+
+## Kanye
+
+## [Remember Patta  Nike’s Air Max Grail? Well, It's Back!](https://www.highsnobiety.com/p/patta-nike-air-max-1-chlorophyll-release-date-2024/)
+
+In 2009, Patta had an important anniversary to celebrate and it did so by releasing a Nike Air Max 1 collaboration that has become a grail.The Air Max 1 ‘Chlor…
+
+*Published on: Tue, 30 Jul 2024 08:15:43 GMT*
+
+
+## Kanye
+
+## [New Balance's Techy Loafer Hybrid (Finally) Steps In ](https://www.highsnobiety.com/p/new-balance-loafer-where-to-buy/)
+
+Since New Balance's 1906 loafer stepped on the runway earlier this year, it has left the sneaker community — post-sneaker advocates, too — perplexed and intrig…
+
+*Published on: Tue, 30 Jul 2024 09:00:00 GMT*
+
+
+## Kanye
+
+## [The Beauty of Olympics Skateboarding's Non-Uniforms](https://www.highsnobiety.com/p/olympics-skateboarding-outfits-2024/)
+
+Most athletes performing at Olympic games dress identically. Disparity occasionally goes beyond nationalistic color palettes, like how track runners wear short…
+
+*Published on: Tue, 30 Jul 2024 09:30:28 GMT*
+
+
+## Kanye
+
+## [The (Nike) Force Is Strong With NIGO's Sneakers](https://www.highsnobiety.com/p/nigo-victor-victor-nike-air-force-1-sneakers-2024/)
+
+NIGO has the sneaker world on its toes, patiently waiting for his long-awaited Nike collaboration . For months, the fashion icon has casually offered spoonfuls…
+
+*Published on: Tue, 30 Jul 2024 09:34:32 GMT*
+
+
+## Kanye
+
+## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
+
+The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
+
+*Published on: Tue, 30 Jul 2024 10:05:34 GMT*
+
+
+## Kanye
+
+## [Nike’s Techy New Air Max Gets Into the Olympic Spirit](https://www.highsnobiety.com/p/nike-air-max-dn-usa-olympics/)
+
+It’s been a busy six months for the Nike Air Max Dn.Introduced as the American sportswear giant’s techy new sneaker, the future of its iconic Air Max range, th…
+
+*Published on: Tue, 30 Jul 2024 11:13:24 GMT*
+
+
+## Kanye
+
+## [HOKA's Techy Sneaker Is Gloriously Bold](https://www.highsnobiety.com/p/hoka-japan-mafate-speed-2/)
+
+Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, and techy fabrics are all great, however, they’re not what make the shoe arguably …
+
+*Published on: Tue, 30 Jul 2024 13:29:04 GMT*
+
+
+## Kanye
 
 ## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
 
@@ -6742,101 +7444,11 @@ AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end pro
 
 ## Kanye
 
-## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
-
-PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
-
-*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
-
-
-## Kanye
-
-## [New Balance's "Dunks" Went Back to Basics  Still Look Good ](https://www.highsnobiety.com/p/new-balance-numeric-480-sneakers-2024/)
-
-Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes do no wrong. The 480 "Dunks" get better, actually.After enjoying some of the mos…
-
-*Published on: Mon, 29 Jul 2024 21:21:00 GMT*
-
-
-## Kanye
-
-## [Remember Patta  Nike’s Air Max Grail? Well, It's Back!](https://www.highsnobiety.com/p/patta-nike-air-max-1-chlorophyll-release-date-2024/)
-
-In 2009, Patta had an important anniversary to celebrate and it did so by releasing a Nike Air Max 1 collaboration that has become a grail.The Air Max 1 ‘Chlor…
-
-*Published on: Tue, 30 Jul 2024 08:15:43 GMT*
-
-
-## Kanye
-
-## [New Balance's Techy Loafer Hybrid (Finally) Steps In ](https://www.highsnobiety.com/p/new-balance-loafer-where-to-buy/)
-
-Since New Balance's 1906 loafer stepped on the runway earlier this year, it has left the sneaker community — post-sneaker advocates, too — perplexed and intrig…
-
-*Published on: Tue, 30 Jul 2024 09:00:00 GMT*
-
-
-## Kanye
-
-## [The Beauty of Olympics Skateboarding's Non-Uniforms](https://www.highsnobiety.com/p/olympics-skateboarding-outfits-2024/)
-
-Most athletes performing at Olympic games dress identically. Disparity occasionally goes beyond nationalistic color palettes, like how track runners wear short…
-
-*Published on: Tue, 30 Jul 2024 09:30:28 GMT*
-
-
-## Kanye
-
-## [The (Nike) Force Is Strong With NIGO's Sneakers](https://www.highsnobiety.com/p/nigo-victor-victor-nike-air-force-1-sneakers-2024/)
-
-NIGO has the sneaker world on its toes, patiently waiting for his long-awaited Nike collaboration . For months, the fashion icon has casually offered spoonfuls…
-
-*Published on: Tue, 30 Jul 2024 09:34:32 GMT*
-
-
-## Kanye
-
-## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
-
-The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
-
-*Published on: Tue, 30 Jul 2024 10:05:34 GMT*
-
-
-## Kanye
-
-## [Nike’s Techy New Air Max Gets Into the Olympic Spirit](https://www.highsnobiety.com/p/nike-air-max-dn-usa-olympics/)
-
-It’s been a busy six months for the Nike Air Max Dn.Introduced as the American sportswear giant’s techy new sneaker, the future of its iconic Air Max range, th…
-
-*Published on: Tue, 30 Jul 2024 11:13:24 GMT*
-
-
-## Kanye
-
 ## [Products to Prove the Camo Print's Comeback Was Hiding in Plain Sight](https://www.highsnobiety.com/p/camo-print-comeback/)
 
 After reporting on a camo print comeback no one seemed to notice – ba-dum-tss – we figured it was only fair we did the follow-up work of retrieving some  of th…
 
 *Published on: Mon, 29 Jul 2024 14:26:52 GMT*
-
-
-## Kanye
-
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Zendaya
-
-## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
-
-AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
-
-*Published on: Mon, 29 Jul 2024 15:11:18 GMT*
 
 
 ## Zendaya
@@ -6913,11 +7525,11 @@ It’s been a busy six months for the Nike Air Max Dn.Introduced as the American
 
 ## Zendaya
 
-## [Products to Prove the Camo Print's Comeback Was Hiding in Plain Sight](https://www.highsnobiety.com/p/camo-print-comeback/)
+## [HOKA's Techy Sneaker Is Gloriously Bold](https://www.highsnobiety.com/p/hoka-japan-mafate-speed-2/)
 
-After reporting on a camo print comeback no one seemed to notice – ba-dum-tss – we figured it was only fair we did the follow-up work of retrieving some  of th…
+Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, and techy fabrics are all great, however, they’re not what make the shoe arguably …
 
-*Published on: Mon, 29 Jul 2024 14:26:52 GMT*
+*Published on: Tue, 30 Jul 2024 13:29:04 GMT*
 
 
 ## Zendaya
@@ -6929,13 +7541,22 @@ Known as the gems of the ocean, pearls stand for purity and wisdom, and are the 
 *Published on: Mon, 29 Jul 2024 12:00:00 GMT*
 
 
-## Will Ferrell
+## Zendaya
 
 ## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
 
 *Published on: Mon, 29 Jul 2024 15:11:18 GMT*
+
+
+## Zendaya
+
+## [Products to Prove the Camo Print's Comeback Was Hiding in Plain Sight](https://www.highsnobiety.com/p/camo-print-comeback/)
+
+After reporting on a camo print comeback no one seemed to notice – ba-dum-tss – we figured it was only fair we did the follow-up work of retrieving some  of th…
+
+*Published on: Mon, 29 Jul 2024 14:26:52 GMT*
 
 
 ## Will Ferrell
@@ -7012,6 +7633,33 @@ It’s been a busy six months for the Nike Air Max Dn.Introduced as the American
 
 ## Will Ferrell
 
+## [HOKA's Techy Sneaker Is Gloriously Bold](https://www.highsnobiety.com/p/hoka-japan-mafate-speed-2/)
+
+Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, and techy fabrics are all great, however, they’re not what make the shoe arguably …
+
+*Published on: Tue, 30 Jul 2024 13:29:04 GMT*
+
+
+## Will Ferrell
+
+## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
+
+Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
+
+*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
+
+
+## Will Ferrell
+
+## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
+
+AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
+
+*Published on: Mon, 29 Jul 2024 15:11:18 GMT*
+
+
+## Will Ferrell
+
 ## [Products to Prove the Camo Print's Comeback Was Hiding in Plain Sight](https://www.highsnobiety.com/p/camo-print-comeback/)
 
 After reporting on a camo print comeback no one seemed to notice – ba-dum-tss – we figured it was only fair we did the follow-up work of retrieving some  of th…
@@ -7019,7 +7667,88 @@ After reporting on a camo print comeback no one seemed to notice – ba-dum-tss 
 *Published on: Mon, 29 Jul 2024 14:26:52 GMT*
 
 
-## Will Ferrell
+## Zazie Beetz
+
+## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
+
+PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
+
+*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
+
+
+## Zazie Beetz
+
+## [New Balance's "Dunks" Went Back to Basics  Still Look Good ](https://www.highsnobiety.com/p/new-balance-numeric-480-sneakers-2024/)
+
+Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes do no wrong. The 480 "Dunks" get better, actually.After enjoying some of the mos…
+
+*Published on: Mon, 29 Jul 2024 21:21:00 GMT*
+
+
+## Zazie Beetz
+
+## [Remember Patta  Nike’s Air Max Grail? Well, It's Back!](https://www.highsnobiety.com/p/patta-nike-air-max-1-chlorophyll-release-date-2024/)
+
+In 2009, Patta had an important anniversary to celebrate and it did so by releasing a Nike Air Max 1 collaboration that has become a grail.The Air Max 1 ‘Chlor…
+
+*Published on: Tue, 30 Jul 2024 08:15:43 GMT*
+
+
+## Zazie Beetz
+
+## [New Balance's Techy Loafer Hybrid (Finally) Steps In ](https://www.highsnobiety.com/p/new-balance-loafer-where-to-buy/)
+
+Since New Balance's 1906 loafer stepped on the runway earlier this year, it has left the sneaker community — post-sneaker advocates, too — perplexed and intrig…
+
+*Published on: Tue, 30 Jul 2024 09:00:00 GMT*
+
+
+## Zazie Beetz
+
+## [The Beauty of Olympics Skateboarding's Non-Uniforms](https://www.highsnobiety.com/p/olympics-skateboarding-outfits-2024/)
+
+Most athletes performing at Olympic games dress identically. Disparity occasionally goes beyond nationalistic color palettes, like how track runners wear short…
+
+*Published on: Tue, 30 Jul 2024 09:30:28 GMT*
+
+
+## Zazie Beetz
+
+## [The (Nike) Force Is Strong With NIGO's Sneakers](https://www.highsnobiety.com/p/nigo-victor-victor-nike-air-force-1-sneakers-2024/)
+
+NIGO has the sneaker world on its toes, patiently waiting for his long-awaited Nike collaboration . For months, the fashion icon has casually offered spoonfuls…
+
+*Published on: Tue, 30 Jul 2024 09:34:32 GMT*
+
+
+## Zazie Beetz
+
+## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
+
+The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
+
+*Published on: Tue, 30 Jul 2024 10:05:34 GMT*
+
+
+## Zazie Beetz
+
+## [Nike’s Techy New Air Max Gets Into the Olympic Spirit](https://www.highsnobiety.com/p/nike-air-max-dn-usa-olympics/)
+
+It’s been a busy six months for the Nike Air Max Dn.Introduced as the American sportswear giant’s techy new sneaker, the future of its iconic Air Max range, th…
+
+*Published on: Tue, 30 Jul 2024 11:13:24 GMT*
+
+
+## Zazie Beetz
+
+## [HOKA's Techy Sneaker Is Gloriously Bold](https://www.highsnobiety.com/p/hoka-japan-mafate-speed-2/)
+
+Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, and techy fabrics are all great, however, they’re not what make the shoe arguably …
+
+*Published on: Tue, 30 Jul 2024 13:29:04 GMT*
+
+
+## Zazie Beetz
 
 ## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
 
@@ -7039,101 +7768,11 @@ AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end pro
 
 ## Zazie Beetz
 
-## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
-
-PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
-
-*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
-
-
-## Zazie Beetz
-
-## [New Balance's "Dunks" Went Back to Basics  Still Look Good ](https://www.highsnobiety.com/p/new-balance-numeric-480-sneakers-2024/)
-
-Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes do no wrong. The 480 "Dunks" get better, actually.After enjoying some of the mos…
-
-*Published on: Mon, 29 Jul 2024 21:21:00 GMT*
-
-
-## Zazie Beetz
-
-## [Remember Patta  Nike’s Air Max Grail? Well, It's Back!](https://www.highsnobiety.com/p/patta-nike-air-max-1-chlorophyll-release-date-2024/)
-
-In 2009, Patta had an important anniversary to celebrate and it did so by releasing a Nike Air Max 1 collaboration that has become a grail.The Air Max 1 ‘Chlor…
-
-*Published on: Tue, 30 Jul 2024 08:15:43 GMT*
-
-
-## Zazie Beetz
-
-## [New Balance's Techy Loafer Hybrid (Finally) Steps In ](https://www.highsnobiety.com/p/new-balance-loafer-where-to-buy/)
-
-Since New Balance's 1906 loafer stepped on the runway earlier this year, it has left the sneaker community — post-sneaker advocates, too — perplexed and intrig…
-
-*Published on: Tue, 30 Jul 2024 09:00:00 GMT*
-
-
-## Zazie Beetz
-
-## [The Beauty of Olympics Skateboarding's Non-Uniforms](https://www.highsnobiety.com/p/olympics-skateboarding-outfits-2024/)
-
-Most athletes performing at Olympic games dress identically. Disparity occasionally goes beyond nationalistic color palettes, like how track runners wear short…
-
-*Published on: Tue, 30 Jul 2024 09:30:28 GMT*
-
-
-## Zazie Beetz
-
-## [The (Nike) Force Is Strong With NIGO's Sneakers](https://www.highsnobiety.com/p/nigo-victor-victor-nike-air-force-1-sneakers-2024/)
-
-NIGO has the sneaker world on its toes, patiently waiting for his long-awaited Nike collaboration . For months, the fashion icon has casually offered spoonfuls…
-
-*Published on: Tue, 30 Jul 2024 09:34:32 GMT*
-
-
-## Zazie Beetz
-
-## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
-
-The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
-
-*Published on: Tue, 30 Jul 2024 10:05:34 GMT*
-
-
-## Zazie Beetz
-
-## [Nike’s Techy New Air Max Gets Into the Olympic Spirit](https://www.highsnobiety.com/p/nike-air-max-dn-usa-olympics/)
-
-It’s been a busy six months for the Nike Air Max Dn.Introduced as the American sportswear giant’s techy new sneaker, the future of its iconic Air Max range, th…
-
-*Published on: Tue, 30 Jul 2024 11:13:24 GMT*
-
-
-## Zazie Beetz
-
 ## [Products to Prove the Camo Print's Comeback Was Hiding in Plain Sight](https://www.highsnobiety.com/p/camo-print-comeback/)
 
 After reporting on a camo print comeback no one seemed to notice – ba-dum-tss – we figured it was only fair we did the follow-up work of retrieving some  of th…
 
 *Published on: Mon, 29 Jul 2024 14:26:52 GMT*
-
-
-## Zazie Beetz
-
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Bob Odenkirk
-
-## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
-
-AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
-
-*Published on: Mon, 29 Jul 2024 15:11:18 GMT*
 
 
 ## Bob Odenkirk
@@ -7210,11 +7849,11 @@ It’s been a busy six months for the Nike Air Max Dn.Introduced as the American
 
 ## Bob Odenkirk
 
-## [Products to Prove the Camo Print's Comeback Was Hiding in Plain Sight](https://www.highsnobiety.com/p/camo-print-comeback/)
+## [HOKA's Techy Sneaker Is Gloriously Bold](https://www.highsnobiety.com/p/hoka-japan-mafate-speed-2/)
 
-After reporting on a camo print comeback no one seemed to notice – ba-dum-tss – we figured it was only fair we did the follow-up work of retrieving some  of th…
+Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, and techy fabrics are all great, however, they’re not what make the shoe arguably …
 
-*Published on: Mon, 29 Jul 2024 14:26:52 GMT*
+*Published on: Tue, 30 Jul 2024 13:29:04 GMT*
 
 
 ## Bob Odenkirk
@@ -7226,13 +7865,22 @@ Known as the gems of the ocean, pearls stand for purity and wisdom, and are the 
 *Published on: Mon, 29 Jul 2024 12:00:00 GMT*
 
 
-## Brad Pitt
+## Bob Odenkirk
 
 ## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
 
 *Published on: Mon, 29 Jul 2024 15:11:18 GMT*
+
+
+## Bob Odenkirk
+
+## [Products to Prove the Camo Print's Comeback Was Hiding in Plain Sight](https://www.highsnobiety.com/p/camo-print-comeback/)
+
+After reporting on a camo print comeback no one seemed to notice – ba-dum-tss – we figured it was only fair we did the follow-up work of retrieving some  of th…
+
+*Published on: Mon, 29 Jul 2024 14:26:52 GMT*
 
 
 ## Brad Pitt
@@ -7309,6 +7957,33 @@ It’s been a busy six months for the Nike Air Max Dn.Introduced as the American
 
 ## Brad Pitt
 
+## [HOKA's Techy Sneaker Is Gloriously Bold](https://www.highsnobiety.com/p/hoka-japan-mafate-speed-2/)
+
+Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, and techy fabrics are all great, however, they’re not what make the shoe arguably …
+
+*Published on: Tue, 30 Jul 2024 13:29:04 GMT*
+
+
+## Brad Pitt
+
+## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
+
+Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
+
+*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
+
+
+## Brad Pitt
+
+## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
+
+AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
+
+*Published on: Mon, 29 Jul 2024 15:11:18 GMT*
+
+
+## Brad Pitt
+
 ## [Products to Prove the Camo Print's Comeback Was Hiding in Plain Sight](https://www.highsnobiety.com/p/camo-print-comeback/)
 
 After reporting on a camo print comeback no one seemed to notice – ba-dum-tss – we figured it was only fair we did the follow-up work of retrieving some  of th…
@@ -7316,7 +7991,88 @@ After reporting on a camo print comeback no one seemed to notice – ba-dum-tss 
 *Published on: Mon, 29 Jul 2024 14:26:52 GMT*
 
 
-## Brad Pitt
+## Beyoncé
+
+## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
+
+PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
+
+*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
+
+
+## Beyoncé
+
+## [New Balance's "Dunks" Went Back to Basics  Still Look Good ](https://www.highsnobiety.com/p/new-balance-numeric-480-sneakers-2024/)
+
+Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes do no wrong. The 480 "Dunks" get better, actually.After enjoying some of the mos…
+
+*Published on: Mon, 29 Jul 2024 21:21:00 GMT*
+
+
+## Beyoncé
+
+## [Remember Patta  Nike’s Air Max Grail? Well, It's Back!](https://www.highsnobiety.com/p/patta-nike-air-max-1-chlorophyll-release-date-2024/)
+
+In 2009, Patta had an important anniversary to celebrate and it did so by releasing a Nike Air Max 1 collaboration that has become a grail.The Air Max 1 ‘Chlor…
+
+*Published on: Tue, 30 Jul 2024 08:15:43 GMT*
+
+
+## Beyoncé
+
+## [New Balance's Techy Loafer Hybrid (Finally) Steps In ](https://www.highsnobiety.com/p/new-balance-loafer-where-to-buy/)
+
+Since New Balance's 1906 loafer stepped on the runway earlier this year, it has left the sneaker community — post-sneaker advocates, too — perplexed and intrig…
+
+*Published on: Tue, 30 Jul 2024 09:00:00 GMT*
+
+
+## Beyoncé
+
+## [The Beauty of Olympics Skateboarding's Non-Uniforms](https://www.highsnobiety.com/p/olympics-skateboarding-outfits-2024/)
+
+Most athletes performing at Olympic games dress identically. Disparity occasionally goes beyond nationalistic color palettes, like how track runners wear short…
+
+*Published on: Tue, 30 Jul 2024 09:30:28 GMT*
+
+
+## Beyoncé
+
+## [The (Nike) Force Is Strong With NIGO's Sneakers](https://www.highsnobiety.com/p/nigo-victor-victor-nike-air-force-1-sneakers-2024/)
+
+NIGO has the sneaker world on its toes, patiently waiting for his long-awaited Nike collaboration . For months, the fashion icon has casually offered spoonfuls…
+
+*Published on: Tue, 30 Jul 2024 09:34:32 GMT*
+
+
+## Beyoncé
+
+## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
+
+The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
+
+*Published on: Tue, 30 Jul 2024 10:05:34 GMT*
+
+
+## Beyoncé
+
+## [Nike’s Techy New Air Max Gets Into the Olympic Spirit](https://www.highsnobiety.com/p/nike-air-max-dn-usa-olympics/)
+
+It’s been a busy six months for the Nike Air Max Dn.Introduced as the American sportswear giant’s techy new sneaker, the future of its iconic Air Max range, th…
+
+*Published on: Tue, 30 Jul 2024 11:13:24 GMT*
+
+
+## Beyoncé
+
+## [HOKA's Techy Sneaker Is Gloriously Bold](https://www.highsnobiety.com/p/hoka-japan-mafate-speed-2/)
+
+Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, and techy fabrics are all great, however, they’re not what make the shoe arguably …
+
+*Published on: Tue, 30 Jul 2024 13:29:04 GMT*
+
+
+## Beyoncé
 
 ## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
 
@@ -7336,101 +8092,11 @@ AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end pro
 
 ## Beyoncé
 
-## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
-
-PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
-
-*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
-
-
-## Beyoncé
-
-## [New Balance's "Dunks" Went Back to Basics  Still Look Good ](https://www.highsnobiety.com/p/new-balance-numeric-480-sneakers-2024/)
-
-Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes do no wrong. The 480 "Dunks" get better, actually.After enjoying some of the mos…
-
-*Published on: Mon, 29 Jul 2024 21:21:00 GMT*
-
-
-## Beyoncé
-
-## [Remember Patta  Nike’s Air Max Grail? Well, It's Back!](https://www.highsnobiety.com/p/patta-nike-air-max-1-chlorophyll-release-date-2024/)
-
-In 2009, Patta had an important anniversary to celebrate and it did so by releasing a Nike Air Max 1 collaboration that has become a grail.The Air Max 1 ‘Chlor…
-
-*Published on: Tue, 30 Jul 2024 08:15:43 GMT*
-
-
-## Beyoncé
-
-## [New Balance's Techy Loafer Hybrid (Finally) Steps In ](https://www.highsnobiety.com/p/new-balance-loafer-where-to-buy/)
-
-Since New Balance's 1906 loafer stepped on the runway earlier this year, it has left the sneaker community — post-sneaker advocates, too — perplexed and intrig…
-
-*Published on: Tue, 30 Jul 2024 09:00:00 GMT*
-
-
-## Beyoncé
-
-## [The Beauty of Olympics Skateboarding's Non-Uniforms](https://www.highsnobiety.com/p/olympics-skateboarding-outfits-2024/)
-
-Most athletes performing at Olympic games dress identically. Disparity occasionally goes beyond nationalistic color palettes, like how track runners wear short…
-
-*Published on: Tue, 30 Jul 2024 09:30:28 GMT*
-
-
-## Beyoncé
-
-## [The (Nike) Force Is Strong With NIGO's Sneakers](https://www.highsnobiety.com/p/nigo-victor-victor-nike-air-force-1-sneakers-2024/)
-
-NIGO has the sneaker world on its toes, patiently waiting for his long-awaited Nike collaboration . For months, the fashion icon has casually offered spoonfuls…
-
-*Published on: Tue, 30 Jul 2024 09:34:32 GMT*
-
-
-## Beyoncé
-
-## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
-
-The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
-
-*Published on: Tue, 30 Jul 2024 10:05:34 GMT*
-
-
-## Beyoncé
-
-## [Nike’s Techy New Air Max Gets Into the Olympic Spirit](https://www.highsnobiety.com/p/nike-air-max-dn-usa-olympics/)
-
-It’s been a busy six months for the Nike Air Max Dn.Introduced as the American sportswear giant’s techy new sneaker, the future of its iconic Air Max range, th…
-
-*Published on: Tue, 30 Jul 2024 11:13:24 GMT*
-
-
-## Beyoncé
-
 ## [Products to Prove the Camo Print's Comeback Was Hiding in Plain Sight](https://www.highsnobiety.com/p/camo-print-comeback/)
 
 After reporting on a camo print comeback no one seemed to notice – ba-dum-tss – we figured it was only fair we did the follow-up work of retrieving some  of th…
 
 *Published on: Mon, 29 Jul 2024 14:26:52 GMT*
-
-
-## Beyoncé
-
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Bia
-
-## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
-
-AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
-
-*Published on: Mon, 29 Jul 2024 15:11:18 GMT*
 
 
 ## Bia
@@ -7507,11 +8173,11 @@ It’s been a busy six months for the Nike Air Max Dn.Introduced as the American
 
 ## Bia
 
-## [Products to Prove the Camo Print's Comeback Was Hiding in Plain Sight](https://www.highsnobiety.com/p/camo-print-comeback/)
+## [HOKA's Techy Sneaker Is Gloriously Bold](https://www.highsnobiety.com/p/hoka-japan-mafate-speed-2/)
 
-After reporting on a camo print comeback no one seemed to notice – ba-dum-tss – we figured it was only fair we did the follow-up work of retrieving some  of th…
+Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, and techy fabrics are all great, however, they’re not what make the shoe arguably …
 
-*Published on: Mon, 29 Jul 2024 14:26:52 GMT*
+*Published on: Tue, 30 Jul 2024 13:29:04 GMT*
 
 
 ## Bia
@@ -7523,13 +8189,22 @@ Known as the gems of the ocean, pearls stand for purity and wisdom, and are the 
 *Published on: Mon, 29 Jul 2024 12:00:00 GMT*
 
 
-## Avantika
+## Bia
 
 ## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
 
 *Published on: Mon, 29 Jul 2024 15:11:18 GMT*
+
+
+## Bia
+
+## [Products to Prove the Camo Print's Comeback Was Hiding in Plain Sight](https://www.highsnobiety.com/p/camo-print-comeback/)
+
+After reporting on a camo print comeback no one seemed to notice – ba-dum-tss – we figured it was only fair we did the follow-up work of retrieving some  of th…
+
+*Published on: Mon, 29 Jul 2024 14:26:52 GMT*
 
 
 ## Avantika
@@ -7606,6 +8281,33 @@ It’s been a busy six months for the Nike Air Max Dn.Introduced as the American
 
 ## Avantika
 
+## [HOKA's Techy Sneaker Is Gloriously Bold](https://www.highsnobiety.com/p/hoka-japan-mafate-speed-2/)
+
+Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, and techy fabrics are all great, however, they’re not what make the shoe arguably …
+
+*Published on: Tue, 30 Jul 2024 13:29:04 GMT*
+
+
+## Avantika
+
+## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
+
+Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
+
+*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
+
+
+## Avantika
+
+## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
+
+AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
+
+*Published on: Mon, 29 Jul 2024 15:11:18 GMT*
+
+
+## Avantika
+
 ## [Products to Prove the Camo Print's Comeback Was Hiding in Plain Sight](https://www.highsnobiety.com/p/camo-print-comeback/)
 
 After reporting on a camo print comeback no one seemed to notice – ba-dum-tss – we figured it was only fair we did the follow-up work of retrieving some  of th…
@@ -7613,7 +8315,88 @@ After reporting on a camo print comeback no one seemed to notice – ba-dum-tss 
 *Published on: Mon, 29 Jul 2024 14:26:52 GMT*
 
 
-## Avantika
+## Bernie Sanders
+
+## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
+
+PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
+
+*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
+
+
+## Bernie Sanders
+
+## [New Balance's "Dunks" Went Back to Basics  Still Look Good ](https://www.highsnobiety.com/p/new-balance-numeric-480-sneakers-2024/)
+
+Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes do no wrong. The 480 "Dunks" get better, actually.After enjoying some of the mos…
+
+*Published on: Mon, 29 Jul 2024 21:21:00 GMT*
+
+
+## Bernie Sanders
+
+## [Remember Patta  Nike’s Air Max Grail? Well, It's Back!](https://www.highsnobiety.com/p/patta-nike-air-max-1-chlorophyll-release-date-2024/)
+
+In 2009, Patta had an important anniversary to celebrate and it did so by releasing a Nike Air Max 1 collaboration that has become a grail.The Air Max 1 ‘Chlor…
+
+*Published on: Tue, 30 Jul 2024 08:15:43 GMT*
+
+
+## Bernie Sanders
+
+## [New Balance's Techy Loafer Hybrid (Finally) Steps In ](https://www.highsnobiety.com/p/new-balance-loafer-where-to-buy/)
+
+Since New Balance's 1906 loafer stepped on the runway earlier this year, it has left the sneaker community — post-sneaker advocates, too — perplexed and intrig…
+
+*Published on: Tue, 30 Jul 2024 09:00:00 GMT*
+
+
+## Bernie Sanders
+
+## [The Beauty of Olympics Skateboarding's Non-Uniforms](https://www.highsnobiety.com/p/olympics-skateboarding-outfits-2024/)
+
+Most athletes performing at Olympic games dress identically. Disparity occasionally goes beyond nationalistic color palettes, like how track runners wear short…
+
+*Published on: Tue, 30 Jul 2024 09:30:28 GMT*
+
+
+## Bernie Sanders
+
+## [The (Nike) Force Is Strong With NIGO's Sneakers](https://www.highsnobiety.com/p/nigo-victor-victor-nike-air-force-1-sneakers-2024/)
+
+NIGO has the sneaker world on its toes, patiently waiting for his long-awaited Nike collaboration . For months, the fashion icon has casually offered spoonfuls…
+
+*Published on: Tue, 30 Jul 2024 09:34:32 GMT*
+
+
+## Bernie Sanders
+
+## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
+
+The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
+
+*Published on: Tue, 30 Jul 2024 10:05:34 GMT*
+
+
+## Bernie Sanders
+
+## [Nike’s Techy New Air Max Gets Into the Olympic Spirit](https://www.highsnobiety.com/p/nike-air-max-dn-usa-olympics/)
+
+It’s been a busy six months for the Nike Air Max Dn.Introduced as the American sportswear giant’s techy new sneaker, the future of its iconic Air Max range, th…
+
+*Published on: Tue, 30 Jul 2024 11:13:24 GMT*
+
+
+## Bernie Sanders
+
+## [HOKA's Techy Sneaker Is Gloriously Bold](https://www.highsnobiety.com/p/hoka-japan-mafate-speed-2/)
+
+Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, and techy fabrics are all great, however, they’re not what make the shoe arguably …
+
+*Published on: Tue, 30 Jul 2024 13:29:04 GMT*
+
+
+## Bernie Sanders
 
 ## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
 
@@ -7633,101 +8416,11 @@ AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end pro
 
 ## Bernie Sanders
 
-## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
-
-PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
-
-*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
-
-
-## Bernie Sanders
-
-## [New Balance's "Dunks" Went Back to Basics  Still Look Good ](https://www.highsnobiety.com/p/new-balance-numeric-480-sneakers-2024/)
-
-Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes do no wrong. The 480 "Dunks" get better, actually.After enjoying some of the mos…
-
-*Published on: Mon, 29 Jul 2024 21:21:00 GMT*
-
-
-## Bernie Sanders
-
-## [Remember Patta  Nike’s Air Max Grail? Well, It's Back!](https://www.highsnobiety.com/p/patta-nike-air-max-1-chlorophyll-release-date-2024/)
-
-In 2009, Patta had an important anniversary to celebrate and it did so by releasing a Nike Air Max 1 collaboration that has become a grail.The Air Max 1 ‘Chlor…
-
-*Published on: Tue, 30 Jul 2024 08:15:43 GMT*
-
-
-## Bernie Sanders
-
-## [New Balance's Techy Loafer Hybrid (Finally) Steps In ](https://www.highsnobiety.com/p/new-balance-loafer-where-to-buy/)
-
-Since New Balance's 1906 loafer stepped on the runway earlier this year, it has left the sneaker community — post-sneaker advocates, too — perplexed and intrig…
-
-*Published on: Tue, 30 Jul 2024 09:00:00 GMT*
-
-
-## Bernie Sanders
-
-## [The Beauty of Olympics Skateboarding's Non-Uniforms](https://www.highsnobiety.com/p/olympics-skateboarding-outfits-2024/)
-
-Most athletes performing at Olympic games dress identically. Disparity occasionally goes beyond nationalistic color palettes, like how track runners wear short…
-
-*Published on: Tue, 30 Jul 2024 09:30:28 GMT*
-
-
-## Bernie Sanders
-
-## [The (Nike) Force Is Strong With NIGO's Sneakers](https://www.highsnobiety.com/p/nigo-victor-victor-nike-air-force-1-sneakers-2024/)
-
-NIGO has the sneaker world on its toes, patiently waiting for his long-awaited Nike collaboration . For months, the fashion icon has casually offered spoonfuls…
-
-*Published on: Tue, 30 Jul 2024 09:34:32 GMT*
-
-
-## Bernie Sanders
-
-## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
-
-The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
-
-*Published on: Tue, 30 Jul 2024 10:05:34 GMT*
-
-
-## Bernie Sanders
-
-## [Nike’s Techy New Air Max Gets Into the Olympic Spirit](https://www.highsnobiety.com/p/nike-air-max-dn-usa-olympics/)
-
-It’s been a busy six months for the Nike Air Max Dn.Introduced as the American sportswear giant’s techy new sneaker, the future of its iconic Air Max range, th…
-
-*Published on: Tue, 30 Jul 2024 11:13:24 GMT*
-
-
-## Bernie Sanders
-
 ## [Products to Prove the Camo Print's Comeback Was Hiding in Plain Sight](https://www.highsnobiety.com/p/camo-print-comeback/)
 
 After reporting on a camo print comeback no one seemed to notice – ba-dum-tss – we figured it was only fair we did the follow-up work of retrieving some  of th…
 
 *Published on: Mon, 29 Jul 2024 14:26:52 GMT*
-
-
-## Bernie Sanders
-
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Big Sean
-
-## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
-
-AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
-
-*Published on: Mon, 29 Jul 2024 15:11:18 GMT*
 
 
 ## Big Sean
@@ -7804,11 +8497,11 @@ It’s been a busy six months for the Nike Air Max Dn.Introduced as the American
 
 ## Big Sean
 
-## [Products to Prove the Camo Print's Comeback Was Hiding in Plain Sight](https://www.highsnobiety.com/p/camo-print-comeback/)
+## [HOKA's Techy Sneaker Is Gloriously Bold](https://www.highsnobiety.com/p/hoka-japan-mafate-speed-2/)
 
-After reporting on a camo print comeback no one seemed to notice – ba-dum-tss – we figured it was only fair we did the follow-up work of retrieving some  of th…
+Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, and techy fabrics are all great, however, they’re not what make the shoe arguably …
 
-*Published on: Mon, 29 Jul 2024 14:26:52 GMT*
+*Published on: Tue, 30 Jul 2024 13:29:04 GMT*
 
 
 ## Big Sean
@@ -7820,13 +8513,22 @@ Known as the gems of the ocean, pearls stand for purity and wisdom, and are the 
 *Published on: Mon, 29 Jul 2024 12:00:00 GMT*
 
 
-## BlockBoy JB
+## Big Sean
 
 ## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
 
 *Published on: Mon, 29 Jul 2024 15:11:18 GMT*
+
+
+## Big Sean
+
+## [Products to Prove the Camo Print's Comeback Was Hiding in Plain Sight](https://www.highsnobiety.com/p/camo-print-comeback/)
+
+After reporting on a camo print comeback no one seemed to notice – ba-dum-tss – we figured it was only fair we did the follow-up work of retrieving some  of th…
+
+*Published on: Mon, 29 Jul 2024 14:26:52 GMT*
 
 
 ## BlockBoy JB
@@ -7903,6 +8605,33 @@ It’s been a busy six months for the Nike Air Max Dn.Introduced as the American
 
 ## BlockBoy JB
 
+## [HOKA's Techy Sneaker Is Gloriously Bold](https://www.highsnobiety.com/p/hoka-japan-mafate-speed-2/)
+
+Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, and techy fabrics are all great, however, they’re not what make the shoe arguably …
+
+*Published on: Tue, 30 Jul 2024 13:29:04 GMT*
+
+
+## BlockBoy JB
+
+## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
+
+Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
+
+*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
+
+
+## BlockBoy JB
+
+## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
+
+AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
+
+*Published on: Mon, 29 Jul 2024 15:11:18 GMT*
+
+
+## BlockBoy JB
+
 ## [Products to Prove the Camo Print's Comeback Was Hiding in Plain Sight](https://www.highsnobiety.com/p/camo-print-comeback/)
 
 After reporting on a camo print comeback no one seemed to notice – ba-dum-tss – we figured it was only fair we did the follow-up work of retrieving some  of th…
@@ -7910,7 +8639,88 @@ After reporting on a camo print comeback no one seemed to notice – ba-dum-tss 
 *Published on: Mon, 29 Jul 2024 14:26:52 GMT*
 
 
-## BlockBoy JB
+## Biden
+
+## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
+
+PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
+
+*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
+
+
+## Biden
+
+## [New Balance's "Dunks" Went Back to Basics  Still Look Good ](https://www.highsnobiety.com/p/new-balance-numeric-480-sneakers-2024/)
+
+Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes do no wrong. The 480 "Dunks" get better, actually.After enjoying some of the mos…
+
+*Published on: Mon, 29 Jul 2024 21:21:00 GMT*
+
+
+## Biden
+
+## [Remember Patta  Nike’s Air Max Grail? Well, It's Back!](https://www.highsnobiety.com/p/patta-nike-air-max-1-chlorophyll-release-date-2024/)
+
+In 2009, Patta had an important anniversary to celebrate and it did so by releasing a Nike Air Max 1 collaboration that has become a grail.The Air Max 1 ‘Chlor…
+
+*Published on: Tue, 30 Jul 2024 08:15:43 GMT*
+
+
+## Biden
+
+## [New Balance's Techy Loafer Hybrid (Finally) Steps In ](https://www.highsnobiety.com/p/new-balance-loafer-where-to-buy/)
+
+Since New Balance's 1906 loafer stepped on the runway earlier this year, it has left the sneaker community — post-sneaker advocates, too — perplexed and intrig…
+
+*Published on: Tue, 30 Jul 2024 09:00:00 GMT*
+
+
+## Biden
+
+## [The Beauty of Olympics Skateboarding's Non-Uniforms](https://www.highsnobiety.com/p/olympics-skateboarding-outfits-2024/)
+
+Most athletes performing at Olympic games dress identically. Disparity occasionally goes beyond nationalistic color palettes, like how track runners wear short…
+
+*Published on: Tue, 30 Jul 2024 09:30:28 GMT*
+
+
+## Biden
+
+## [The (Nike) Force Is Strong With NIGO's Sneakers](https://www.highsnobiety.com/p/nigo-victor-victor-nike-air-force-1-sneakers-2024/)
+
+NIGO has the sneaker world on its toes, patiently waiting for his long-awaited Nike collaboration . For months, the fashion icon has casually offered spoonfuls…
+
+*Published on: Tue, 30 Jul 2024 09:34:32 GMT*
+
+
+## Biden
+
+## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
+
+The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
+
+*Published on: Tue, 30 Jul 2024 10:05:34 GMT*
+
+
+## Biden
+
+## [Nike’s Techy New Air Max Gets Into the Olympic Spirit](https://www.highsnobiety.com/p/nike-air-max-dn-usa-olympics/)
+
+It’s been a busy six months for the Nike Air Max Dn.Introduced as the American sportswear giant’s techy new sneaker, the future of its iconic Air Max range, th…
+
+*Published on: Tue, 30 Jul 2024 11:13:24 GMT*
+
+
+## Biden
+
+## [HOKA's Techy Sneaker Is Gloriously Bold](https://www.highsnobiety.com/p/hoka-japan-mafate-speed-2/)
+
+Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, and techy fabrics are all great, however, they’re not what make the shoe arguably …
+
+*Published on: Tue, 30 Jul 2024 13:29:04 GMT*
+
+
+## Biden
 
 ## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
 
@@ -7930,101 +8740,11 @@ AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end pro
 
 ## Biden
 
-## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
-
-PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
-
-*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
-
-
-## Biden
-
-## [New Balance's "Dunks" Went Back to Basics  Still Look Good ](https://www.highsnobiety.com/p/new-balance-numeric-480-sneakers-2024/)
-
-Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes do no wrong. The 480 "Dunks" get better, actually.After enjoying some of the mos…
-
-*Published on: Mon, 29 Jul 2024 21:21:00 GMT*
-
-
-## Biden
-
-## [Remember Patta  Nike’s Air Max Grail? Well, It's Back!](https://www.highsnobiety.com/p/patta-nike-air-max-1-chlorophyll-release-date-2024/)
-
-In 2009, Patta had an important anniversary to celebrate and it did so by releasing a Nike Air Max 1 collaboration that has become a grail.The Air Max 1 ‘Chlor…
-
-*Published on: Tue, 30 Jul 2024 08:15:43 GMT*
-
-
-## Biden
-
-## [New Balance's Techy Loafer Hybrid (Finally) Steps In ](https://www.highsnobiety.com/p/new-balance-loafer-where-to-buy/)
-
-Since New Balance's 1906 loafer stepped on the runway earlier this year, it has left the sneaker community — post-sneaker advocates, too — perplexed and intrig…
-
-*Published on: Tue, 30 Jul 2024 09:00:00 GMT*
-
-
-## Biden
-
-## [The Beauty of Olympics Skateboarding's Non-Uniforms](https://www.highsnobiety.com/p/olympics-skateboarding-outfits-2024/)
-
-Most athletes performing at Olympic games dress identically. Disparity occasionally goes beyond nationalistic color palettes, like how track runners wear short…
-
-*Published on: Tue, 30 Jul 2024 09:30:28 GMT*
-
-
-## Biden
-
-## [The (Nike) Force Is Strong With NIGO's Sneakers](https://www.highsnobiety.com/p/nigo-victor-victor-nike-air-force-1-sneakers-2024/)
-
-NIGO has the sneaker world on its toes, patiently waiting for his long-awaited Nike collaboration . For months, the fashion icon has casually offered spoonfuls…
-
-*Published on: Tue, 30 Jul 2024 09:34:32 GMT*
-
-
-## Biden
-
-## [Custom Python Skin Birkenstocks Are Peak Premium Clog](https://www.highsnobiety.com/p/birkenstock-the-shoe-surgeon/)
-
-The Birkenstock Boston clog, once a humble backless shoe loved for its orthopedic qualities, has become such a fashionable item that it’s tempted high fashion …
-
-*Published on: Tue, 30 Jul 2024 10:05:34 GMT*
-
-
-## Biden
-
-## [Nike’s Techy New Air Max Gets Into the Olympic Spirit](https://www.highsnobiety.com/p/nike-air-max-dn-usa-olympics/)
-
-It’s been a busy six months for the Nike Air Max Dn.Introduced as the American sportswear giant’s techy new sneaker, the future of its iconic Air Max range, th…
-
-*Published on: Tue, 30 Jul 2024 11:13:24 GMT*
-
-
-## Biden
-
 ## [Products to Prove the Camo Print's Comeback Was Hiding in Plain Sight](https://www.highsnobiety.com/p/camo-print-comeback/)
 
 After reporting on a camo print comeback no one seemed to notice – ba-dum-tss – we figured it was only fair we did the follow-up work of retrieving some  of th…
 
 *Published on: Mon, 29 Jul 2024 14:26:52 GMT*
-
-
-## Biden
-
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Bieber
-
-## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
-
-AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
-
-*Published on: Mon, 29 Jul 2024 15:11:18 GMT*
 
 
 ## Bieber
@@ -8101,11 +8821,11 @@ It’s been a busy six months for the Nike Air Max Dn.Introduced as the American
 
 ## Bieber
 
-## [Products to Prove the Camo Print's Comeback Was Hiding in Plain Sight](https://www.highsnobiety.com/p/camo-print-comeback/)
+## [HOKA's Techy Sneaker Is Gloriously Bold](https://www.highsnobiety.com/p/hoka-japan-mafate-speed-2/)
 
-After reporting on a camo print comeback no one seemed to notice – ba-dum-tss – we figured it was only fair we did the follow-up work of retrieving some  of th…
+Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, and techy fabrics are all great, however, they’re not what make the shoe arguably …
 
-*Published on: Mon, 29 Jul 2024 14:26:52 GMT*
+*Published on: Tue, 30 Jul 2024 13:29:04 GMT*
 
 
 ## Bieber
@@ -8117,13 +8837,22 @@ Known as the gems of the ocean, pearls stand for purity and wisdom, and are the 
 *Published on: Mon, 29 Jul 2024 12:00:00 GMT*
 
 
-## Paulina Porizkov
+## Bieber
 
 ## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
 
 *Published on: Mon, 29 Jul 2024 15:11:18 GMT*
+
+
+## Bieber
+
+## [Products to Prove the Camo Print's Comeback Was Hiding in Plain Sight](https://www.highsnobiety.com/p/camo-print-comeback/)
+
+After reporting on a camo print comeback no one seemed to notice – ba-dum-tss – we figured it was only fair we did the follow-up work of retrieving some  of th…
+
+*Published on: Mon, 29 Jul 2024 14:26:52 GMT*
 
 
 ## Paulina Porizkov
@@ -8200,11 +8929,11 @@ It’s been a busy six months for the Nike Air Max Dn.Introduced as the American
 
 ## Paulina Porizkov
 
-## [Products to Prove the Camo Print's Comeback Was Hiding in Plain Sight](https://www.highsnobiety.com/p/camo-print-comeback/)
+## [HOKA's Techy Sneaker Is Gloriously Bold](https://www.highsnobiety.com/p/hoka-japan-mafate-speed-2/)
 
-After reporting on a camo print comeback no one seemed to notice – ba-dum-tss – we figured it was only fair we did the follow-up work of retrieving some  of th…
+Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, and techy fabrics are all great, however, they’re not what make the shoe arguably …
 
-*Published on: Mon, 29 Jul 2024 14:26:52 GMT*
+*Published on: Tue, 30 Jul 2024 13:29:04 GMT*
 
 
 ## Paulina Porizkov
@@ -8216,13 +8945,22 @@ Known as the gems of the ocean, pearls stand for purity and wisdom, and are the 
 *Published on: Mon, 29 Jul 2024 12:00:00 GMT*
 
 
-## Paris Hilton
+## Paulina Porizkov
 
 ## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
 
 *Published on: Mon, 29 Jul 2024 15:11:18 GMT*
+
+
+## Paulina Porizkov
+
+## [Products to Prove the Camo Print's Comeback Was Hiding in Plain Sight](https://www.highsnobiety.com/p/camo-print-comeback/)
+
+After reporting on a camo print comeback no one seemed to notice – ba-dum-tss – we figured it was only fair we did the follow-up work of retrieving some  of th…
+
+*Published on: Mon, 29 Jul 2024 14:26:52 GMT*
 
 
 ## Paris Hilton
@@ -8299,11 +9037,11 @@ It’s been a busy six months for the Nike Air Max Dn.Introduced as the American
 
 ## Paris Hilton
 
-## [Products to Prove the Camo Print's Comeback Was Hiding in Plain Sight](https://www.highsnobiety.com/p/camo-print-comeback/)
+## [HOKA's Techy Sneaker Is Gloriously Bold](https://www.highsnobiety.com/p/hoka-japan-mafate-speed-2/)
 
-After reporting on a camo print comeback no one seemed to notice – ba-dum-tss – we figured it was only fair we did the follow-up work of retrieving some  of th…
+Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, and techy fabrics are all great, however, they’re not what make the shoe arguably …
 
-*Published on: Mon, 29 Jul 2024 14:26:52 GMT*
+*Published on: Tue, 30 Jul 2024 13:29:04 GMT*
 
 
 ## Paris Hilton
@@ -8315,13 +9053,22 @@ Known as the gems of the ocean, pearls stand for purity and wisdom, and are the 
 *Published on: Mon, 29 Jul 2024 12:00:00 GMT*
 
 
-## Metro Boomin
+## Paris Hilton
 
 ## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
 
 *Published on: Mon, 29 Jul 2024 15:11:18 GMT*
+
+
+## Paris Hilton
+
+## [Products to Prove the Camo Print's Comeback Was Hiding in Plain Sight](https://www.highsnobiety.com/p/camo-print-comeback/)
+
+After reporting on a camo print comeback no one seemed to notice – ba-dum-tss – we figured it was only fair we did the follow-up work of retrieving some  of th…
+
+*Published on: Mon, 29 Jul 2024 14:26:52 GMT*
 
 
 ## Metro Boomin
@@ -8398,11 +9145,11 @@ It’s been a busy six months for the Nike Air Max Dn.Introduced as the American
 
 ## Metro Boomin
 
-## [Products to Prove the Camo Print's Comeback Was Hiding in Plain Sight](https://www.highsnobiety.com/p/camo-print-comeback/)
+## [HOKA's Techy Sneaker Is Gloriously Bold](https://www.highsnobiety.com/p/hoka-japan-mafate-speed-2/)
 
-After reporting on a camo print comeback no one seemed to notice – ba-dum-tss – we figured it was only fair we did the follow-up work of retrieving some  of th…
+Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, and techy fabrics are all great, however, they’re not what make the shoe arguably …
 
-*Published on: Mon, 29 Jul 2024 14:26:52 GMT*
+*Published on: Tue, 30 Jul 2024 13:29:04 GMT*
 
 
 ## Metro Boomin
@@ -8414,13 +9161,22 @@ Known as the gems of the ocean, pearls stand for purity and wisdom, and are the 
 *Published on: Mon, 29 Jul 2024 12:00:00 GMT*
 
 
-## Meghan Markle
+## Metro Boomin
 
 ## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
 
 *Published on: Mon, 29 Jul 2024 15:11:18 GMT*
+
+
+## Metro Boomin
+
+## [Products to Prove the Camo Print's Comeback Was Hiding in Plain Sight](https://www.highsnobiety.com/p/camo-print-comeback/)
+
+After reporting on a camo print comeback no one seemed to notice – ba-dum-tss – we figured it was only fair we did the follow-up work of retrieving some  of th…
+
+*Published on: Mon, 29 Jul 2024 14:26:52 GMT*
 
 
 ## Meghan Markle
@@ -8497,11 +9253,11 @@ It’s been a busy six months for the Nike Air Max Dn.Introduced as the American
 
 ## Meghan Markle
 
-## [Products to Prove the Camo Print's Comeback Was Hiding in Plain Sight](https://www.highsnobiety.com/p/camo-print-comeback/)
+## [HOKA's Techy Sneaker Is Gloriously Bold](https://www.highsnobiety.com/p/hoka-japan-mafate-speed-2/)
 
-After reporting on a camo print comeback no one seemed to notice – ba-dum-tss – we figured it was only fair we did the follow-up work of retrieving some  of th…
+Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, and techy fabrics are all great, however, they’re not what make the shoe arguably …
 
-*Published on: Mon, 29 Jul 2024 14:26:52 GMT*
+*Published on: Tue, 30 Jul 2024 13:29:04 GMT*
 
 
 ## Meghan Markle
@@ -8513,13 +9269,22 @@ Known as the gems of the ocean, pearls stand for purity and wisdom, and are the 
 *Published on: Mon, 29 Jul 2024 12:00:00 GMT*
 
 
-## Megan Thee Stallion
+## Meghan Markle
 
 ## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
 
 *Published on: Mon, 29 Jul 2024 15:11:18 GMT*
+
+
+## Meghan Markle
+
+## [Products to Prove the Camo Print's Comeback Was Hiding in Plain Sight](https://www.highsnobiety.com/p/camo-print-comeback/)
+
+After reporting on a camo print comeback no one seemed to notice – ba-dum-tss – we figured it was only fair we did the follow-up work of retrieving some  of th…
+
+*Published on: Mon, 29 Jul 2024 14:26:52 GMT*
 
 
 ## Megan Thee Stallion
@@ -8596,11 +9361,11 @@ It’s been a busy six months for the Nike Air Max Dn.Introduced as the American
 
 ## Megan Thee Stallion
 
-## [Products to Prove the Camo Print's Comeback Was Hiding in Plain Sight](https://www.highsnobiety.com/p/camo-print-comeback/)
+## [HOKA's Techy Sneaker Is Gloriously Bold](https://www.highsnobiety.com/p/hoka-japan-mafate-speed-2/)
 
-After reporting on a camo print comeback no one seemed to notice – ba-dum-tss – we figured it was only fair we did the follow-up work of retrieving some  of th…
+Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, and techy fabrics are all great, however, they’re not what make the shoe arguably …
 
-*Published on: Mon, 29 Jul 2024 14:26:52 GMT*
+*Published on: Tue, 30 Jul 2024 13:29:04 GMT*
 
 
 ## Megan Thee Stallion
@@ -8612,13 +9377,22 @@ Known as the gems of the ocean, pearls stand for purity and wisdom, and are the 
 *Published on: Mon, 29 Jul 2024 12:00:00 GMT*
 
 
-## Maya Rudolph
+## Megan Thee Stallion
 
 ## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
 
 *Published on: Mon, 29 Jul 2024 15:11:18 GMT*
+
+
+## Megan Thee Stallion
+
+## [Products to Prove the Camo Print's Comeback Was Hiding in Plain Sight](https://www.highsnobiety.com/p/camo-print-comeback/)
+
+After reporting on a camo print comeback no one seemed to notice – ba-dum-tss – we figured it was only fair we did the follow-up work of retrieving some  of th…
+
+*Published on: Mon, 29 Jul 2024 14:26:52 GMT*
 
 
 ## Maya Rudolph
@@ -8695,11 +9469,11 @@ It’s been a busy six months for the Nike Air Max Dn.Introduced as the American
 
 ## Maya Rudolph
 
-## [Products to Prove the Camo Print's Comeback Was Hiding in Plain Sight](https://www.highsnobiety.com/p/camo-print-comeback/)
+## [HOKA's Techy Sneaker Is Gloriously Bold](https://www.highsnobiety.com/p/hoka-japan-mafate-speed-2/)
 
-After reporting on a camo print comeback no one seemed to notice – ba-dum-tss – we figured it was only fair we did the follow-up work of retrieving some  of th…
+Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, and techy fabrics are all great, however, they’re not what make the shoe arguably …
 
-*Published on: Mon, 29 Jul 2024 14:26:52 GMT*
+*Published on: Tue, 30 Jul 2024 13:29:04 GMT*
 
 
 ## Maya Rudolph
@@ -8711,13 +9485,22 @@ Known as the gems of the ocean, pearls stand for purity and wisdom, and are the 
 *Published on: Mon, 29 Jul 2024 12:00:00 GMT*
 
 
-## Olivia Rodrigo
+## Maya Rudolph
 
 ## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
 
 *Published on: Mon, 29 Jul 2024 15:11:18 GMT*
+
+
+## Maya Rudolph
+
+## [Products to Prove the Camo Print's Comeback Was Hiding in Plain Sight](https://www.highsnobiety.com/p/camo-print-comeback/)
+
+After reporting on a camo print comeback no one seemed to notice – ba-dum-tss – we figured it was only fair we did the follow-up work of retrieving some  of th…
+
+*Published on: Mon, 29 Jul 2024 14:26:52 GMT*
 
 
 ## Olivia Rodrigo
@@ -8794,11 +9577,11 @@ It’s been a busy six months for the Nike Air Max Dn.Introduced as the American
 
 ## Olivia Rodrigo
 
-## [Products to Prove the Camo Print's Comeback Was Hiding in Plain Sight](https://www.highsnobiety.com/p/camo-print-comeback/)
+## [HOKA's Techy Sneaker Is Gloriously Bold](https://www.highsnobiety.com/p/hoka-japan-mafate-speed-2/)
 
-After reporting on a camo print comeback no one seemed to notice – ba-dum-tss – we figured it was only fair we did the follow-up work of retrieving some  of th…
+Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, and techy fabrics are all great, however, they’re not what make the shoe arguably …
 
-*Published on: Mon, 29 Jul 2024 14:26:52 GMT*
+*Published on: Tue, 30 Jul 2024 13:29:04 GMT*
 
 
 ## Olivia Rodrigo
@@ -8810,13 +9593,22 @@ Known as the gems of the ocean, pearls stand for purity and wisdom, and are the 
 *Published on: Mon, 29 Jul 2024 12:00:00 GMT*
 
 
-## Obama
+## Olivia Rodrigo
 
 ## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
 
 *Published on: Mon, 29 Jul 2024 15:11:18 GMT*
+
+
+## Olivia Rodrigo
+
+## [Products to Prove the Camo Print's Comeback Was Hiding in Plain Sight](https://www.highsnobiety.com/p/camo-print-comeback/)
+
+After reporting on a camo print comeback no one seemed to notice – ba-dum-tss – we figured it was only fair we did the follow-up work of retrieving some  of th…
+
+*Published on: Mon, 29 Jul 2024 14:26:52 GMT*
 
 
 ## Obama
@@ -8893,11 +9685,11 @@ It’s been a busy six months for the Nike Air Max Dn.Introduced as the American
 
 ## Obama
 
-## [Products to Prove the Camo Print's Comeback Was Hiding in Plain Sight](https://www.highsnobiety.com/p/camo-print-comeback/)
+## [HOKA's Techy Sneaker Is Gloriously Bold](https://www.highsnobiety.com/p/hoka-japan-mafate-speed-2/)
 
-After reporting on a camo print comeback no one seemed to notice – ba-dum-tss – we figured it was only fair we did the follow-up work of retrieving some  of th…
+Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, and techy fabrics are all great, however, they’re not what make the shoe arguably …
 
-*Published on: Mon, 29 Jul 2024 14:26:52 GMT*
+*Published on: Tue, 30 Jul 2024 13:29:04 GMT*
 
 
 ## Obama
@@ -8909,13 +9701,22 @@ Known as the gems of the ocean, pearls stand for purity and wisdom, and are the 
 *Published on: Mon, 29 Jul 2024 12:00:00 GMT*
 
 
-## Nicki Minaj
+## Obama
 
 ## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
 
 *Published on: Mon, 29 Jul 2024 15:11:18 GMT*
+
+
+## Obama
+
+## [Products to Prove the Camo Print's Comeback Was Hiding in Plain Sight](https://www.highsnobiety.com/p/camo-print-comeback/)
+
+After reporting on a camo print comeback no one seemed to notice – ba-dum-tss – we figured it was only fair we did the follow-up work of retrieving some  of th…
+
+*Published on: Mon, 29 Jul 2024 14:26:52 GMT*
 
 
 ## Nicki Minaj
@@ -8992,11 +9793,11 @@ It’s been a busy six months for the Nike Air Max Dn.Introduced as the American
 
 ## Nicki Minaj
 
-## [Products to Prove the Camo Print's Comeback Was Hiding in Plain Sight](https://www.highsnobiety.com/p/camo-print-comeback/)
+## [HOKA's Techy Sneaker Is Gloriously Bold](https://www.highsnobiety.com/p/hoka-japan-mafate-speed-2/)
 
-After reporting on a camo print comeback no one seemed to notice – ba-dum-tss – we figured it was only fair we did the follow-up work of retrieving some  of th…
+Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, and techy fabrics are all great, however, they’re not what make the shoe arguably …
 
-*Published on: Mon, 29 Jul 2024 14:26:52 GMT*
+*Published on: Tue, 30 Jul 2024 13:29:04 GMT*
 
 
 ## Nicki Minaj
@@ -9008,13 +9809,22 @@ Known as the gems of the ocean, pearls stand for purity and wisdom, and are the 
 *Published on: Mon, 29 Jul 2024 12:00:00 GMT*
 
 
-## MrBeast
+## Nicki Minaj
 
 ## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
 
 *Published on: Mon, 29 Jul 2024 15:11:18 GMT*
+
+
+## Nicki Minaj
+
+## [Products to Prove the Camo Print's Comeback Was Hiding in Plain Sight](https://www.highsnobiety.com/p/camo-print-comeback/)
+
+After reporting on a camo print comeback no one seemed to notice – ba-dum-tss – we figured it was only fair we did the follow-up work of retrieving some  of th…
+
+*Published on: Mon, 29 Jul 2024 14:26:52 GMT*
 
 
 ## MrBeast
@@ -9091,11 +9901,11 @@ It’s been a busy six months for the Nike Air Max Dn.Introduced as the American
 
 ## MrBeast
 
-## [Products to Prove the Camo Print's Comeback Was Hiding in Plain Sight](https://www.highsnobiety.com/p/camo-print-comeback/)
+## [HOKA's Techy Sneaker Is Gloriously Bold](https://www.highsnobiety.com/p/hoka-japan-mafate-speed-2/)
 
-After reporting on a camo print comeback no one seemed to notice – ba-dum-tss – we figured it was only fair we did the follow-up work of retrieving some  of th…
+Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, and techy fabrics are all great, however, they’re not what make the shoe arguably …
 
-*Published on: Mon, 29 Jul 2024 14:26:52 GMT*
+*Published on: Tue, 30 Jul 2024 13:29:04 GMT*
 
 
 ## MrBeast
@@ -9105,5 +9915,23 @@ After reporting on a camo print comeback no one seemed to notice – ba-dum-tss 
 Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
 
 *Published on: Mon, 29 Jul 2024 12:00:00 GMT*
+
+
+## MrBeast
+
+## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
+
+AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
+
+*Published on: Mon, 29 Jul 2024 15:11:18 GMT*
+
+
+## MrBeast
+
+## [Products to Prove the Camo Print's Comeback Was Hiding in Plain Sight](https://www.highsnobiety.com/p/camo-print-comeback/)
+
+After reporting on a camo print comeback no one seemed to notice – ba-dum-tss – we figured it was only fair we did the follow-up work of retrieving some  of th…
+
+*Published on: Mon, 29 Jul 2024 14:26:52 GMT*
 
 
