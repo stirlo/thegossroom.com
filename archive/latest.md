@@ -82,15 +82,6 @@ Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, a
 
 ## Tim Cook
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Tim Cook
-
 ## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
@@ -190,15 +181,6 @@ Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, a
 
 ## Taylor Swift
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Taylor Swift
-
 ## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
@@ -298,15 +280,6 @@ Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, a
 
 ## Tom Brady
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Tom Brady
-
 ## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
@@ -406,15 +379,6 @@ Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, a
 
 ## Tina Fey
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Tina Fey
-
 ## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
@@ -514,15 +478,6 @@ Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, a
 
 ## Steven Yuen
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Steven Yuen
-
 ## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
@@ -622,15 +577,6 @@ Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, a
 
 ## Sommer Ray
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Sommer Ray
-
 ## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
@@ -730,15 +676,6 @@ Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, a
 
 ## Sza
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Sza
-
 ## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
@@ -838,15 +775,6 @@ Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, a
 
 ## Sydney Sweeney
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Sydney Sweeney
-
 ## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
@@ -946,15 +874,6 @@ Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, a
 
 ## Walton Goggins
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Walton Goggins
-
 ## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
@@ -1054,15 +973,6 @@ Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, a
 
 ## Tom Holland
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Tom Holland
-
 ## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
@@ -1162,15 +1072,6 @@ Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, a
 
 ## Gucci Mane
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Gucci Mane
-
 ## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
@@ -1270,15 +1171,6 @@ Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, a
 
 ## Harry Styles
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Harry Styles
-
 ## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
@@ -1378,15 +1270,6 @@ Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, a
 
 ## Jake Paul
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Jake Paul
-
 ## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
@@ -1486,15 +1369,6 @@ Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, a
 
 ## Jameela Jamil
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Jameela Jamil
-
 ## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
@@ -1594,15 +1468,6 @@ Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, a
 
 ## Elon Musk
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Elon Musk
-
 ## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
@@ -1702,15 +1567,6 @@ Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, a
 
 ## Gabrielle Union
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Gabrielle Union
-
 ## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
@@ -1810,15 +1666,6 @@ Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, a
 
 ## Giancarlo Esposito
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Giancarlo Esposito
-
 ## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
@@ -1918,15 +1765,6 @@ Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, a
 
 ## Gillian Jacobs
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Gillian Jacobs
-
 ## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
@@ -2026,15 +1864,6 @@ Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, a
 
 ## Jason Mantzoukas
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Jason Mantzoukas
-
 ## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
@@ -2134,15 +1963,6 @@ Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, a
 
 ## JB Smoove
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## JB Smoove
-
 ## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
@@ -2242,15 +2062,6 @@ Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, a
 
 ## Madison Pettis
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Madison Pettis
-
 ## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
@@ -2350,15 +2161,6 @@ Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, a
 
 ## Austin Butler
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Austin Butler
-
 ## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
@@ -2458,15 +2260,6 @@ Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, a
 
 ## Mark Zuckerberg
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Mark Zuckerberg
-
 ## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
@@ -2566,15 +2359,6 @@ Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, a
 
 ## Ariana Grande
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Ariana Grande
-
 ## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
@@ -2674,15 +2458,6 @@ Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, a
 
 ## Livvy Dunne
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Livvy Dunne
-
 ## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
@@ -2782,15 +2557,6 @@ Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, a
 
 ## Ali Wong
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Ali Wong
-
 ## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
@@ -2890,15 +2656,6 @@ Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, a
 
 ## Lizzo
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Lizzo
-
 ## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
@@ -2998,15 +2755,6 @@ Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, a
 
 ## Alison Brie
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Alison Brie
-
 ## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
@@ -3106,15 +2854,6 @@ Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, a
 
 ## Lil Wayne
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Lil Wayne
-
 ## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
@@ -3214,15 +2953,6 @@ Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, a
 
 ## Adele
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Adele
-
 ## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
@@ -3322,15 +3052,6 @@ Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, a
 
 ## Lindsay Lohan
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Lindsay Lohan
-
 ## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
@@ -3430,15 +3151,6 @@ Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, a
 
 ## Addison Rae
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Addison Rae
-
 ## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
@@ -3538,15 +3250,6 @@ Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, a
 
 ## Latto
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Latto
-
 ## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
@@ -3646,15 +3349,6 @@ Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, a
 
 ## Aaron Paul
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Aaron Paul
-
 ## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
@@ -3754,15 +3448,6 @@ Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, a
 
 ## LeBron James
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## LeBron James
-
 ## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
@@ -3862,15 +3547,6 @@ Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, a
 
 ## 50 Cent
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## 50 Cent
-
 ## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
@@ -3970,15 +3646,6 @@ Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, a
 
 ## Kesha
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Kesha
-
 ## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
@@ -4078,15 +3745,6 @@ Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, a
 
 ## 21 Savage
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## 21 Savage
-
 ## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
@@ -4186,15 +3844,6 @@ Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, a
 
 ## Larry David
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Larry David
-
 ## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
@@ -4294,15 +3943,6 @@ Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, a
 
 ## Seth Rogan
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Seth Rogan
-
 ## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
@@ -4402,15 +4042,6 @@ Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, a
 
 ## Simone Biles
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Simone Biles
-
 ## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
@@ -4510,15 +4141,6 @@ Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, a
 
 ## Pete Davidson
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Pete Davidson
-
 ## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
@@ -4618,15 +4240,6 @@ Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, a
 
 ## Prince Harry
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Prince Harry
-
 ## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
@@ -4726,15 +4339,6 @@ Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, a
 
 ## Princess of Wales
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Princess of Wales
-
 ## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
@@ -4834,15 +4438,6 @@ Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, a
 
 ## Rachel McAdams
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Rachel McAdams
-
 ## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
@@ -4942,15 +4537,6 @@ Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, a
 
 ## Reneé Rapp
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Reneé Rapp
-
 ## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
@@ -5050,15 +4636,6 @@ Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, a
 
 ## Rick Ross
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Rick Ross
-
 ## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
@@ -5158,15 +4735,6 @@ Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, a
 
 ## Sam Ashgari
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Sam Ashgari
-
 ## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
@@ -5266,15 +4834,6 @@ Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, a
 
 ## Sandra Oh
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Sandra Oh
-
 ## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
@@ -5374,15 +4933,6 @@ Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, a
 
 ## Donald Trump
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Donald Trump
-
 ## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
@@ -5482,15 +5032,6 @@ Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, a
 
 ## Diddy
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Diddy
-
 ## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
@@ -5590,15 +5131,6 @@ Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, a
 
 ## City Girls
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## City Girls
-
 ## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
@@ -5698,15 +5230,6 @@ Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, a
 
 ## Chloe Bailey
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Chloe Bailey
-
 ## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
@@ -5806,15 +5329,6 @@ Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, a
 
 ## Charli D Amelio
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Charli D Amelio
-
 ## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
@@ -5914,15 +5428,6 @@ Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, a
 
 ## Cardi B
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Cardi B
-
 ## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
@@ -6022,15 +5527,6 @@ Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, a
 
 ## Bryan Cranston
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Bryan Cranston
-
 ## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
@@ -6130,15 +5626,6 @@ Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, a
 
 ## Brielle Biermann
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Brielle Biermann
-
 ## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
@@ -6238,15 +5725,6 @@ Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, a
 
 ## Dua Lipa
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Dua Lipa
-
 ## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
@@ -6346,15 +5824,6 @@ Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, a
 
 ## Drake
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Drake
-
 ## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
@@ -6454,15 +5923,6 @@ Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, a
 
 ## Jenner
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Jenner
-
 ## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
@@ -6562,15 +6022,6 @@ Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, a
 
 ## J. Cole
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## J. Cole
-
 ## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
@@ -6670,15 +6121,6 @@ Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, a
 
 ## Jerrod Carmichael
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Jerrod Carmichael
-
 ## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
@@ -6778,15 +6220,6 @@ Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, a
 
 ## Jennifer Lawrence
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Jennifer Lawrence
-
 ## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
@@ -6886,15 +6319,6 @@ Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, a
 
 ## Joe Biden
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Joe Biden
-
 ## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
@@ -6994,15 +6418,6 @@ Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, a
 
 ## J.K. Simmons
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## J.K. Simmons
-
 ## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
@@ -7102,15 +6517,6 @@ Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, a
 
 ## Kamala Harris
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Kamala Harris
-
 ## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
@@ -7210,15 +6616,6 @@ Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, a
 
 ## John C Reilly
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## John C Reilly
-
 ## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
@@ -7318,15 +6715,6 @@ Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, a
 
 ## Kardashian
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Kardashian
-
 ## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
@@ -7426,15 +6814,6 @@ Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, a
 
 ## Kanye
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Kanye
-
 ## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
@@ -7534,15 +6913,6 @@ Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, a
 
 ## Zendaya
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Zendaya
-
 ## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
@@ -7642,15 +7012,6 @@ Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, a
 
 ## Will Ferrell
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Will Ferrell
-
 ## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
@@ -7750,15 +7111,6 @@ Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, a
 
 ## Zazie Beetz
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Zazie Beetz
-
 ## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
@@ -7858,15 +7210,6 @@ Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, a
 
 ## Bob Odenkirk
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Bob Odenkirk
-
 ## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
@@ -7966,15 +7309,6 @@ Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, a
 
 ## Brad Pitt
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Brad Pitt
-
 ## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
@@ -8074,15 +7408,6 @@ Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, a
 
 ## Beyoncé
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Beyoncé
-
 ## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
@@ -8182,15 +7507,6 @@ Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, a
 
 ## Bia
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Bia
-
 ## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
@@ -8290,15 +7606,6 @@ Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, a
 
 ## Avantika
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Avantika
-
 ## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
@@ -8398,15 +7705,6 @@ Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, a
 
 ## Bernie Sanders
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Bernie Sanders
-
 ## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
@@ -8506,15 +7804,6 @@ Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, a
 
 ## Big Sean
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Big Sean
-
 ## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
@@ -8614,15 +7903,6 @@ Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, a
 
 ## BlockBoy JB
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## BlockBoy JB
-
 ## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
@@ -8722,15 +8002,6 @@ Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, a
 
 ## Biden
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Biden
-
 ## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
@@ -8830,15 +8101,6 @@ Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, a
 
 ## Bieber
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Bieber
-
 ## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
@@ -8938,15 +8200,6 @@ Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, a
 
 ## Paulina Porizkov
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Paulina Porizkov
-
 ## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
@@ -9046,15 +8299,6 @@ Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, a
 
 ## Paris Hilton
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Paris Hilton
-
 ## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
@@ -9154,15 +8398,6 @@ Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, a
 
 ## Metro Boomin
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Metro Boomin
-
 ## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
@@ -9262,15 +8497,6 @@ Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, a
 
 ## Meghan Markle
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Meghan Markle
-
 ## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
@@ -9370,15 +8596,6 @@ Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, a
 
 ## Megan Thee Stallion
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Megan Thee Stallion
-
 ## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
@@ -9478,15 +8695,6 @@ Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, a
 
 ## Maya Rudolph
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Maya Rudolph
-
 ## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
@@ -9586,15 +8794,6 @@ Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, a
 
 ## Olivia Rodrigo
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Olivia Rodrigo
-
 ## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
@@ -9694,15 +8893,6 @@ Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, a
 
 ## Obama
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Obama
-
 ## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
@@ -9802,15 +8992,6 @@ Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, a
 
 ## Nicki Minaj
 
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
-
-
-## Nicki Minaj
-
 ## [Airei's Indigo-Dyed ASICS Shoes Are More Art Than Sneaker (EXCLUSIVE)](https://www.highsnobiety.com/p/airei-asics-gel-quantum-kinetic-sneaker/)
 
 AIREI and ASICS make art, not sneakers. Okay, they make sneakers but the end product is too craft-conscious to be lumped together with footwear convention.AIRE…
@@ -9906,15 +9087,6 @@ It’s been a busy six months for the Nike Air Max Dn.Introduced as the American
 Don’t get me wrong, the HOKA Mafate Speed 2's chunky shape, sporty paneling, and techy fabrics are all great, however, they’re not what make the shoe arguably …
 
 *Published on: Tue, 30 Jul 2024 13:29:04 GMT*
-
-
-## MrBeast
-
-## [We're Clutching Our Pearls – So Will You ](https://www.highsnobiety.com/p/pearl-trend/)
-
-Known as the gems of the ocean, pearls stand for purity and wisdom, and are the birthstone of all whom are born in June. Of all jewels, pearls belong to the fi…
-
-*Published on: Mon, 29 Jul 2024 12:00:00 GMT*
 
 
 ## MrBeast
