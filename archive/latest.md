@@ -89,6 +89,15 @@ Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes d
 *Published on: Mon, 29 Jul 2024 21:21:00 GMT*
 
 
+## Tim Cook
+
+## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
+
+PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
+
+*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
+
+
 ## Taylor Swift
 
 ## [Remember Patta  Nike’s Air Max Grail? Well, It's Back!](https://www.highsnobiety.com/p/patta-nike-air-max-1-chlorophyll-release-date-2024/)
@@ -177,6 +186,15 @@ Between getting Sonny Angel tattoos and accessorizing their phones with Sonny An
 Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes do no wrong. The 480 "Dunks" get better, actually.After enjoying some of the mos…
 
 *Published on: Mon, 29 Jul 2024 21:21:00 GMT*
+
+
+## Taylor Swift
+
+## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
+
+PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
+
+*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
 
 
 ## Tom Brady
@@ -269,6 +287,15 @@ Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes d
 *Published on: Mon, 29 Jul 2024 21:21:00 GMT*
 
 
+## Tom Brady
+
+## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
+
+PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
+
+*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
+
+
 ## Tina Fey
 
 ## [Remember Patta  Nike’s Air Max Grail? Well, It's Back!](https://www.highsnobiety.com/p/patta-nike-air-max-1-chlorophyll-release-date-2024/)
@@ -357,6 +384,15 @@ Between getting Sonny Angel tattoos and accessorizing their phones with Sonny An
 Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes do no wrong. The 480 "Dunks" get better, actually.After enjoying some of the mos…
 
 *Published on: Mon, 29 Jul 2024 21:21:00 GMT*
+
+
+## Tina Fey
+
+## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
+
+PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
+
+*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
 
 
 ## Steven Yuen
@@ -449,6 +485,15 @@ Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes d
 *Published on: Mon, 29 Jul 2024 21:21:00 GMT*
 
 
+## Steven Yuen
+
+## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
+
+PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
+
+*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
+
+
 ## Sommer Ray
 
 ## [Remember Patta  Nike’s Air Max Grail? Well, It's Back!](https://www.highsnobiety.com/p/patta-nike-air-max-1-chlorophyll-release-date-2024/)
@@ -537,6 +582,15 @@ Between getting Sonny Angel tattoos and accessorizing their phones with Sonny An
 Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes do no wrong. The 480 "Dunks" get better, actually.After enjoying some of the mos…
 
 *Published on: Mon, 29 Jul 2024 21:21:00 GMT*
+
+
+## Sommer Ray
+
+## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
+
+PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
+
+*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
 
 
 ## Sza
@@ -629,6 +683,15 @@ Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes d
 *Published on: Mon, 29 Jul 2024 21:21:00 GMT*
 
 
+## Sza
+
+## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
+
+PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
+
+*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
+
+
 ## Sydney Sweeney
 
 ## [Remember Patta  Nike’s Air Max Grail? Well, It's Back!](https://www.highsnobiety.com/p/patta-nike-air-max-1-chlorophyll-release-date-2024/)
@@ -717,6 +780,15 @@ Between getting Sonny Angel tattoos and accessorizing their phones with Sonny An
 Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes do no wrong. The 480 "Dunks" get better, actually.After enjoying some of the mos…
 
 *Published on: Mon, 29 Jul 2024 21:21:00 GMT*
+
+
+## Sydney Sweeney
+
+## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
+
+PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
+
+*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
 
 
 ## Walton Goggins
@@ -809,6 +881,15 @@ Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes d
 *Published on: Mon, 29 Jul 2024 21:21:00 GMT*
 
 
+## Walton Goggins
+
+## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
+
+PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
+
+*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
+
+
 ## Tom Holland
 
 ## [Remember Patta  Nike’s Air Max Grail? Well, It's Back!](https://www.highsnobiety.com/p/patta-nike-air-max-1-chlorophyll-release-date-2024/)
@@ -897,6 +978,15 @@ Between getting Sonny Angel tattoos and accessorizing their phones with Sonny An
 Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes do no wrong. The 480 "Dunks" get better, actually.After enjoying some of the mos…
 
 *Published on: Mon, 29 Jul 2024 21:21:00 GMT*
+
+
+## Tom Holland
+
+## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
+
+PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
+
+*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
 
 
 ## Gucci Mane
@@ -989,6 +1079,15 @@ Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes d
 *Published on: Mon, 29 Jul 2024 21:21:00 GMT*
 
 
+## Gucci Mane
+
+## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
+
+PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
+
+*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
+
+
 ## Harry Styles
 
 ## [Remember Patta  Nike’s Air Max Grail? Well, It's Back!](https://www.highsnobiety.com/p/patta-nike-air-max-1-chlorophyll-release-date-2024/)
@@ -1077,6 +1176,15 @@ Between getting Sonny Angel tattoos and accessorizing their phones with Sonny An
 Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes do no wrong. The 480 "Dunks" get better, actually.After enjoying some of the mos…
 
 *Published on: Mon, 29 Jul 2024 21:21:00 GMT*
+
+
+## Harry Styles
+
+## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
+
+PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
+
+*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
 
 
 ## Jake Paul
@@ -1169,6 +1277,15 @@ Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes d
 *Published on: Mon, 29 Jul 2024 21:21:00 GMT*
 
 
+## Jake Paul
+
+## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
+
+PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
+
+*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
+
+
 ## Jameela Jamil
 
 ## [Remember Patta  Nike’s Air Max Grail? Well, It's Back!](https://www.highsnobiety.com/p/patta-nike-air-max-1-chlorophyll-release-date-2024/)
@@ -1257,6 +1374,15 @@ Between getting Sonny Angel tattoos and accessorizing their phones with Sonny An
 Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes do no wrong. The 480 "Dunks" get better, actually.After enjoying some of the mos…
 
 *Published on: Mon, 29 Jul 2024 21:21:00 GMT*
+
+
+## Jameela Jamil
+
+## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
+
+PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
+
+*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
 
 
 ## Elon Musk
@@ -1349,6 +1475,15 @@ Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes d
 *Published on: Mon, 29 Jul 2024 21:21:00 GMT*
 
 
+## Elon Musk
+
+## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
+
+PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
+
+*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
+
+
 ## Gabrielle Union
 
 ## [Remember Patta  Nike’s Air Max Grail? Well, It's Back!](https://www.highsnobiety.com/p/patta-nike-air-max-1-chlorophyll-release-date-2024/)
@@ -1437,6 +1572,15 @@ Between getting Sonny Angel tattoos and accessorizing their phones with Sonny An
 Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes do no wrong. The 480 "Dunks" get better, actually.After enjoying some of the mos…
 
 *Published on: Mon, 29 Jul 2024 21:21:00 GMT*
+
+
+## Gabrielle Union
+
+## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
+
+PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
+
+*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
 
 
 ## Giancarlo Esposito
@@ -1529,6 +1673,15 @@ Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes d
 *Published on: Mon, 29 Jul 2024 21:21:00 GMT*
 
 
+## Giancarlo Esposito
+
+## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
+
+PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
+
+*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
+
+
 ## Gillian Jacobs
 
 ## [Remember Patta  Nike’s Air Max Grail? Well, It's Back!](https://www.highsnobiety.com/p/patta-nike-air-max-1-chlorophyll-release-date-2024/)
@@ -1617,6 +1770,15 @@ Between getting Sonny Angel tattoos and accessorizing their phones with Sonny An
 Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes do no wrong. The 480 "Dunks" get better, actually.After enjoying some of the mos…
 
 *Published on: Mon, 29 Jul 2024 21:21:00 GMT*
+
+
+## Gillian Jacobs
+
+## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
+
+PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
+
+*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
 
 
 ## Jason Mantzoukas
@@ -1709,6 +1871,15 @@ Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes d
 *Published on: Mon, 29 Jul 2024 21:21:00 GMT*
 
 
+## Jason Mantzoukas
+
+## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
+
+PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
+
+*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
+
+
 ## JB Smoove
 
 ## [Remember Patta  Nike’s Air Max Grail? Well, It's Back!](https://www.highsnobiety.com/p/patta-nike-air-max-1-chlorophyll-release-date-2024/)
@@ -1797,6 +1968,15 @@ Between getting Sonny Angel tattoos and accessorizing their phones with Sonny An
 Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes do no wrong. The 480 "Dunks" get better, actually.After enjoying some of the mos…
 
 *Published on: Mon, 29 Jul 2024 21:21:00 GMT*
+
+
+## JB Smoove
+
+## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
+
+PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
+
+*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
 
 
 ## Madison Pettis
@@ -1889,6 +2069,15 @@ Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes d
 *Published on: Mon, 29 Jul 2024 21:21:00 GMT*
 
 
+## Madison Pettis
+
+## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
+
+PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
+
+*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
+
+
 ## Austin Butler
 
 ## [Remember Patta  Nike’s Air Max Grail? Well, It's Back!](https://www.highsnobiety.com/p/patta-nike-air-max-1-chlorophyll-release-date-2024/)
@@ -1977,6 +2166,15 @@ Between getting Sonny Angel tattoos and accessorizing their phones with Sonny An
 Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes do no wrong. The 480 "Dunks" get better, actually.After enjoying some of the mos…
 
 *Published on: Mon, 29 Jul 2024 21:21:00 GMT*
+
+
+## Austin Butler
+
+## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
+
+PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
+
+*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
 
 
 ## Mark Zuckerberg
@@ -2069,6 +2267,15 @@ Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes d
 *Published on: Mon, 29 Jul 2024 21:21:00 GMT*
 
 
+## Mark Zuckerberg
+
+## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
+
+PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
+
+*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
+
+
 ## Ariana Grande
 
 ## [Remember Patta  Nike’s Air Max Grail? Well, It's Back!](https://www.highsnobiety.com/p/patta-nike-air-max-1-chlorophyll-release-date-2024/)
@@ -2157,6 +2364,15 @@ Between getting Sonny Angel tattoos and accessorizing their phones with Sonny An
 Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes do no wrong. The 480 "Dunks" get better, actually.After enjoying some of the mos…
 
 *Published on: Mon, 29 Jul 2024 21:21:00 GMT*
+
+
+## Ariana Grande
+
+## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
+
+PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
+
+*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
 
 
 ## Livvy Dunne
@@ -2249,6 +2465,15 @@ Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes d
 *Published on: Mon, 29 Jul 2024 21:21:00 GMT*
 
 
+## Livvy Dunne
+
+## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
+
+PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
+
+*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
+
+
 ## Ali Wong
 
 ## [Remember Patta  Nike’s Air Max Grail? Well, It's Back!](https://www.highsnobiety.com/p/patta-nike-air-max-1-chlorophyll-release-date-2024/)
@@ -2337,6 +2562,15 @@ Between getting Sonny Angel tattoos and accessorizing their phones with Sonny An
 Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes do no wrong. The 480 "Dunks" get better, actually.After enjoying some of the mos…
 
 *Published on: Mon, 29 Jul 2024 21:21:00 GMT*
+
+
+## Ali Wong
+
+## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
+
+PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
+
+*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
 
 
 ## Lizzo
@@ -2429,6 +2663,15 @@ Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes d
 *Published on: Mon, 29 Jul 2024 21:21:00 GMT*
 
 
+## Lizzo
+
+## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
+
+PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
+
+*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
+
+
 ## Alison Brie
 
 ## [Remember Patta  Nike’s Air Max Grail? Well, It's Back!](https://www.highsnobiety.com/p/patta-nike-air-max-1-chlorophyll-release-date-2024/)
@@ -2517,6 +2760,15 @@ Between getting Sonny Angel tattoos and accessorizing their phones with Sonny An
 Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes do no wrong. The 480 "Dunks" get better, actually.After enjoying some of the mos…
 
 *Published on: Mon, 29 Jul 2024 21:21:00 GMT*
+
+
+## Alison Brie
+
+## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
+
+PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
+
+*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
 
 
 ## Lil Wayne
@@ -2609,6 +2861,15 @@ Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes d
 *Published on: Mon, 29 Jul 2024 21:21:00 GMT*
 
 
+## Lil Wayne
+
+## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
+
+PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
+
+*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
+
+
 ## Adele
 
 ## [Remember Patta  Nike’s Air Max Grail? Well, It's Back!](https://www.highsnobiety.com/p/patta-nike-air-max-1-chlorophyll-release-date-2024/)
@@ -2697,6 +2958,15 @@ Between getting Sonny Angel tattoos and accessorizing their phones with Sonny An
 Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes do no wrong. The 480 "Dunks" get better, actually.After enjoying some of the mos…
 
 *Published on: Mon, 29 Jul 2024 21:21:00 GMT*
+
+
+## Adele
+
+## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
+
+PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
+
+*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
 
 
 ## Lindsay Lohan
@@ -2789,6 +3059,15 @@ Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes d
 *Published on: Mon, 29 Jul 2024 21:21:00 GMT*
 
 
+## Lindsay Lohan
+
+## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
+
+PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
+
+*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
+
+
 ## Addison Rae
 
 ## [Remember Patta  Nike’s Air Max Grail? Well, It's Back!](https://www.highsnobiety.com/p/patta-nike-air-max-1-chlorophyll-release-date-2024/)
@@ -2877,6 +3156,15 @@ Between getting Sonny Angel tattoos and accessorizing their phones with Sonny An
 Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes do no wrong. The 480 "Dunks" get better, actually.After enjoying some of the mos…
 
 *Published on: Mon, 29 Jul 2024 21:21:00 GMT*
+
+
+## Addison Rae
+
+## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
+
+PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
+
+*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
 
 
 ## Latto
@@ -2969,6 +3257,15 @@ Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes d
 *Published on: Mon, 29 Jul 2024 21:21:00 GMT*
 
 
+## Latto
+
+## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
+
+PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
+
+*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
+
+
 ## Aaron Paul
 
 ## [Remember Patta  Nike’s Air Max Grail? Well, It's Back!](https://www.highsnobiety.com/p/patta-nike-air-max-1-chlorophyll-release-date-2024/)
@@ -3057,6 +3354,15 @@ Between getting Sonny Angel tattoos and accessorizing their phones with Sonny An
 Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes do no wrong. The 480 "Dunks" get better, actually.After enjoying some of the mos…
 
 *Published on: Mon, 29 Jul 2024 21:21:00 GMT*
+
+
+## Aaron Paul
+
+## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
+
+PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
+
+*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
 
 
 ## LeBron James
@@ -3149,6 +3455,15 @@ Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes d
 *Published on: Mon, 29 Jul 2024 21:21:00 GMT*
 
 
+## LeBron James
+
+## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
+
+PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
+
+*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
+
+
 ## 50 Cent
 
 ## [Remember Patta  Nike’s Air Max Grail? Well, It's Back!](https://www.highsnobiety.com/p/patta-nike-air-max-1-chlorophyll-release-date-2024/)
@@ -3237,6 +3552,15 @@ Between getting Sonny Angel tattoos and accessorizing their phones with Sonny An
 Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes do no wrong. The 480 "Dunks" get better, actually.After enjoying some of the mos…
 
 *Published on: Mon, 29 Jul 2024 21:21:00 GMT*
+
+
+## 50 Cent
+
+## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
+
+PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
+
+*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
 
 
 ## Kesha
@@ -3329,6 +3653,15 @@ Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes d
 *Published on: Mon, 29 Jul 2024 21:21:00 GMT*
 
 
+## Kesha
+
+## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
+
+PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
+
+*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
+
+
 ## 21 Savage
 
 ## [Remember Patta  Nike’s Air Max Grail? Well, It's Back!](https://www.highsnobiety.com/p/patta-nike-air-max-1-chlorophyll-release-date-2024/)
@@ -3417,6 +3750,15 @@ Between getting Sonny Angel tattoos and accessorizing their phones with Sonny An
 Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes do no wrong. The 480 "Dunks" get better, actually.After enjoying some of the mos…
 
 *Published on: Mon, 29 Jul 2024 21:21:00 GMT*
+
+
+## 21 Savage
+
+## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
+
+PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
+
+*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
 
 
 ## Larry David
@@ -3509,6 +3851,15 @@ Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes d
 *Published on: Mon, 29 Jul 2024 21:21:00 GMT*
 
 
+## Larry David
+
+## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
+
+PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
+
+*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
+
+
 ## Seth Rogan
 
 ## [Remember Patta  Nike’s Air Max Grail? Well, It's Back!](https://www.highsnobiety.com/p/patta-nike-air-max-1-chlorophyll-release-date-2024/)
@@ -3597,6 +3948,15 @@ Between getting Sonny Angel tattoos and accessorizing their phones with Sonny An
 Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes do no wrong. The 480 "Dunks" get better, actually.After enjoying some of the mos…
 
 *Published on: Mon, 29 Jul 2024 21:21:00 GMT*
+
+
+## Seth Rogan
+
+## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
+
+PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
+
+*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
 
 
 ## Simone Biles
@@ -3689,6 +4049,15 @@ Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes d
 *Published on: Mon, 29 Jul 2024 21:21:00 GMT*
 
 
+## Simone Biles
+
+## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
+
+PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
+
+*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
+
+
 ## Pete Davidson
 
 ## [Remember Patta  Nike’s Air Max Grail? Well, It's Back!](https://www.highsnobiety.com/p/patta-nike-air-max-1-chlorophyll-release-date-2024/)
@@ -3777,6 +4146,15 @@ Between getting Sonny Angel tattoos and accessorizing their phones with Sonny An
 Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes do no wrong. The 480 "Dunks" get better, actually.After enjoying some of the mos…
 
 *Published on: Mon, 29 Jul 2024 21:21:00 GMT*
+
+
+## Pete Davidson
+
+## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
+
+PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
+
+*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
 
 
 ## Prince Harry
@@ -3869,6 +4247,15 @@ Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes d
 *Published on: Mon, 29 Jul 2024 21:21:00 GMT*
 
 
+## Prince Harry
+
+## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
+
+PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
+
+*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
+
+
 ## Princess of Wales
 
 ## [Remember Patta  Nike’s Air Max Grail? Well, It's Back!](https://www.highsnobiety.com/p/patta-nike-air-max-1-chlorophyll-release-date-2024/)
@@ -3957,6 +4344,15 @@ Between getting Sonny Angel tattoos and accessorizing their phones with Sonny An
 Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes do no wrong. The 480 "Dunks" get better, actually.After enjoying some of the mos…
 
 *Published on: Mon, 29 Jul 2024 21:21:00 GMT*
+
+
+## Princess of Wales
+
+## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
+
+PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
+
+*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
 
 
 ## Rachel McAdams
@@ -4049,6 +4445,15 @@ Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes d
 *Published on: Mon, 29 Jul 2024 21:21:00 GMT*
 
 
+## Rachel McAdams
+
+## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
+
+PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
+
+*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
+
+
 ## Reneé Rapp
 
 ## [Remember Patta  Nike’s Air Max Grail? Well, It's Back!](https://www.highsnobiety.com/p/patta-nike-air-max-1-chlorophyll-release-date-2024/)
@@ -4137,6 +4542,15 @@ Between getting Sonny Angel tattoos and accessorizing their phones with Sonny An
 Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes do no wrong. The 480 "Dunks" get better, actually.After enjoying some of the mos…
 
 *Published on: Mon, 29 Jul 2024 21:21:00 GMT*
+
+
+## Reneé Rapp
+
+## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
+
+PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
+
+*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
 
 
 ## Rick Ross
@@ -4229,6 +4643,15 @@ Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes d
 *Published on: Mon, 29 Jul 2024 21:21:00 GMT*
 
 
+## Rick Ross
+
+## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
+
+PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
+
+*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
+
+
 ## Sam Ashgari
 
 ## [Remember Patta  Nike’s Air Max Grail? Well, It's Back!](https://www.highsnobiety.com/p/patta-nike-air-max-1-chlorophyll-release-date-2024/)
@@ -4317,6 +4740,15 @@ Between getting Sonny Angel tattoos and accessorizing their phones with Sonny An
 Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes do no wrong. The 480 "Dunks" get better, actually.After enjoying some of the mos…
 
 *Published on: Mon, 29 Jul 2024 21:21:00 GMT*
+
+
+## Sam Ashgari
+
+## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
+
+PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
+
+*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
 
 
 ## Sandra Oh
@@ -4409,6 +4841,15 @@ Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes d
 *Published on: Mon, 29 Jul 2024 21:21:00 GMT*
 
 
+## Sandra Oh
+
+## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
+
+PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
+
+*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
+
+
 ## Donald Trump
 
 ## [Remember Patta  Nike’s Air Max Grail? Well, It's Back!](https://www.highsnobiety.com/p/patta-nike-air-max-1-chlorophyll-release-date-2024/)
@@ -4497,6 +4938,15 @@ Between getting Sonny Angel tattoos and accessorizing their phones with Sonny An
 Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes do no wrong. The 480 "Dunks" get better, actually.After enjoying some of the mos…
 
 *Published on: Mon, 29 Jul 2024 21:21:00 GMT*
+
+
+## Donald Trump
+
+## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
+
+PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
+
+*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
 
 
 ## Diddy
@@ -4589,6 +5039,15 @@ Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes d
 *Published on: Mon, 29 Jul 2024 21:21:00 GMT*
 
 
+## Diddy
+
+## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
+
+PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
+
+*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
+
+
 ## City Girls
 
 ## [Remember Patta  Nike’s Air Max Grail? Well, It's Back!](https://www.highsnobiety.com/p/patta-nike-air-max-1-chlorophyll-release-date-2024/)
@@ -4677,6 +5136,15 @@ Between getting Sonny Angel tattoos and accessorizing their phones with Sonny An
 Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes do no wrong. The 480 "Dunks" get better, actually.After enjoying some of the mos…
 
 *Published on: Mon, 29 Jul 2024 21:21:00 GMT*
+
+
+## City Girls
+
+## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
+
+PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
+
+*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
 
 
 ## Chloe Bailey
@@ -4769,6 +5237,15 @@ Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes d
 *Published on: Mon, 29 Jul 2024 21:21:00 GMT*
 
 
+## Chloe Bailey
+
+## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
+
+PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
+
+*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
+
+
 ## Charli D Amelio
 
 ## [Remember Patta  Nike’s Air Max Grail? Well, It's Back!](https://www.highsnobiety.com/p/patta-nike-air-max-1-chlorophyll-release-date-2024/)
@@ -4857,6 +5334,15 @@ Between getting Sonny Angel tattoos and accessorizing their phones with Sonny An
 Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes do no wrong. The 480 "Dunks" get better, actually.After enjoying some of the mos…
 
 *Published on: Mon, 29 Jul 2024 21:21:00 GMT*
+
+
+## Charli D Amelio
+
+## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
+
+PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
+
+*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
 
 
 ## Cardi B
@@ -4949,6 +5435,15 @@ Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes d
 *Published on: Mon, 29 Jul 2024 21:21:00 GMT*
 
 
+## Cardi B
+
+## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
+
+PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
+
+*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
+
+
 ## Bryan Cranston
 
 ## [Remember Patta  Nike’s Air Max Grail? Well, It's Back!](https://www.highsnobiety.com/p/patta-nike-air-max-1-chlorophyll-release-date-2024/)
@@ -5037,6 +5532,15 @@ Between getting Sonny Angel tattoos and accessorizing their phones with Sonny An
 Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes do no wrong. The 480 "Dunks" get better, actually.After enjoying some of the mos…
 
 *Published on: Mon, 29 Jul 2024 21:21:00 GMT*
+
+
+## Bryan Cranston
+
+## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
+
+PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
+
+*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
 
 
 ## Brielle Biermann
@@ -5129,6 +5633,15 @@ Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes d
 *Published on: Mon, 29 Jul 2024 21:21:00 GMT*
 
 
+## Brielle Biermann
+
+## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
+
+PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
+
+*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
+
+
 ## Dua Lipa
 
 ## [Remember Patta  Nike’s Air Max Grail? Well, It's Back!](https://www.highsnobiety.com/p/patta-nike-air-max-1-chlorophyll-release-date-2024/)
@@ -5217,6 +5730,15 @@ Between getting Sonny Angel tattoos and accessorizing their phones with Sonny An
 Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes do no wrong. The 480 "Dunks" get better, actually.After enjoying some of the mos…
 
 *Published on: Mon, 29 Jul 2024 21:21:00 GMT*
+
+
+## Dua Lipa
+
+## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
+
+PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
+
+*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
 
 
 ## Drake
@@ -5309,6 +5831,15 @@ Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes d
 *Published on: Mon, 29 Jul 2024 21:21:00 GMT*
 
 
+## Drake
+
+## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
+
+PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
+
+*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
+
+
 ## Jenner
 
 ## [Remember Patta  Nike’s Air Max Grail? Well, It's Back!](https://www.highsnobiety.com/p/patta-nike-air-max-1-chlorophyll-release-date-2024/)
@@ -5397,6 +5928,15 @@ Between getting Sonny Angel tattoos and accessorizing their phones with Sonny An
 Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes do no wrong. The 480 "Dunks" get better, actually.After enjoying some of the mos…
 
 *Published on: Mon, 29 Jul 2024 21:21:00 GMT*
+
+
+## Jenner
+
+## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
+
+PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
+
+*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
 
 
 ## J. Cole
@@ -5489,6 +6029,15 @@ Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes d
 *Published on: Mon, 29 Jul 2024 21:21:00 GMT*
 
 
+## J. Cole
+
+## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
+
+PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
+
+*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
+
+
 ## Jerrod Carmichael
 
 ## [Remember Patta  Nike’s Air Max Grail? Well, It's Back!](https://www.highsnobiety.com/p/patta-nike-air-max-1-chlorophyll-release-date-2024/)
@@ -5577,6 +6126,15 @@ Between getting Sonny Angel tattoos and accessorizing their phones with Sonny An
 Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes do no wrong. The 480 "Dunks" get better, actually.After enjoying some of the mos…
 
 *Published on: Mon, 29 Jul 2024 21:21:00 GMT*
+
+
+## Jerrod Carmichael
+
+## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
+
+PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
+
+*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
 
 
 ## Jennifer Lawrence
@@ -5669,6 +6227,15 @@ Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes d
 *Published on: Mon, 29 Jul 2024 21:21:00 GMT*
 
 
+## Jennifer Lawrence
+
+## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
+
+PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
+
+*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
+
+
 ## Joe Biden
 
 ## [Remember Patta  Nike’s Air Max Grail? Well, It's Back!](https://www.highsnobiety.com/p/patta-nike-air-max-1-chlorophyll-release-date-2024/)
@@ -5757,6 +6324,15 @@ Between getting Sonny Angel tattoos and accessorizing their phones with Sonny An
 Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes do no wrong. The 480 "Dunks" get better, actually.After enjoying some of the mos…
 
 *Published on: Mon, 29 Jul 2024 21:21:00 GMT*
+
+
+## Joe Biden
+
+## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
+
+PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
+
+*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
 
 
 ## J.K. Simmons
@@ -5849,6 +6425,15 @@ Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes d
 *Published on: Mon, 29 Jul 2024 21:21:00 GMT*
 
 
+## J.K. Simmons
+
+## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
+
+PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
+
+*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
+
+
 ## Kamala Harris
 
 ## [Remember Patta  Nike’s Air Max Grail? Well, It's Back!](https://www.highsnobiety.com/p/patta-nike-air-max-1-chlorophyll-release-date-2024/)
@@ -5937,6 +6522,15 @@ Between getting Sonny Angel tattoos and accessorizing their phones with Sonny An
 Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes do no wrong. The 480 "Dunks" get better, actually.After enjoying some of the mos…
 
 *Published on: Mon, 29 Jul 2024 21:21:00 GMT*
+
+
+## Kamala Harris
+
+## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
+
+PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
+
+*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
 
 
 ## John C Reilly
@@ -6029,6 +6623,15 @@ Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes d
 *Published on: Mon, 29 Jul 2024 21:21:00 GMT*
 
 
+## John C Reilly
+
+## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
+
+PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
+
+*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
+
+
 ## Kardashian
 
 ## [Remember Patta  Nike’s Air Max Grail? Well, It's Back!](https://www.highsnobiety.com/p/patta-nike-air-max-1-chlorophyll-release-date-2024/)
@@ -6117,6 +6720,15 @@ Between getting Sonny Angel tattoos and accessorizing their phones with Sonny An
 Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes do no wrong. The 480 "Dunks" get better, actually.After enjoying some of the mos…
 
 *Published on: Mon, 29 Jul 2024 21:21:00 GMT*
+
+
+## Kardashian
+
+## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
+
+PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
+
+*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
 
 
 ## Kanye
@@ -6209,6 +6821,15 @@ Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes d
 *Published on: Mon, 29 Jul 2024 21:21:00 GMT*
 
 
+## Kanye
+
+## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
+
+PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
+
+*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
+
+
 ## Zendaya
 
 ## [Remember Patta  Nike’s Air Max Grail? Well, It's Back!](https://www.highsnobiety.com/p/patta-nike-air-max-1-chlorophyll-release-date-2024/)
@@ -6297,6 +6918,15 @@ Between getting Sonny Angel tattoos and accessorizing their phones with Sonny An
 Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes do no wrong. The 480 "Dunks" get better, actually.After enjoying some of the mos…
 
 *Published on: Mon, 29 Jul 2024 21:21:00 GMT*
+
+
+## Zendaya
+
+## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
+
+PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
+
+*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
 
 
 ## Will Ferrell
@@ -6389,6 +7019,15 @@ Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes d
 *Published on: Mon, 29 Jul 2024 21:21:00 GMT*
 
 
+## Will Ferrell
+
+## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
+
+PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
+
+*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
+
+
 ## Zazie Beetz
 
 ## [Remember Patta  Nike’s Air Max Grail? Well, It's Back!](https://www.highsnobiety.com/p/patta-nike-air-max-1-chlorophyll-release-date-2024/)
@@ -6477,6 +7116,15 @@ Between getting Sonny Angel tattoos and accessorizing their phones with Sonny An
 Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes do no wrong. The 480 "Dunks" get better, actually.After enjoying some of the mos…
 
 *Published on: Mon, 29 Jul 2024 21:21:00 GMT*
+
+
+## Zazie Beetz
+
+## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
+
+PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
+
+*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
 
 
 ## Bob Odenkirk
@@ -6569,6 +7217,15 @@ Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes d
 *Published on: Mon, 29 Jul 2024 21:21:00 GMT*
 
 
+## Bob Odenkirk
+
+## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
+
+PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
+
+*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
+
+
 ## Brad Pitt
 
 ## [Remember Patta  Nike’s Air Max Grail? Well, It's Back!](https://www.highsnobiety.com/p/patta-nike-air-max-1-chlorophyll-release-date-2024/)
@@ -6657,6 +7314,15 @@ Between getting Sonny Angel tattoos and accessorizing their phones with Sonny An
 Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes do no wrong. The 480 "Dunks" get better, actually.After enjoying some of the mos…
 
 *Published on: Mon, 29 Jul 2024 21:21:00 GMT*
+
+
+## Brad Pitt
+
+## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
+
+PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
+
+*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
 
 
 ## Beyoncé
@@ -6749,6 +7415,15 @@ Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes d
 *Published on: Mon, 29 Jul 2024 21:21:00 GMT*
 
 
+## Beyoncé
+
+## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
+
+PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
+
+*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
+
+
 ## Bia
 
 ## [Remember Patta  Nike’s Air Max Grail? Well, It's Back!](https://www.highsnobiety.com/p/patta-nike-air-max-1-chlorophyll-release-date-2024/)
@@ -6837,6 +7512,15 @@ Between getting Sonny Angel tattoos and accessorizing their phones with Sonny An
 Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes do no wrong. The 480 "Dunks" get better, actually.After enjoying some of the mos…
 
 *Published on: Mon, 29 Jul 2024 21:21:00 GMT*
+
+
+## Bia
+
+## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
+
+PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
+
+*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
 
 
 ## Avantika
@@ -6929,6 +7613,15 @@ Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes d
 *Published on: Mon, 29 Jul 2024 21:21:00 GMT*
 
 
+## Avantika
+
+## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
+
+PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
+
+*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
+
+
 ## Bernie Sanders
 
 ## [Remember Patta  Nike’s Air Max Grail? Well, It's Back!](https://www.highsnobiety.com/p/patta-nike-air-max-1-chlorophyll-release-date-2024/)
@@ -7017,6 +7710,15 @@ Between getting Sonny Angel tattoos and accessorizing their phones with Sonny An
 Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes do no wrong. The 480 "Dunks" get better, actually.After enjoying some of the mos…
 
 *Published on: Mon, 29 Jul 2024 21:21:00 GMT*
+
+
+## Bernie Sanders
+
+## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
+
+PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
+
+*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
 
 
 ## Big Sean
@@ -7109,6 +7811,15 @@ Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes d
 *Published on: Mon, 29 Jul 2024 21:21:00 GMT*
 
 
+## Big Sean
+
+## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
+
+PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
+
+*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
+
+
 ## BlockBoy JB
 
 ## [Remember Patta  Nike’s Air Max Grail? Well, It's Back!](https://www.highsnobiety.com/p/patta-nike-air-max-1-chlorophyll-release-date-2024/)
@@ -7197,6 +7908,15 @@ Between getting Sonny Angel tattoos and accessorizing their phones with Sonny An
 Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes do no wrong. The 480 "Dunks" get better, actually.After enjoying some of the mos…
 
 *Published on: Mon, 29 Jul 2024 21:21:00 GMT*
+
+
+## BlockBoy JB
+
+## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
+
+PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
+
+*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
 
 
 ## Biden
@@ -7289,6 +8009,15 @@ Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes d
 *Published on: Mon, 29 Jul 2024 21:21:00 GMT*
 
 
+## Biden
+
+## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
+
+PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
+
+*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
+
+
 ## Bieber
 
 ## [Remember Patta  Nike’s Air Max Grail? Well, It's Back!](https://www.highsnobiety.com/p/patta-nike-air-max-1-chlorophyll-release-date-2024/)
@@ -7377,6 +8106,15 @@ Between getting Sonny Angel tattoos and accessorizing their phones with Sonny An
 Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes do no wrong. The 480 "Dunks" get better, actually.After enjoying some of the mos…
 
 *Published on: Mon, 29 Jul 2024 21:21:00 GMT*
+
+
+## Bieber
+
+## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
+
+PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
+
+*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
 
 
 ## Paulina Porizkov
@@ -7469,6 +8207,15 @@ Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes d
 *Published on: Mon, 29 Jul 2024 21:21:00 GMT*
 
 
+## Paulina Porizkov
+
+## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
+
+PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
+
+*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
+
+
 ## Paris Hilton
 
 ## [Remember Patta  Nike’s Air Max Grail? Well, It's Back!](https://www.highsnobiety.com/p/patta-nike-air-max-1-chlorophyll-release-date-2024/)
@@ -7559,6 +8306,15 @@ Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes d
 *Published on: Mon, 29 Jul 2024 21:21:00 GMT*
 
 
+## Paris Hilton
+
+## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
+
+PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
+
+*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
+
+
 ## Metro Boomin
 
 ## [Remember Patta  Nike’s Air Max Grail? Well, It's Back!](https://www.highsnobiety.com/p/patta-nike-air-max-1-chlorophyll-release-date-2024/)
@@ -7649,6 +8405,15 @@ Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes d
 *Published on: Mon, 29 Jul 2024 21:21:00 GMT*
 
 
+## Metro Boomin
+
+## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
+
+PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
+
+*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
+
+
 ## Meghan Markle
 
 ## [Remember Patta  Nike’s Air Max Grail? Well, It's Back!](https://www.highsnobiety.com/p/patta-nike-air-max-1-chlorophyll-release-date-2024/)
@@ -7739,6 +8504,15 @@ Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes d
 *Published on: Mon, 29 Jul 2024 21:21:00 GMT*
 
 
+## Meghan Markle
+
+## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
+
+PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
+
+*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
+
+
 ## Megan Thee Stallion
 
 ## [Remember Patta  Nike’s Air Max Grail? Well, It's Back!](https://www.highsnobiety.com/p/patta-nike-air-max-1-chlorophyll-release-date-2024/)
@@ -7829,6 +8603,15 @@ Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes d
 *Published on: Mon, 29 Jul 2024 21:21:00 GMT*
 
 
+## Megan Thee Stallion
+
+## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
+
+PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
+
+*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
+
+
 ## Maya Rudolph
 
 ## [Remember Patta  Nike’s Air Max Grail? Well, It's Back!](https://www.highsnobiety.com/p/patta-nike-air-max-1-chlorophyll-release-date-2024/)
@@ -7919,6 +8702,15 @@ Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes d
 *Published on: Mon, 29 Jul 2024 21:21:00 GMT*
 
 
+## Maya Rudolph
+
+## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
+
+PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
+
+*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
+
+
 ## Olivia Rodrigo
 
 ## [Remember Patta  Nike’s Air Max Grail? Well, It's Back!](https://www.highsnobiety.com/p/patta-nike-air-max-1-chlorophyll-release-date-2024/)
@@ -8009,6 +8801,15 @@ Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes d
 *Published on: Mon, 29 Jul 2024 21:21:00 GMT*
 
 
+## Olivia Rodrigo
+
+## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
+
+PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
+
+*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
+
+
 ## Obama
 
 ## [Remember Patta  Nike’s Air Max Grail? Well, It's Back!](https://www.highsnobiety.com/p/patta-nike-air-max-1-chlorophyll-release-date-2024/)
@@ -8099,6 +8900,15 @@ Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes d
 *Published on: Mon, 29 Jul 2024 21:21:00 GMT*
 
 
+## Obama
+
+## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
+
+PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
+
+*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
+
+
 ## Nicki Minaj
 
 ## [Remember Patta  Nike’s Air Max Grail? Well, It's Back!](https://www.highsnobiety.com/p/patta-nike-air-max-1-chlorophyll-release-date-2024/)
@@ -8189,6 +8999,15 @@ Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes d
 *Published on: Mon, 29 Jul 2024 21:21:00 GMT*
 
 
+## Nicki Minaj
+
+## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
+
+PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
+
+*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
+
+
 ## MrBeast
 
 ## [Remember Patta  Nike’s Air Max Grail? Well, It's Back!](https://www.highsnobiety.com/p/patta-nike-air-max-1-chlorophyll-release-date-2024/)
@@ -8277,5 +9096,14 @@ Between getting Sonny Angel tattoos and accessorizing their phones with Sonny An
 Even with the most classic paint jobs, the New Balance Numeric 480 skate shoes do no wrong. The 480 "Dunks" get better, actually.After enjoying some of the mos…
 
 *Published on: Mon, 29 Jul 2024 21:21:00 GMT*
+
+
+## MrBeast
+
+## [PUMA's Killer Dad Shoe Is Basically A$AP Rocky-Tier](https://www.highsnobiety.com/p/puma-extos-collector-sneakers-2024/)
+
+PUMA is back in its historic collection of sneakers, having pulled out its Extol runner and Thanos sneakers from the early 2000s and fused them for a new model…
+
+*Published on: Mon, 29 Jul 2024 19:29:39 GMT*
 
 
