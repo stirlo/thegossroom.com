@@ -77,7 +77,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 01 Aug 2024 20:41:23 GMT*
+*Published on: Fri, 02 Aug 2024 08:41:23 GMT*
 
 
 ## Tim Cook
@@ -212,7 +212,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 01 Aug 2024 20:41:23 GMT*
+*Published on: Fri, 02 Aug 2024 08:41:23 GMT*
 
 
 ## Taylor Swift
@@ -347,7 +347,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 01 Aug 2024 20:41:23 GMT*
+*Published on: Fri, 02 Aug 2024 08:41:23 GMT*
 
 
 ## Tom Brady
@@ -482,7 +482,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 01 Aug 2024 20:41:23 GMT*
+*Published on: Fri, 02 Aug 2024 08:41:23 GMT*
 
 
 ## Tina Fey
@@ -617,7 +617,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 01 Aug 2024 20:41:23 GMT*
+*Published on: Fri, 02 Aug 2024 08:41:23 GMT*
 
 
 ## Steven Yuen
@@ -752,7 +752,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 01 Aug 2024 20:41:23 GMT*
+*Published on: Fri, 02 Aug 2024 08:41:23 GMT*
 
 
 ## Sommer Ray
@@ -887,7 +887,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 01 Aug 2024 20:41:23 GMT*
+*Published on: Fri, 02 Aug 2024 08:41:23 GMT*
 
 
 ## Sza
@@ -1022,7 +1022,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 01 Aug 2024 20:41:23 GMT*
+*Published on: Fri, 02 Aug 2024 08:41:23 GMT*
 
 
 ## Sydney Sweeney
@@ -1157,7 +1157,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 01 Aug 2024 20:41:23 GMT*
+*Published on: Fri, 02 Aug 2024 08:41:23 GMT*
 
 
 ## Walton Goggins
@@ -1292,7 +1292,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 01 Aug 2024 20:41:23 GMT*
+*Published on: Fri, 02 Aug 2024 08:41:23 GMT*
 
 
 ## Tom Holland
@@ -1427,7 +1427,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 01 Aug 2024 20:41:23 GMT*
+*Published on: Fri, 02 Aug 2024 08:41:23 GMT*
 
 
 ## Gucci Mane
@@ -1562,7 +1562,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 01 Aug 2024 20:41:23 GMT*
+*Published on: Fri, 02 Aug 2024 08:41:23 GMT*
 
 
 ## Harry Styles
@@ -1697,7 +1697,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 01 Aug 2024 20:41:23 GMT*
+*Published on: Fri, 02 Aug 2024 08:41:23 GMT*
 
 
 ## Jake Paul
@@ -1832,7 +1832,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 01 Aug 2024 20:41:23 GMT*
+*Published on: Fri, 02 Aug 2024 08:41:23 GMT*
 
 
 ## Jameela Jamil
@@ -1967,7 +1967,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 01 Aug 2024 20:41:23 GMT*
+*Published on: Fri, 02 Aug 2024 08:41:23 GMT*
 
 
 ## Elon Musk
@@ -2102,7 +2102,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 01 Aug 2024 20:41:23 GMT*
+*Published on: Fri, 02 Aug 2024 08:41:23 GMT*
 
 
 ## Gabrielle Union
@@ -2237,7 +2237,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 01 Aug 2024 20:41:23 GMT*
+*Published on: Fri, 02 Aug 2024 08:41:23 GMT*
 
 
 ## Giancarlo Esposito
@@ -2372,7 +2372,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 01 Aug 2024 20:41:23 GMT*
+*Published on: Fri, 02 Aug 2024 08:41:23 GMT*
 
 
 ## Gillian Jacobs
@@ -2507,7 +2507,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 01 Aug 2024 20:41:23 GMT*
+*Published on: Fri, 02 Aug 2024 08:41:23 GMT*
 
 
 ## Jason Mantzoukas
@@ -2642,7 +2642,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 01 Aug 2024 20:41:23 GMT*
+*Published on: Fri, 02 Aug 2024 08:41:23 GMT*
 
 
 ## JB Smoove
@@ -2777,7 +2777,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 01 Aug 2024 20:41:23 GMT*
+*Published on: Fri, 02 Aug 2024 08:41:23 GMT*
 
 
 ## Madison Pettis
@@ -2912,7 +2912,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 01 Aug 2024 20:41:23 GMT*
+*Published on: Fri, 02 Aug 2024 08:41:23 GMT*
 
 
 ## Austin Butler
@@ -3047,7 +3047,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 01 Aug 2024 20:41:23 GMT*
+*Published on: Fri, 02 Aug 2024 08:41:23 GMT*
 
 
 ## Mark Zuckerberg
@@ -3182,7 +3182,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 01 Aug 2024 20:41:23 GMT*
+*Published on: Fri, 02 Aug 2024 08:41:23 GMT*
 
 
 ## Ariana Grande
@@ -3317,7 +3317,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 01 Aug 2024 20:41:23 GMT*
+*Published on: Fri, 02 Aug 2024 08:41:23 GMT*
 
 
 ## Livvy Dunne
@@ -3452,7 +3452,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 01 Aug 2024 20:41:23 GMT*
+*Published on: Fri, 02 Aug 2024 08:41:23 GMT*
 
 
 ## Ali Wong
@@ -3587,7 +3587,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 01 Aug 2024 20:41:23 GMT*
+*Published on: Fri, 02 Aug 2024 08:41:23 GMT*
 
 
 ## Lizzo
@@ -3722,7 +3722,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 01 Aug 2024 20:41:23 GMT*
+*Published on: Fri, 02 Aug 2024 08:41:23 GMT*
 
 
 ## Alison Brie
@@ -3857,7 +3857,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 01 Aug 2024 20:41:23 GMT*
+*Published on: Fri, 02 Aug 2024 08:41:23 GMT*
 
 
 ## Lil Wayne
@@ -3992,7 +3992,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 01 Aug 2024 20:41:23 GMT*
+*Published on: Fri, 02 Aug 2024 08:41:23 GMT*
 
 
 ## Adele
@@ -4127,7 +4127,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 01 Aug 2024 20:41:23 GMT*
+*Published on: Fri, 02 Aug 2024 08:41:23 GMT*
 
 
 ## Lindsay Lohan
@@ -4262,7 +4262,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 01 Aug 2024 20:41:23 GMT*
+*Published on: Fri, 02 Aug 2024 08:41:23 GMT*
 
 
 ## Addison Rae
@@ -4397,7 +4397,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 01 Aug 2024 20:41:23 GMT*
+*Published on: Fri, 02 Aug 2024 08:41:23 GMT*
 
 
 ## Latto
@@ -4532,7 +4532,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 01 Aug 2024 20:41:23 GMT*
+*Published on: Fri, 02 Aug 2024 08:41:23 GMT*
 
 
 ## Aaron Paul
@@ -4667,7 +4667,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 01 Aug 2024 20:41:23 GMT*
+*Published on: Fri, 02 Aug 2024 08:41:23 GMT*
 
 
 ## LeBron James
@@ -4802,7 +4802,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 01 Aug 2024 20:41:23 GMT*
+*Published on: Fri, 02 Aug 2024 08:41:23 GMT*
 
 
 ## 50 Cent
@@ -4937,7 +4937,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 01 Aug 2024 20:41:23 GMT*
+*Published on: Fri, 02 Aug 2024 08:41:23 GMT*
 
 
 ## Kesha
@@ -5072,7 +5072,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 01 Aug 2024 20:41:23 GMT*
+*Published on: Fri, 02 Aug 2024 08:41:23 GMT*
 
 
 ## 21 Savage
@@ -5207,7 +5207,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 01 Aug 2024 20:41:23 GMT*
+*Published on: Fri, 02 Aug 2024 08:41:23 GMT*
 
 
 ## Larry David
@@ -5342,7 +5342,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 01 Aug 2024 20:41:23 GMT*
+*Published on: Fri, 02 Aug 2024 08:41:23 GMT*
 
 
 ## Seth Rogan
@@ -5477,7 +5477,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 01 Aug 2024 20:41:23 GMT*
+*Published on: Fri, 02 Aug 2024 08:41:23 GMT*
 
 
 ## Simone Biles
@@ -5612,7 +5612,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 01 Aug 2024 20:41:23 GMT*
+*Published on: Fri, 02 Aug 2024 08:41:23 GMT*
 
 
 ## Pete Davidson
@@ -5747,7 +5747,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 01 Aug 2024 20:41:23 GMT*
+*Published on: Fri, 02 Aug 2024 08:41:23 GMT*
 
 
 ## Prince Harry
@@ -5882,7 +5882,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 01 Aug 2024 20:41:23 GMT*
+*Published on: Fri, 02 Aug 2024 08:41:23 GMT*
 
 
 ## Princess of Wales
@@ -6017,7 +6017,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 01 Aug 2024 20:41:23 GMT*
+*Published on: Fri, 02 Aug 2024 08:41:23 GMT*
 
 
 ## Rachel McAdams
@@ -6152,7 +6152,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 01 Aug 2024 20:41:23 GMT*
+*Published on: Fri, 02 Aug 2024 08:41:23 GMT*
 
 
 ## Reneé Rapp
@@ -6287,7 +6287,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 01 Aug 2024 20:41:23 GMT*
+*Published on: Fri, 02 Aug 2024 08:41:23 GMT*
 
 
 ## Rick Ross
@@ -6422,7 +6422,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 01 Aug 2024 20:41:23 GMT*
+*Published on: Fri, 02 Aug 2024 08:41:23 GMT*
 
 
 ## Sam Ashgari
@@ -6557,7 +6557,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 01 Aug 2024 20:41:23 GMT*
+*Published on: Fri, 02 Aug 2024 08:41:23 GMT*
 
 
 ## Sandra Oh
@@ -6692,7 +6692,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 01 Aug 2024 20:41:23 GMT*
+*Published on: Fri, 02 Aug 2024 08:41:23 GMT*
 
 
 ## Donald Trump
@@ -6827,7 +6827,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 01 Aug 2024 20:41:23 GMT*
+*Published on: Fri, 02 Aug 2024 08:41:23 GMT*
 
 
 ## Diddy
@@ -6962,7 +6962,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 01 Aug 2024 20:41:23 GMT*
+*Published on: Fri, 02 Aug 2024 08:41:23 GMT*
 
 
 ## City Girls
@@ -7097,7 +7097,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 01 Aug 2024 20:41:23 GMT*
+*Published on: Fri, 02 Aug 2024 08:41:23 GMT*
 
 
 ## Chloe Bailey
@@ -7232,7 +7232,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 01 Aug 2024 20:41:23 GMT*
+*Published on: Fri, 02 Aug 2024 08:41:23 GMT*
 
 
 ## Charli D Amelio
@@ -7367,7 +7367,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 01 Aug 2024 20:41:23 GMT*
+*Published on: Fri, 02 Aug 2024 08:41:23 GMT*
 
 
 ## Cardi B
@@ -7502,7 +7502,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 01 Aug 2024 20:41:23 GMT*
+*Published on: Fri, 02 Aug 2024 08:41:23 GMT*
 
 
 ## Bryan Cranston
@@ -7637,7 +7637,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 01 Aug 2024 20:41:23 GMT*
+*Published on: Fri, 02 Aug 2024 08:41:23 GMT*
 
 
 ## Brielle Biermann
@@ -7772,7 +7772,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 01 Aug 2024 20:41:23 GMT*
+*Published on: Fri, 02 Aug 2024 08:41:23 GMT*
 
 
 ## Dua Lipa
@@ -7907,7 +7907,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 01 Aug 2024 20:41:23 GMT*
+*Published on: Fri, 02 Aug 2024 08:41:23 GMT*
 
 
 ## Drake
@@ -8042,7 +8042,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 01 Aug 2024 20:41:23 GMT*
+*Published on: Fri, 02 Aug 2024 08:41:23 GMT*
 
 
 ## Jenner
@@ -8177,7 +8177,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 01 Aug 2024 20:41:23 GMT*
+*Published on: Fri, 02 Aug 2024 08:41:23 GMT*
 
 
 ## J. Cole
@@ -8312,7 +8312,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 01 Aug 2024 20:41:23 GMT*
+*Published on: Fri, 02 Aug 2024 08:41:23 GMT*
 
 
 ## Jerrod Carmichael
@@ -8447,7 +8447,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 01 Aug 2024 20:41:23 GMT*
+*Published on: Fri, 02 Aug 2024 08:41:23 GMT*
 
 
 ## Jennifer Lawrence
@@ -8582,7 +8582,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 01 Aug 2024 20:41:23 GMT*
+*Published on: Fri, 02 Aug 2024 08:41:23 GMT*
 
 
 ## Joe Biden
@@ -8717,7 +8717,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 01 Aug 2024 20:41:23 GMT*
+*Published on: Fri, 02 Aug 2024 08:41:23 GMT*
 
 
 ## J.K. Simmons
@@ -8852,7 +8852,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 01 Aug 2024 20:41:23 GMT*
+*Published on: Fri, 02 Aug 2024 08:41:23 GMT*
 
 
 ## Kamala Harris
@@ -8987,7 +8987,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 01 Aug 2024 20:41:23 GMT*
+*Published on: Fri, 02 Aug 2024 08:41:23 GMT*
 
 
 ## John C Reilly
@@ -9122,7 +9122,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 01 Aug 2024 20:41:23 GMT*
+*Published on: Fri, 02 Aug 2024 08:41:23 GMT*
 
 
 ## Kardashian
@@ -9257,7 +9257,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 01 Aug 2024 20:41:23 GMT*
+*Published on: Fri, 02 Aug 2024 08:41:23 GMT*
 
 
 ## Kanye
@@ -9392,7 +9392,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 01 Aug 2024 20:41:23 GMT*
+*Published on: Fri, 02 Aug 2024 08:41:23 GMT*
 
 
 ## Zendaya
@@ -9527,7 +9527,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 01 Aug 2024 20:41:23 GMT*
+*Published on: Fri, 02 Aug 2024 08:41:23 GMT*
 
 
 ## Will Ferrell
@@ -9662,7 +9662,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 01 Aug 2024 20:41:23 GMT*
+*Published on: Fri, 02 Aug 2024 08:41:23 GMT*
 
 
 ## Zazie Beetz
@@ -9797,7 +9797,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 01 Aug 2024 20:41:23 GMT*
+*Published on: Fri, 02 Aug 2024 08:41:23 GMT*
 
 
 ## Bob Odenkirk
@@ -9932,7 +9932,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 01 Aug 2024 20:41:23 GMT*
+*Published on: Fri, 02 Aug 2024 08:41:23 GMT*
 
 
 ## Brad Pitt
@@ -10067,7 +10067,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 01 Aug 2024 20:41:23 GMT*
+*Published on: Fri, 02 Aug 2024 08:41:23 GMT*
 
 
 ## Beyoncé
@@ -10202,7 +10202,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 01 Aug 2024 20:41:23 GMT*
+*Published on: Fri, 02 Aug 2024 08:41:23 GMT*
 
 
 ## Bia
@@ -10337,7 +10337,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 01 Aug 2024 20:41:23 GMT*
+*Published on: Fri, 02 Aug 2024 08:41:23 GMT*
 
 
 ## Avantika
@@ -10472,7 +10472,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 01 Aug 2024 20:41:23 GMT*
+*Published on: Fri, 02 Aug 2024 08:41:23 GMT*
 
 
 ## Bernie Sanders
@@ -10607,7 +10607,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 01 Aug 2024 20:41:23 GMT*
+*Published on: Fri, 02 Aug 2024 08:41:23 GMT*
 
 
 ## Big Sean
@@ -10742,7 +10742,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 01 Aug 2024 20:41:23 GMT*
+*Published on: Fri, 02 Aug 2024 08:41:23 GMT*
 
 
 ## BlockBoy JB
@@ -10877,7 +10877,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 01 Aug 2024 20:41:23 GMT*
+*Published on: Fri, 02 Aug 2024 08:41:23 GMT*
 
 
 ## Biden
@@ -11012,7 +11012,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 01 Aug 2024 20:41:23 GMT*
+*Published on: Fri, 02 Aug 2024 08:41:23 GMT*
 
 
 ## Bieber
@@ -11147,7 +11147,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 01 Aug 2024 20:41:23 GMT*
+*Published on: Fri, 02 Aug 2024 08:41:23 GMT*
 
 
 ## Paulina Porizkov
@@ -11282,7 +11282,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 01 Aug 2024 20:41:23 GMT*
+*Published on: Fri, 02 Aug 2024 08:41:23 GMT*
 
 
 ## Paris Hilton
@@ -11417,7 +11417,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 01 Aug 2024 20:41:23 GMT*
+*Published on: Fri, 02 Aug 2024 08:41:23 GMT*
 
 
 ## Metro Boomin
@@ -11552,7 +11552,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 01 Aug 2024 20:41:23 GMT*
+*Published on: Fri, 02 Aug 2024 08:41:23 GMT*
 
 
 ## Meghan Markle
@@ -11687,7 +11687,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 01 Aug 2024 20:41:23 GMT*
+*Published on: Fri, 02 Aug 2024 08:41:23 GMT*
 
 
 ## Megan Thee Stallion
@@ -11822,7 +11822,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 01 Aug 2024 20:41:23 GMT*
+*Published on: Fri, 02 Aug 2024 08:41:23 GMT*
 
 
 ## Maya Rudolph
@@ -11957,7 +11957,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 01 Aug 2024 20:41:23 GMT*
+*Published on: Fri, 02 Aug 2024 08:41:23 GMT*
 
 
 ## Olivia Rodrigo
@@ -12092,7 +12092,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 01 Aug 2024 20:41:23 GMT*
+*Published on: Fri, 02 Aug 2024 08:41:23 GMT*
 
 
 ## Obama
@@ -12227,7 +12227,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 01 Aug 2024 20:41:23 GMT*
+*Published on: Fri, 02 Aug 2024 08:41:23 GMT*
 
 
 ## Nicki Minaj
@@ -12362,7 +12362,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 01 Aug 2024 20:41:23 GMT*
+*Published on: Fri, 02 Aug 2024 08:41:23 GMT*
 
 
 ## MrBeast
