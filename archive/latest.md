@@ -1,29 +1,11 @@
 # Latest Stories
 ## Tim Cook
 
-## [The Celebrity Beauty Boom Isn't Over Yet](https://www.highsnobiety.com/p/celebrity-beauty-brands-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 09:20:00 GMT*
-
-
-## Tim Cook
-
 ## [Y-3’s Wonderfully Flat Sneaker is a Minimalist's Dream](https://www.highsnobiety.com/p/adidas-y3-japan-sneakers-fall-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Mon, 05 Aug 2024 09:46:18 GMT*
-
-
-## Tim Cook
-
-## [Super Exclusive New Balances Are Coming to a City Near You](https://www.highsnobiety.com/p/new-balances-991v2-city-edition/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 10:02:39 GMT*
 
 
 ## Tim Cook
@@ -59,24 +41,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Tim Cook
 
-## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 16:35:34 GMT*
-
-
-## Tim Cook
-
-## [ASICS' Leather Dad Shoe Is a New (Balance) Kind of Sneaker](https://www.highsnobiety.com/p/asics-gel-1130-leather-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 18:31:22 GMT*
-
-
-## Tim Cook
-
 ## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -86,11 +50,38 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Tim Cook
 
-## [Oui? Oui! Nike's Paris-Themed Forces Are Scarily Good     ](https://www.highsnobiety.com/p/nike-air-force-1-low-paris-sneakers-2024/)
+## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 05 Aug 2024 09:15:46 GMT*
+*Published on: Tue, 06 Aug 2024 08:45:34 GMT*
+
+
+## Tim Cook
+
+## [ASICS' Leather Dad Shoe Is a New (Balance) Kind of Sneaker](https://www.highsnobiety.com/p/asics-gel-1130-leather-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:00:22 GMT*
+
+
+## Tim Cook
+
+## [Everything SNKRheads Must Know for Nike SNKRS Day 2024](https://www.highsnobiety.com/p/nike-snkrs-day-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:10:02 GMT*
+
+
+## Tim Cook
+
+## [Malls May Be Dead But Mall Brands Have Never Been More Alive](https://www.highsnobiety.com/p/mall-brand-renaissance-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:35:33 GMT*
 
 
 ## Tim Cook
@@ -102,13 +93,22 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 05 Aug 2024 09:00:00 GMT*
 
 
-## Taylor Swift
+## Tim Cook
 
 ## [The Celebrity Beauty Boom Isn't Over Yet](https://www.highsnobiety.com/p/celebrity-beauty-brands-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Mon, 05 Aug 2024 09:20:00 GMT*
+
+
+## Tim Cook
+
+## [Oui? Oui! Nike's Paris-Themed Forces Are Scarily Good     ](https://www.highsnobiety.com/p/nike-air-force-1-low-paris-sneakers-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 09:15:46 GMT*
 
 
 ## Taylor Swift
@@ -118,15 +118,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Mon, 05 Aug 2024 09:46:18 GMT*
-
-
-## Taylor Swift
-
-## [Super Exclusive New Balances Are Coming to a City Near You](https://www.highsnobiety.com/p/new-balances-991v2-city-edition/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 10:02:39 GMT*
 
 
 ## Taylor Swift
@@ -162,11 +153,20 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Taylor Swift
 
+## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 19:13:37 GMT*
+
+
+## Taylor Swift
+
 ## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 05 Aug 2024 16:35:34 GMT*
+*Published on: Tue, 06 Aug 2024 08:45:34 GMT*
 
 
 ## Taylor Swift
@@ -175,16 +175,43 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 05 Aug 2024 18:31:22 GMT*
+*Published on: Tue, 06 Aug 2024 09:00:22 GMT*
 
 
 ## Taylor Swift
 
-## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
+## [Everything SNKRheads Must Know for Nike SNKRS Day 2024](https://www.highsnobiety.com/p/nike-snkrs-day-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 05 Aug 2024 19:13:37 GMT*
+*Published on: Tue, 06 Aug 2024 09:10:02 GMT*
+
+
+## Taylor Swift
+
+## [Malls May Be Dead But Mall Brands Have Never Been More Alive](https://www.highsnobiety.com/p/mall-brand-renaissance-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:35:33 GMT*
+
+
+## Taylor Swift
+
+## [adidas’ Secretly Good Sneaker Pushes the Samba Further Aside](https://www.highsnobiety.com/p/adidas-spezial-sneakers-black-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 09:00:00 GMT*
+
+
+## Taylor Swift
+
+## [The Celebrity Beauty Boom Isn't Over Yet](https://www.highsnobiety.com/p/celebrity-beauty-brands-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 09:20:00 GMT*
 
 
 ## Taylor Swift
@@ -196,7 +223,92 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 05 Aug 2024 09:15:46 GMT*
 
 
-## Taylor Swift
+## Tom Brady
+
+## [Y-3’s Wonderfully Flat Sneaker is a Minimalist's Dream](https://www.highsnobiety.com/p/adidas-y3-japan-sneakers-fall-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 09:46:18 GMT*
+
+
+## Tom Brady
+
+## [Running Shoes for You to 'Ready, Set, Go' in Style  
+Nigel Sylvester's "Bike Air" Jordan Sneakers Are Back ( Better)](https://www.highsnobiety.com/p/stock-x-running-shoes/
+https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-grey-2024-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 11:00:00 GMT
+Mon, 05 Aug 2024 10:11:00 GMT*
+
+
+## Tom Brady
+
+## [Lacey Table Tennis Shoes? adidas’ New Sneaker Is One-Of-A-Kind](https://www.highsnobiety.com/p/adidas-naked-copenhagen-tischtennis-samba/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 14:24:12 GMT*
+
+
+## Tom Brady
+
+## [adidas' Wildly Underrated Hiking Shoe Enters Its Chunky Mule Era](https://www.highsnobiety.com/p/adidas-seeulater-mule-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 15:02:35 GMT*
+
+
+## Tom Brady
+
+## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 19:13:37 GMT*
+
+
+## Tom Brady
+
+## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 08:45:34 GMT*
+
+
+## Tom Brady
+
+## [ASICS' Leather Dad Shoe Is a New (Balance) Kind of Sneaker](https://www.highsnobiety.com/p/asics-gel-1130-leather-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:00:22 GMT*
+
+
+## Tom Brady
+
+## [Everything SNKRheads Must Know for Nike SNKRS Day 2024](https://www.highsnobiety.com/p/nike-snkrs-day-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:10:02 GMT*
+
+
+## Tom Brady
+
+## [Malls May Be Dead But Mall Brands Have Never Been More Alive](https://www.highsnobiety.com/p/mall-brand-renaissance-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:35:33 GMT*
+
+
+## Tom Brady
 
 ## [adidas’ Secretly Good Sneaker Pushes the Samba Further Aside](https://www.highsnobiety.com/p/adidas-spezial-sneakers-black-2024/)
 
@@ -216,82 +328,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Tom Brady
 
-## [Y-3’s Wonderfully Flat Sneaker is a Minimalist's Dream](https://www.highsnobiety.com/p/adidas-y3-japan-sneakers-fall-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 09:46:18 GMT*
-
-
-## Tom Brady
-
-## [Super Exclusive New Balances Are Coming to a City Near You](https://www.highsnobiety.com/p/new-balances-991v2-city-edition/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 10:02:39 GMT*
-
-
-## Tom Brady
-
-## [Running Shoes for You to 'Ready, Set, Go' in Style  
-Nigel Sylvester's "Bike Air" Jordan Sneakers Are Back ( Better)](https://www.highsnobiety.com/p/stock-x-running-shoes/
-https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-grey-2024-where-to-buy/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 11:00:00 GMT
-Mon, 05 Aug 2024 10:11:00 GMT*
-
-
-## Tom Brady
-
-## [Lacey Table Tennis Shoes? adidas’ New Sneaker Is One-Of-A-Kind](https://www.highsnobiety.com/p/adidas-naked-copenhagen-tischtennis-samba/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 14:24:12 GMT*
-
-
-## Tom Brady
-
-## [adidas' Wildly Underrated Hiking Shoe Enters Its Chunky Mule Era](https://www.highsnobiety.com/p/adidas-seeulater-mule-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 15:02:35 GMT*
-
-
-## Tom Brady
-
-## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 16:35:34 GMT*
-
-
-## Tom Brady
-
-## [ASICS' Leather Dad Shoe Is a New (Balance) Kind of Sneaker](https://www.highsnobiety.com/p/asics-gel-1130-leather-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 18:31:22 GMT*
-
-
-## Tom Brady
-
-## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 19:13:37 GMT*
-
-
-## Tom Brady
-
 ## [Oui? Oui! Nike's Paris-Themed Forces Are Scarily Good     ](https://www.highsnobiety.com/p/nike-air-force-1-low-paris-sneakers-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -299,24 +335,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 05 Aug 2024 09:15:46 GMT*
 
 
-## Tom Brady
-
-## [adidas’ Secretly Good Sneaker Pushes the Samba Further Aside](https://www.highsnobiety.com/p/adidas-spezial-sneakers-black-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 09:00:00 GMT*
-
-
-## Tina Fey
-
-## [The Celebrity Beauty Boom Isn't Over Yet](https://www.highsnobiety.com/p/celebrity-beauty-brands-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 09:20:00 GMT*
-
-
 ## Tina Fey
 
 ## [Y-3’s Wonderfully Flat Sneaker is a Minimalist's Dream](https://www.highsnobiety.com/p/adidas-y3-japan-sneakers-fall-2024/)
@@ -324,15 +342,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Mon, 05 Aug 2024 09:46:18 GMT*
-
-
-## Tina Fey
-
-## [Super Exclusive New Balances Are Coming to a City Near You](https://www.highsnobiety.com/p/new-balances-991v2-city-edition/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 10:02:39 GMT*
 
 
 ## Tina Fey
@@ -368,24 +377,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Tina Fey
 
-## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 16:35:34 GMT*
-
-
-## Tina Fey
-
-## [ASICS' Leather Dad Shoe Is a New (Balance) Kind of Sneaker](https://www.highsnobiety.com/p/asics-gel-1130-leather-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 18:31:22 GMT*
-
-
-## Tina Fey
-
 ## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -395,11 +386,38 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Tina Fey
 
-## [Oui? Oui! Nike's Paris-Themed Forces Are Scarily Good     ](https://www.highsnobiety.com/p/nike-air-force-1-low-paris-sneakers-2024/)
+## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 05 Aug 2024 09:15:46 GMT*
+*Published on: Tue, 06 Aug 2024 08:45:34 GMT*
+
+
+## Tina Fey
+
+## [ASICS' Leather Dad Shoe Is a New (Balance) Kind of Sneaker](https://www.highsnobiety.com/p/asics-gel-1130-leather-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:00:22 GMT*
+
+
+## Tina Fey
+
+## [Everything SNKRheads Must Know for Nike SNKRS Day 2024](https://www.highsnobiety.com/p/nike-snkrs-day-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:10:02 GMT*
+
+
+## Tina Fey
+
+## [Malls May Be Dead But Mall Brands Have Never Been More Alive](https://www.highsnobiety.com/p/mall-brand-renaissance-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:35:33 GMT*
 
 
 ## Tina Fey
@@ -411,13 +429,22 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 05 Aug 2024 09:00:00 GMT*
 
 
-## Steven Yuen
+## Tina Fey
 
 ## [The Celebrity Beauty Boom Isn't Over Yet](https://www.highsnobiety.com/p/celebrity-beauty-brands-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Mon, 05 Aug 2024 09:20:00 GMT*
+
+
+## Tina Fey
+
+## [Oui? Oui! Nike's Paris-Themed Forces Are Scarily Good     ](https://www.highsnobiety.com/p/nike-air-force-1-low-paris-sneakers-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 09:15:46 GMT*
 
 
 ## Steven Yuen
@@ -427,15 +454,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Mon, 05 Aug 2024 09:46:18 GMT*
-
-
-## Steven Yuen
-
-## [Super Exclusive New Balances Are Coming to a City Near You](https://www.highsnobiety.com/p/new-balances-991v2-city-edition/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 10:02:39 GMT*
 
 
 ## Steven Yuen
@@ -471,11 +489,20 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Steven Yuen
 
+## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 19:13:37 GMT*
+
+
+## Steven Yuen
+
 ## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 05 Aug 2024 16:35:34 GMT*
+*Published on: Tue, 06 Aug 2024 08:45:34 GMT*
 
 
 ## Steven Yuen
@@ -484,16 +511,43 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 05 Aug 2024 18:31:22 GMT*
+*Published on: Tue, 06 Aug 2024 09:00:22 GMT*
 
 
 ## Steven Yuen
 
-## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
+## [Everything SNKRheads Must Know for Nike SNKRS Day 2024](https://www.highsnobiety.com/p/nike-snkrs-day-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 05 Aug 2024 19:13:37 GMT*
+*Published on: Tue, 06 Aug 2024 09:10:02 GMT*
+
+
+## Steven Yuen
+
+## [Malls May Be Dead But Mall Brands Have Never Been More Alive](https://www.highsnobiety.com/p/mall-brand-renaissance-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:35:33 GMT*
+
+
+## Steven Yuen
+
+## [adidas’ Secretly Good Sneaker Pushes the Samba Further Aside](https://www.highsnobiety.com/p/adidas-spezial-sneakers-black-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 09:00:00 GMT*
+
+
+## Steven Yuen
+
+## [The Celebrity Beauty Boom Isn't Over Yet](https://www.highsnobiety.com/p/celebrity-beauty-brands-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 09:20:00 GMT*
 
 
 ## Steven Yuen
@@ -505,7 +559,92 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 05 Aug 2024 09:15:46 GMT*
 
 
-## Steven Yuen
+## Sommer Ray
+
+## [Y-3’s Wonderfully Flat Sneaker is a Minimalist's Dream](https://www.highsnobiety.com/p/adidas-y3-japan-sneakers-fall-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 09:46:18 GMT*
+
+
+## Sommer Ray
+
+## [Running Shoes for You to 'Ready, Set, Go' in Style  
+Nigel Sylvester's "Bike Air" Jordan Sneakers Are Back ( Better)](https://www.highsnobiety.com/p/stock-x-running-shoes/
+https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-grey-2024-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 11:00:00 GMT
+Mon, 05 Aug 2024 10:11:00 GMT*
+
+
+## Sommer Ray
+
+## [Lacey Table Tennis Shoes? adidas’ New Sneaker Is One-Of-A-Kind](https://www.highsnobiety.com/p/adidas-naked-copenhagen-tischtennis-samba/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 14:24:12 GMT*
+
+
+## Sommer Ray
+
+## [adidas' Wildly Underrated Hiking Shoe Enters Its Chunky Mule Era](https://www.highsnobiety.com/p/adidas-seeulater-mule-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 15:02:35 GMT*
+
+
+## Sommer Ray
+
+## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 19:13:37 GMT*
+
+
+## Sommer Ray
+
+## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 08:45:34 GMT*
+
+
+## Sommer Ray
+
+## [ASICS' Leather Dad Shoe Is a New (Balance) Kind of Sneaker](https://www.highsnobiety.com/p/asics-gel-1130-leather-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:00:22 GMT*
+
+
+## Sommer Ray
+
+## [Everything SNKRheads Must Know for Nike SNKRS Day 2024](https://www.highsnobiety.com/p/nike-snkrs-day-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:10:02 GMT*
+
+
+## Sommer Ray
+
+## [Malls May Be Dead But Mall Brands Have Never Been More Alive](https://www.highsnobiety.com/p/mall-brand-renaissance-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:35:33 GMT*
+
+
+## Sommer Ray
 
 ## [adidas’ Secretly Good Sneaker Pushes the Samba Further Aside](https://www.highsnobiety.com/p/adidas-spezial-sneakers-black-2024/)
 
@@ -525,82 +664,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Sommer Ray
 
-## [Y-3’s Wonderfully Flat Sneaker is a Minimalist's Dream](https://www.highsnobiety.com/p/adidas-y3-japan-sneakers-fall-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 09:46:18 GMT*
-
-
-## Sommer Ray
-
-## [Super Exclusive New Balances Are Coming to a City Near You](https://www.highsnobiety.com/p/new-balances-991v2-city-edition/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 10:02:39 GMT*
-
-
-## Sommer Ray
-
-## [Running Shoes for You to 'Ready, Set, Go' in Style  
-Nigel Sylvester's "Bike Air" Jordan Sneakers Are Back ( Better)](https://www.highsnobiety.com/p/stock-x-running-shoes/
-https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-grey-2024-where-to-buy/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 11:00:00 GMT
-Mon, 05 Aug 2024 10:11:00 GMT*
-
-
-## Sommer Ray
-
-## [Lacey Table Tennis Shoes? adidas’ New Sneaker Is One-Of-A-Kind](https://www.highsnobiety.com/p/adidas-naked-copenhagen-tischtennis-samba/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 14:24:12 GMT*
-
-
-## Sommer Ray
-
-## [adidas' Wildly Underrated Hiking Shoe Enters Its Chunky Mule Era](https://www.highsnobiety.com/p/adidas-seeulater-mule-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 15:02:35 GMT*
-
-
-## Sommer Ray
-
-## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 16:35:34 GMT*
-
-
-## Sommer Ray
-
-## [ASICS' Leather Dad Shoe Is a New (Balance) Kind of Sneaker](https://www.highsnobiety.com/p/asics-gel-1130-leather-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 18:31:22 GMT*
-
-
-## Sommer Ray
-
-## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 19:13:37 GMT*
-
-
-## Sommer Ray
-
 ## [Oui? Oui! Nike's Paris-Themed Forces Are Scarily Good     ](https://www.highsnobiety.com/p/nike-air-force-1-low-paris-sneakers-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -608,24 +671,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 05 Aug 2024 09:15:46 GMT*
 
 
-## Sommer Ray
-
-## [adidas’ Secretly Good Sneaker Pushes the Samba Further Aside](https://www.highsnobiety.com/p/adidas-spezial-sneakers-black-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 09:00:00 GMT*
-
-
-## Sza
-
-## [The Celebrity Beauty Boom Isn't Over Yet](https://www.highsnobiety.com/p/celebrity-beauty-brands-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 09:20:00 GMT*
-
-
 ## Sza
 
 ## [Y-3’s Wonderfully Flat Sneaker is a Minimalist's Dream](https://www.highsnobiety.com/p/adidas-y3-japan-sneakers-fall-2024/)
@@ -633,15 +678,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Mon, 05 Aug 2024 09:46:18 GMT*
-
-
-## Sza
-
-## [Super Exclusive New Balances Are Coming to a City Near You](https://www.highsnobiety.com/p/new-balances-991v2-city-edition/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 10:02:39 GMT*
 
 
 ## Sza
@@ -677,24 +713,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Sza
 
-## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 16:35:34 GMT*
-
-
-## Sza
-
-## [ASICS' Leather Dad Shoe Is a New (Balance) Kind of Sneaker](https://www.highsnobiety.com/p/asics-gel-1130-leather-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 18:31:22 GMT*
-
-
-## Sza
-
 ## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -704,11 +722,38 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Sza
 
-## [Oui? Oui! Nike's Paris-Themed Forces Are Scarily Good     ](https://www.highsnobiety.com/p/nike-air-force-1-low-paris-sneakers-2024/)
+## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 05 Aug 2024 09:15:46 GMT*
+*Published on: Tue, 06 Aug 2024 08:45:34 GMT*
+
+
+## Sza
+
+## [ASICS' Leather Dad Shoe Is a New (Balance) Kind of Sneaker](https://www.highsnobiety.com/p/asics-gel-1130-leather-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:00:22 GMT*
+
+
+## Sza
+
+## [Everything SNKRheads Must Know for Nike SNKRS Day 2024](https://www.highsnobiety.com/p/nike-snkrs-day-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:10:02 GMT*
+
+
+## Sza
+
+## [Malls May Be Dead But Mall Brands Have Never Been More Alive](https://www.highsnobiety.com/p/mall-brand-renaissance-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:35:33 GMT*
 
 
 ## Sza
@@ -720,13 +765,22 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 05 Aug 2024 09:00:00 GMT*
 
 
-## Sydney Sweeney
+## Sza
 
 ## [The Celebrity Beauty Boom Isn't Over Yet](https://www.highsnobiety.com/p/celebrity-beauty-brands-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Mon, 05 Aug 2024 09:20:00 GMT*
+
+
+## Sza
+
+## [Oui? Oui! Nike's Paris-Themed Forces Are Scarily Good     ](https://www.highsnobiety.com/p/nike-air-force-1-low-paris-sneakers-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 09:15:46 GMT*
 
 
 ## Sydney Sweeney
@@ -736,15 +790,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Mon, 05 Aug 2024 09:46:18 GMT*
-
-
-## Sydney Sweeney
-
-## [Super Exclusive New Balances Are Coming to a City Near You](https://www.highsnobiety.com/p/new-balances-991v2-city-edition/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 10:02:39 GMT*
 
 
 ## Sydney Sweeney
@@ -780,11 +825,20 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Sydney Sweeney
 
+## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 19:13:37 GMT*
+
+
+## Sydney Sweeney
+
 ## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 05 Aug 2024 16:35:34 GMT*
+*Published on: Tue, 06 Aug 2024 08:45:34 GMT*
 
 
 ## Sydney Sweeney
@@ -793,16 +847,43 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 05 Aug 2024 18:31:22 GMT*
+*Published on: Tue, 06 Aug 2024 09:00:22 GMT*
 
 
 ## Sydney Sweeney
 
-## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
+## [Everything SNKRheads Must Know for Nike SNKRS Day 2024](https://www.highsnobiety.com/p/nike-snkrs-day-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 05 Aug 2024 19:13:37 GMT*
+*Published on: Tue, 06 Aug 2024 09:10:02 GMT*
+
+
+## Sydney Sweeney
+
+## [Malls May Be Dead But Mall Brands Have Never Been More Alive](https://www.highsnobiety.com/p/mall-brand-renaissance-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:35:33 GMT*
+
+
+## Sydney Sweeney
+
+## [adidas’ Secretly Good Sneaker Pushes the Samba Further Aside](https://www.highsnobiety.com/p/adidas-spezial-sneakers-black-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 09:00:00 GMT*
+
+
+## Sydney Sweeney
+
+## [The Celebrity Beauty Boom Isn't Over Yet](https://www.highsnobiety.com/p/celebrity-beauty-brands-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 09:20:00 GMT*
 
 
 ## Sydney Sweeney
@@ -814,7 +895,92 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 05 Aug 2024 09:15:46 GMT*
 
 
-## Sydney Sweeney
+## Walton Goggins
+
+## [Y-3’s Wonderfully Flat Sneaker is a Minimalist's Dream](https://www.highsnobiety.com/p/adidas-y3-japan-sneakers-fall-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 09:46:18 GMT*
+
+
+## Walton Goggins
+
+## [Running Shoes for You to 'Ready, Set, Go' in Style  
+Nigel Sylvester's "Bike Air" Jordan Sneakers Are Back ( Better)](https://www.highsnobiety.com/p/stock-x-running-shoes/
+https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-grey-2024-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 11:00:00 GMT
+Mon, 05 Aug 2024 10:11:00 GMT*
+
+
+## Walton Goggins
+
+## [Lacey Table Tennis Shoes? adidas’ New Sneaker Is One-Of-A-Kind](https://www.highsnobiety.com/p/adidas-naked-copenhagen-tischtennis-samba/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 14:24:12 GMT*
+
+
+## Walton Goggins
+
+## [adidas' Wildly Underrated Hiking Shoe Enters Its Chunky Mule Era](https://www.highsnobiety.com/p/adidas-seeulater-mule-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 15:02:35 GMT*
+
+
+## Walton Goggins
+
+## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 19:13:37 GMT*
+
+
+## Walton Goggins
+
+## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 08:45:34 GMT*
+
+
+## Walton Goggins
+
+## [ASICS' Leather Dad Shoe Is a New (Balance) Kind of Sneaker](https://www.highsnobiety.com/p/asics-gel-1130-leather-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:00:22 GMT*
+
+
+## Walton Goggins
+
+## [Everything SNKRheads Must Know for Nike SNKRS Day 2024](https://www.highsnobiety.com/p/nike-snkrs-day-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:10:02 GMT*
+
+
+## Walton Goggins
+
+## [Malls May Be Dead But Mall Brands Have Never Been More Alive](https://www.highsnobiety.com/p/mall-brand-renaissance-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:35:33 GMT*
+
+
+## Walton Goggins
 
 ## [adidas’ Secretly Good Sneaker Pushes the Samba Further Aside](https://www.highsnobiety.com/p/adidas-spezial-sneakers-black-2024/)
 
@@ -834,82 +1000,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Walton Goggins
 
-## [Y-3’s Wonderfully Flat Sneaker is a Minimalist's Dream](https://www.highsnobiety.com/p/adidas-y3-japan-sneakers-fall-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 09:46:18 GMT*
-
-
-## Walton Goggins
-
-## [Super Exclusive New Balances Are Coming to a City Near You](https://www.highsnobiety.com/p/new-balances-991v2-city-edition/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 10:02:39 GMT*
-
-
-## Walton Goggins
-
-## [Running Shoes for You to 'Ready, Set, Go' in Style  
-Nigel Sylvester's "Bike Air" Jordan Sneakers Are Back ( Better)](https://www.highsnobiety.com/p/stock-x-running-shoes/
-https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-grey-2024-where-to-buy/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 11:00:00 GMT
-Mon, 05 Aug 2024 10:11:00 GMT*
-
-
-## Walton Goggins
-
-## [Lacey Table Tennis Shoes? adidas’ New Sneaker Is One-Of-A-Kind](https://www.highsnobiety.com/p/adidas-naked-copenhagen-tischtennis-samba/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 14:24:12 GMT*
-
-
-## Walton Goggins
-
-## [adidas' Wildly Underrated Hiking Shoe Enters Its Chunky Mule Era](https://www.highsnobiety.com/p/adidas-seeulater-mule-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 15:02:35 GMT*
-
-
-## Walton Goggins
-
-## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 16:35:34 GMT*
-
-
-## Walton Goggins
-
-## [ASICS' Leather Dad Shoe Is a New (Balance) Kind of Sneaker](https://www.highsnobiety.com/p/asics-gel-1130-leather-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 18:31:22 GMT*
-
-
-## Walton Goggins
-
-## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 19:13:37 GMT*
-
-
-## Walton Goggins
-
 ## [Oui? Oui! Nike's Paris-Themed Forces Are Scarily Good     ](https://www.highsnobiety.com/p/nike-air-force-1-low-paris-sneakers-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -917,24 +1007,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 05 Aug 2024 09:15:46 GMT*
 
 
-## Walton Goggins
-
-## [adidas’ Secretly Good Sneaker Pushes the Samba Further Aside](https://www.highsnobiety.com/p/adidas-spezial-sneakers-black-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 09:00:00 GMT*
-
-
-## Tom Holland
-
-## [The Celebrity Beauty Boom Isn't Over Yet](https://www.highsnobiety.com/p/celebrity-beauty-brands-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 09:20:00 GMT*
-
-
 ## Tom Holland
 
 ## [Y-3’s Wonderfully Flat Sneaker is a Minimalist's Dream](https://www.highsnobiety.com/p/adidas-y3-japan-sneakers-fall-2024/)
@@ -942,15 +1014,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Mon, 05 Aug 2024 09:46:18 GMT*
-
-
-## Tom Holland
-
-## [Super Exclusive New Balances Are Coming to a City Near You](https://www.highsnobiety.com/p/new-balances-991v2-city-edition/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 10:02:39 GMT*
 
 
 ## Tom Holland
@@ -986,24 +1049,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Tom Holland
 
-## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 16:35:34 GMT*
-
-
-## Tom Holland
-
-## [ASICS' Leather Dad Shoe Is a New (Balance) Kind of Sneaker](https://www.highsnobiety.com/p/asics-gel-1130-leather-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 18:31:22 GMT*
-
-
-## Tom Holland
-
 ## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1013,11 +1058,38 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Tom Holland
 
-## [Oui? Oui! Nike's Paris-Themed Forces Are Scarily Good     ](https://www.highsnobiety.com/p/nike-air-force-1-low-paris-sneakers-2024/)
+## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 05 Aug 2024 09:15:46 GMT*
+*Published on: Tue, 06 Aug 2024 08:45:34 GMT*
+
+
+## Tom Holland
+
+## [ASICS' Leather Dad Shoe Is a New (Balance) Kind of Sneaker](https://www.highsnobiety.com/p/asics-gel-1130-leather-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:00:22 GMT*
+
+
+## Tom Holland
+
+## [Everything SNKRheads Must Know for Nike SNKRS Day 2024](https://www.highsnobiety.com/p/nike-snkrs-day-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:10:02 GMT*
+
+
+## Tom Holland
+
+## [Malls May Be Dead But Mall Brands Have Never Been More Alive](https://www.highsnobiety.com/p/mall-brand-renaissance-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:35:33 GMT*
 
 
 ## Tom Holland
@@ -1029,13 +1101,22 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 05 Aug 2024 09:00:00 GMT*
 
 
-## Gucci Mane
+## Tom Holland
 
 ## [The Celebrity Beauty Boom Isn't Over Yet](https://www.highsnobiety.com/p/celebrity-beauty-brands-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Mon, 05 Aug 2024 09:20:00 GMT*
+
+
+## Tom Holland
+
+## [Oui? Oui! Nike's Paris-Themed Forces Are Scarily Good     ](https://www.highsnobiety.com/p/nike-air-force-1-low-paris-sneakers-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 09:15:46 GMT*
 
 
 ## Gucci Mane
@@ -1045,15 +1126,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Mon, 05 Aug 2024 09:46:18 GMT*
-
-
-## Gucci Mane
-
-## [Super Exclusive New Balances Are Coming to a City Near You](https://www.highsnobiety.com/p/new-balances-991v2-city-edition/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 10:02:39 GMT*
 
 
 ## Gucci Mane
@@ -1089,11 +1161,20 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Gucci Mane
 
+## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 19:13:37 GMT*
+
+
+## Gucci Mane
+
 ## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 05 Aug 2024 16:35:34 GMT*
+*Published on: Tue, 06 Aug 2024 08:45:34 GMT*
 
 
 ## Gucci Mane
@@ -1102,16 +1183,43 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 05 Aug 2024 18:31:22 GMT*
+*Published on: Tue, 06 Aug 2024 09:00:22 GMT*
 
 
 ## Gucci Mane
 
-## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
+## [Everything SNKRheads Must Know for Nike SNKRS Day 2024](https://www.highsnobiety.com/p/nike-snkrs-day-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 05 Aug 2024 19:13:37 GMT*
+*Published on: Tue, 06 Aug 2024 09:10:02 GMT*
+
+
+## Gucci Mane
+
+## [Malls May Be Dead But Mall Brands Have Never Been More Alive](https://www.highsnobiety.com/p/mall-brand-renaissance-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:35:33 GMT*
+
+
+## Gucci Mane
+
+## [adidas’ Secretly Good Sneaker Pushes the Samba Further Aside](https://www.highsnobiety.com/p/adidas-spezial-sneakers-black-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 09:00:00 GMT*
+
+
+## Gucci Mane
+
+## [The Celebrity Beauty Boom Isn't Over Yet](https://www.highsnobiety.com/p/celebrity-beauty-brands-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 09:20:00 GMT*
 
 
 ## Gucci Mane
@@ -1123,7 +1231,92 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 05 Aug 2024 09:15:46 GMT*
 
 
-## Gucci Mane
+## Harry Styles
+
+## [Y-3’s Wonderfully Flat Sneaker is a Minimalist's Dream](https://www.highsnobiety.com/p/adidas-y3-japan-sneakers-fall-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 09:46:18 GMT*
+
+
+## Harry Styles
+
+## [Running Shoes for You to 'Ready, Set, Go' in Style  
+Nigel Sylvester's "Bike Air" Jordan Sneakers Are Back ( Better)](https://www.highsnobiety.com/p/stock-x-running-shoes/
+https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-grey-2024-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 11:00:00 GMT
+Mon, 05 Aug 2024 10:11:00 GMT*
+
+
+## Harry Styles
+
+## [Lacey Table Tennis Shoes? adidas’ New Sneaker Is One-Of-A-Kind](https://www.highsnobiety.com/p/adidas-naked-copenhagen-tischtennis-samba/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 14:24:12 GMT*
+
+
+## Harry Styles
+
+## [adidas' Wildly Underrated Hiking Shoe Enters Its Chunky Mule Era](https://www.highsnobiety.com/p/adidas-seeulater-mule-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 15:02:35 GMT*
+
+
+## Harry Styles
+
+## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 19:13:37 GMT*
+
+
+## Harry Styles
+
+## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 08:45:34 GMT*
+
+
+## Harry Styles
+
+## [ASICS' Leather Dad Shoe Is a New (Balance) Kind of Sneaker](https://www.highsnobiety.com/p/asics-gel-1130-leather-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:00:22 GMT*
+
+
+## Harry Styles
+
+## [Everything SNKRheads Must Know for Nike SNKRS Day 2024](https://www.highsnobiety.com/p/nike-snkrs-day-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:10:02 GMT*
+
+
+## Harry Styles
+
+## [Malls May Be Dead But Mall Brands Have Never Been More Alive](https://www.highsnobiety.com/p/mall-brand-renaissance-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:35:33 GMT*
+
+
+## Harry Styles
 
 ## [adidas’ Secretly Good Sneaker Pushes the Samba Further Aside](https://www.highsnobiety.com/p/adidas-spezial-sneakers-black-2024/)
 
@@ -1143,82 +1336,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Harry Styles
 
-## [Y-3’s Wonderfully Flat Sneaker is a Minimalist's Dream](https://www.highsnobiety.com/p/adidas-y3-japan-sneakers-fall-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 09:46:18 GMT*
-
-
-## Harry Styles
-
-## [Super Exclusive New Balances Are Coming to a City Near You](https://www.highsnobiety.com/p/new-balances-991v2-city-edition/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 10:02:39 GMT*
-
-
-## Harry Styles
-
-## [Running Shoes for You to 'Ready, Set, Go' in Style  
-Nigel Sylvester's "Bike Air" Jordan Sneakers Are Back ( Better)](https://www.highsnobiety.com/p/stock-x-running-shoes/
-https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-grey-2024-where-to-buy/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 11:00:00 GMT
-Mon, 05 Aug 2024 10:11:00 GMT*
-
-
-## Harry Styles
-
-## [Lacey Table Tennis Shoes? adidas’ New Sneaker Is One-Of-A-Kind](https://www.highsnobiety.com/p/adidas-naked-copenhagen-tischtennis-samba/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 14:24:12 GMT*
-
-
-## Harry Styles
-
-## [adidas' Wildly Underrated Hiking Shoe Enters Its Chunky Mule Era](https://www.highsnobiety.com/p/adidas-seeulater-mule-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 15:02:35 GMT*
-
-
-## Harry Styles
-
-## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 16:35:34 GMT*
-
-
-## Harry Styles
-
-## [ASICS' Leather Dad Shoe Is a New (Balance) Kind of Sneaker](https://www.highsnobiety.com/p/asics-gel-1130-leather-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 18:31:22 GMT*
-
-
-## Harry Styles
-
-## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 19:13:37 GMT*
-
-
-## Harry Styles
-
 ## [Oui? Oui! Nike's Paris-Themed Forces Are Scarily Good     ](https://www.highsnobiety.com/p/nike-air-force-1-low-paris-sneakers-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1226,24 +1343,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 05 Aug 2024 09:15:46 GMT*
 
 
-## Harry Styles
-
-## [adidas’ Secretly Good Sneaker Pushes the Samba Further Aside](https://www.highsnobiety.com/p/adidas-spezial-sneakers-black-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 09:00:00 GMT*
-
-
-## Jake Paul
-
-## [The Celebrity Beauty Boom Isn't Over Yet](https://www.highsnobiety.com/p/celebrity-beauty-brands-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 09:20:00 GMT*
-
-
 ## Jake Paul
 
 ## [Y-3’s Wonderfully Flat Sneaker is a Minimalist's Dream](https://www.highsnobiety.com/p/adidas-y3-japan-sneakers-fall-2024/)
@@ -1251,15 +1350,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Mon, 05 Aug 2024 09:46:18 GMT*
-
-
-## Jake Paul
-
-## [Super Exclusive New Balances Are Coming to a City Near You](https://www.highsnobiety.com/p/new-balances-991v2-city-edition/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 10:02:39 GMT*
 
 
 ## Jake Paul
@@ -1295,24 +1385,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Jake Paul
 
-## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 16:35:34 GMT*
-
-
-## Jake Paul
-
-## [ASICS' Leather Dad Shoe Is a New (Balance) Kind of Sneaker](https://www.highsnobiety.com/p/asics-gel-1130-leather-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 18:31:22 GMT*
-
-
-## Jake Paul
-
 ## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1322,11 +1394,38 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Jake Paul
 
-## [Oui? Oui! Nike's Paris-Themed Forces Are Scarily Good     ](https://www.highsnobiety.com/p/nike-air-force-1-low-paris-sneakers-2024/)
+## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 05 Aug 2024 09:15:46 GMT*
+*Published on: Tue, 06 Aug 2024 08:45:34 GMT*
+
+
+## Jake Paul
+
+## [ASICS' Leather Dad Shoe Is a New (Balance) Kind of Sneaker](https://www.highsnobiety.com/p/asics-gel-1130-leather-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:00:22 GMT*
+
+
+## Jake Paul
+
+## [Everything SNKRheads Must Know for Nike SNKRS Day 2024](https://www.highsnobiety.com/p/nike-snkrs-day-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:10:02 GMT*
+
+
+## Jake Paul
+
+## [Malls May Be Dead But Mall Brands Have Never Been More Alive](https://www.highsnobiety.com/p/mall-brand-renaissance-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:35:33 GMT*
 
 
 ## Jake Paul
@@ -1338,13 +1437,22 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 05 Aug 2024 09:00:00 GMT*
 
 
-## Jameela Jamil
+## Jake Paul
 
 ## [The Celebrity Beauty Boom Isn't Over Yet](https://www.highsnobiety.com/p/celebrity-beauty-brands-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Mon, 05 Aug 2024 09:20:00 GMT*
+
+
+## Jake Paul
+
+## [Oui? Oui! Nike's Paris-Themed Forces Are Scarily Good     ](https://www.highsnobiety.com/p/nike-air-force-1-low-paris-sneakers-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 09:15:46 GMT*
 
 
 ## Jameela Jamil
@@ -1354,15 +1462,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Mon, 05 Aug 2024 09:46:18 GMT*
-
-
-## Jameela Jamil
-
-## [Super Exclusive New Balances Are Coming to a City Near You](https://www.highsnobiety.com/p/new-balances-991v2-city-edition/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 10:02:39 GMT*
 
 
 ## Jameela Jamil
@@ -1398,11 +1497,20 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Jameela Jamil
 
+## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 19:13:37 GMT*
+
+
+## Jameela Jamil
+
 ## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 05 Aug 2024 16:35:34 GMT*
+*Published on: Tue, 06 Aug 2024 08:45:34 GMT*
 
 
 ## Jameela Jamil
@@ -1411,16 +1519,43 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 05 Aug 2024 18:31:22 GMT*
+*Published on: Tue, 06 Aug 2024 09:00:22 GMT*
 
 
 ## Jameela Jamil
 
-## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
+## [Everything SNKRheads Must Know for Nike SNKRS Day 2024](https://www.highsnobiety.com/p/nike-snkrs-day-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 05 Aug 2024 19:13:37 GMT*
+*Published on: Tue, 06 Aug 2024 09:10:02 GMT*
+
+
+## Jameela Jamil
+
+## [Malls May Be Dead But Mall Brands Have Never Been More Alive](https://www.highsnobiety.com/p/mall-brand-renaissance-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:35:33 GMT*
+
+
+## Jameela Jamil
+
+## [adidas’ Secretly Good Sneaker Pushes the Samba Further Aside](https://www.highsnobiety.com/p/adidas-spezial-sneakers-black-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 09:00:00 GMT*
+
+
+## Jameela Jamil
+
+## [The Celebrity Beauty Boom Isn't Over Yet](https://www.highsnobiety.com/p/celebrity-beauty-brands-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 09:20:00 GMT*
 
 
 ## Jameela Jamil
@@ -1432,7 +1567,92 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 05 Aug 2024 09:15:46 GMT*
 
 
-## Jameela Jamil
+## Elon Musk
+
+## [Y-3’s Wonderfully Flat Sneaker is a Minimalist's Dream](https://www.highsnobiety.com/p/adidas-y3-japan-sneakers-fall-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 09:46:18 GMT*
+
+
+## Elon Musk
+
+## [Running Shoes for You to 'Ready, Set, Go' in Style  
+Nigel Sylvester's "Bike Air" Jordan Sneakers Are Back ( Better)](https://www.highsnobiety.com/p/stock-x-running-shoes/
+https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-grey-2024-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 11:00:00 GMT
+Mon, 05 Aug 2024 10:11:00 GMT*
+
+
+## Elon Musk
+
+## [Lacey Table Tennis Shoes? adidas’ New Sneaker Is One-Of-A-Kind](https://www.highsnobiety.com/p/adidas-naked-copenhagen-tischtennis-samba/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 14:24:12 GMT*
+
+
+## Elon Musk
+
+## [adidas' Wildly Underrated Hiking Shoe Enters Its Chunky Mule Era](https://www.highsnobiety.com/p/adidas-seeulater-mule-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 15:02:35 GMT*
+
+
+## Elon Musk
+
+## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 19:13:37 GMT*
+
+
+## Elon Musk
+
+## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 08:45:34 GMT*
+
+
+## Elon Musk
+
+## [ASICS' Leather Dad Shoe Is a New (Balance) Kind of Sneaker](https://www.highsnobiety.com/p/asics-gel-1130-leather-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:00:22 GMT*
+
+
+## Elon Musk
+
+## [Everything SNKRheads Must Know for Nike SNKRS Day 2024](https://www.highsnobiety.com/p/nike-snkrs-day-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:10:02 GMT*
+
+
+## Elon Musk
+
+## [Malls May Be Dead But Mall Brands Have Never Been More Alive](https://www.highsnobiety.com/p/mall-brand-renaissance-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:35:33 GMT*
+
+
+## Elon Musk
 
 ## [adidas’ Secretly Good Sneaker Pushes the Samba Further Aside](https://www.highsnobiety.com/p/adidas-spezial-sneakers-black-2024/)
 
@@ -1452,82 +1672,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Elon Musk
 
-## [Y-3’s Wonderfully Flat Sneaker is a Minimalist's Dream](https://www.highsnobiety.com/p/adidas-y3-japan-sneakers-fall-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 09:46:18 GMT*
-
-
-## Elon Musk
-
-## [Super Exclusive New Balances Are Coming to a City Near You](https://www.highsnobiety.com/p/new-balances-991v2-city-edition/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 10:02:39 GMT*
-
-
-## Elon Musk
-
-## [Running Shoes for You to 'Ready, Set, Go' in Style  
-Nigel Sylvester's "Bike Air" Jordan Sneakers Are Back ( Better)](https://www.highsnobiety.com/p/stock-x-running-shoes/
-https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-grey-2024-where-to-buy/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 11:00:00 GMT
-Mon, 05 Aug 2024 10:11:00 GMT*
-
-
-## Elon Musk
-
-## [Lacey Table Tennis Shoes? adidas’ New Sneaker Is One-Of-A-Kind](https://www.highsnobiety.com/p/adidas-naked-copenhagen-tischtennis-samba/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 14:24:12 GMT*
-
-
-## Elon Musk
-
-## [adidas' Wildly Underrated Hiking Shoe Enters Its Chunky Mule Era](https://www.highsnobiety.com/p/adidas-seeulater-mule-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 15:02:35 GMT*
-
-
-## Elon Musk
-
-## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 16:35:34 GMT*
-
-
-## Elon Musk
-
-## [ASICS' Leather Dad Shoe Is a New (Balance) Kind of Sneaker](https://www.highsnobiety.com/p/asics-gel-1130-leather-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 18:31:22 GMT*
-
-
-## Elon Musk
-
-## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 19:13:37 GMT*
-
-
-## Elon Musk
-
 ## [Oui? Oui! Nike's Paris-Themed Forces Are Scarily Good     ](https://www.highsnobiety.com/p/nike-air-force-1-low-paris-sneakers-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1535,24 +1679,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 05 Aug 2024 09:15:46 GMT*
 
 
-## Elon Musk
-
-## [adidas’ Secretly Good Sneaker Pushes the Samba Further Aside](https://www.highsnobiety.com/p/adidas-spezial-sneakers-black-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 09:00:00 GMT*
-
-
-## Gabrielle Union
-
-## [The Celebrity Beauty Boom Isn't Over Yet](https://www.highsnobiety.com/p/celebrity-beauty-brands-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 09:20:00 GMT*
-
-
 ## Gabrielle Union
 
 ## [Y-3’s Wonderfully Flat Sneaker is a Minimalist's Dream](https://www.highsnobiety.com/p/adidas-y3-japan-sneakers-fall-2024/)
@@ -1560,15 +1686,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Mon, 05 Aug 2024 09:46:18 GMT*
-
-
-## Gabrielle Union
-
-## [Super Exclusive New Balances Are Coming to a City Near You](https://www.highsnobiety.com/p/new-balances-991v2-city-edition/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 10:02:39 GMT*
 
 
 ## Gabrielle Union
@@ -1604,24 +1721,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Gabrielle Union
 
-## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 16:35:34 GMT*
-
-
-## Gabrielle Union
-
-## [ASICS' Leather Dad Shoe Is a New (Balance) Kind of Sneaker](https://www.highsnobiety.com/p/asics-gel-1130-leather-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 18:31:22 GMT*
-
-
-## Gabrielle Union
-
 ## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1631,11 +1730,38 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Gabrielle Union
 
-## [Oui? Oui! Nike's Paris-Themed Forces Are Scarily Good     ](https://www.highsnobiety.com/p/nike-air-force-1-low-paris-sneakers-2024/)
+## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 05 Aug 2024 09:15:46 GMT*
+*Published on: Tue, 06 Aug 2024 08:45:34 GMT*
+
+
+## Gabrielle Union
+
+## [ASICS' Leather Dad Shoe Is a New (Balance) Kind of Sneaker](https://www.highsnobiety.com/p/asics-gel-1130-leather-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:00:22 GMT*
+
+
+## Gabrielle Union
+
+## [Everything SNKRheads Must Know for Nike SNKRS Day 2024](https://www.highsnobiety.com/p/nike-snkrs-day-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:10:02 GMT*
+
+
+## Gabrielle Union
+
+## [Malls May Be Dead But Mall Brands Have Never Been More Alive](https://www.highsnobiety.com/p/mall-brand-renaissance-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:35:33 GMT*
 
 
 ## Gabrielle Union
@@ -1647,13 +1773,22 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 05 Aug 2024 09:00:00 GMT*
 
 
-## Giancarlo Esposito
+## Gabrielle Union
 
 ## [The Celebrity Beauty Boom Isn't Over Yet](https://www.highsnobiety.com/p/celebrity-beauty-brands-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Mon, 05 Aug 2024 09:20:00 GMT*
+
+
+## Gabrielle Union
+
+## [Oui? Oui! Nike's Paris-Themed Forces Are Scarily Good     ](https://www.highsnobiety.com/p/nike-air-force-1-low-paris-sneakers-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 09:15:46 GMT*
 
 
 ## Giancarlo Esposito
@@ -1663,15 +1798,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Mon, 05 Aug 2024 09:46:18 GMT*
-
-
-## Giancarlo Esposito
-
-## [Super Exclusive New Balances Are Coming to a City Near You](https://www.highsnobiety.com/p/new-balances-991v2-city-edition/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 10:02:39 GMT*
 
 
 ## Giancarlo Esposito
@@ -1707,11 +1833,20 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Giancarlo Esposito
 
+## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 19:13:37 GMT*
+
+
+## Giancarlo Esposito
+
 ## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 05 Aug 2024 16:35:34 GMT*
+*Published on: Tue, 06 Aug 2024 08:45:34 GMT*
 
 
 ## Giancarlo Esposito
@@ -1720,16 +1855,43 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 05 Aug 2024 18:31:22 GMT*
+*Published on: Tue, 06 Aug 2024 09:00:22 GMT*
 
 
 ## Giancarlo Esposito
 
-## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
+## [Everything SNKRheads Must Know for Nike SNKRS Day 2024](https://www.highsnobiety.com/p/nike-snkrs-day-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 05 Aug 2024 19:13:37 GMT*
+*Published on: Tue, 06 Aug 2024 09:10:02 GMT*
+
+
+## Giancarlo Esposito
+
+## [Malls May Be Dead But Mall Brands Have Never Been More Alive](https://www.highsnobiety.com/p/mall-brand-renaissance-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:35:33 GMT*
+
+
+## Giancarlo Esposito
+
+## [adidas’ Secretly Good Sneaker Pushes the Samba Further Aside](https://www.highsnobiety.com/p/adidas-spezial-sneakers-black-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 09:00:00 GMT*
+
+
+## Giancarlo Esposito
+
+## [The Celebrity Beauty Boom Isn't Over Yet](https://www.highsnobiety.com/p/celebrity-beauty-brands-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 09:20:00 GMT*
 
 
 ## Giancarlo Esposito
@@ -1741,7 +1903,92 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 05 Aug 2024 09:15:46 GMT*
 
 
-## Giancarlo Esposito
+## Gillian Jacobs
+
+## [Y-3’s Wonderfully Flat Sneaker is a Minimalist's Dream](https://www.highsnobiety.com/p/adidas-y3-japan-sneakers-fall-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 09:46:18 GMT*
+
+
+## Gillian Jacobs
+
+## [Running Shoes for You to 'Ready, Set, Go' in Style  
+Nigel Sylvester's "Bike Air" Jordan Sneakers Are Back ( Better)](https://www.highsnobiety.com/p/stock-x-running-shoes/
+https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-grey-2024-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 11:00:00 GMT
+Mon, 05 Aug 2024 10:11:00 GMT*
+
+
+## Gillian Jacobs
+
+## [Lacey Table Tennis Shoes? adidas’ New Sneaker Is One-Of-A-Kind](https://www.highsnobiety.com/p/adidas-naked-copenhagen-tischtennis-samba/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 14:24:12 GMT*
+
+
+## Gillian Jacobs
+
+## [adidas' Wildly Underrated Hiking Shoe Enters Its Chunky Mule Era](https://www.highsnobiety.com/p/adidas-seeulater-mule-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 15:02:35 GMT*
+
+
+## Gillian Jacobs
+
+## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 19:13:37 GMT*
+
+
+## Gillian Jacobs
+
+## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 08:45:34 GMT*
+
+
+## Gillian Jacobs
+
+## [ASICS' Leather Dad Shoe Is a New (Balance) Kind of Sneaker](https://www.highsnobiety.com/p/asics-gel-1130-leather-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:00:22 GMT*
+
+
+## Gillian Jacobs
+
+## [Everything SNKRheads Must Know for Nike SNKRS Day 2024](https://www.highsnobiety.com/p/nike-snkrs-day-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:10:02 GMT*
+
+
+## Gillian Jacobs
+
+## [Malls May Be Dead But Mall Brands Have Never Been More Alive](https://www.highsnobiety.com/p/mall-brand-renaissance-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:35:33 GMT*
+
+
+## Gillian Jacobs
 
 ## [adidas’ Secretly Good Sneaker Pushes the Samba Further Aside](https://www.highsnobiety.com/p/adidas-spezial-sneakers-black-2024/)
 
@@ -1761,82 +2008,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Gillian Jacobs
 
-## [Y-3’s Wonderfully Flat Sneaker is a Minimalist's Dream](https://www.highsnobiety.com/p/adidas-y3-japan-sneakers-fall-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 09:46:18 GMT*
-
-
-## Gillian Jacobs
-
-## [Super Exclusive New Balances Are Coming to a City Near You](https://www.highsnobiety.com/p/new-balances-991v2-city-edition/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 10:02:39 GMT*
-
-
-## Gillian Jacobs
-
-## [Running Shoes for You to 'Ready, Set, Go' in Style  
-Nigel Sylvester's "Bike Air" Jordan Sneakers Are Back ( Better)](https://www.highsnobiety.com/p/stock-x-running-shoes/
-https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-grey-2024-where-to-buy/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 11:00:00 GMT
-Mon, 05 Aug 2024 10:11:00 GMT*
-
-
-## Gillian Jacobs
-
-## [Lacey Table Tennis Shoes? adidas’ New Sneaker Is One-Of-A-Kind](https://www.highsnobiety.com/p/adidas-naked-copenhagen-tischtennis-samba/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 14:24:12 GMT*
-
-
-## Gillian Jacobs
-
-## [adidas' Wildly Underrated Hiking Shoe Enters Its Chunky Mule Era](https://www.highsnobiety.com/p/adidas-seeulater-mule-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 15:02:35 GMT*
-
-
-## Gillian Jacobs
-
-## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 16:35:34 GMT*
-
-
-## Gillian Jacobs
-
-## [ASICS' Leather Dad Shoe Is a New (Balance) Kind of Sneaker](https://www.highsnobiety.com/p/asics-gel-1130-leather-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 18:31:22 GMT*
-
-
-## Gillian Jacobs
-
-## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 19:13:37 GMT*
-
-
-## Gillian Jacobs
-
 ## [Oui? Oui! Nike's Paris-Themed Forces Are Scarily Good     ](https://www.highsnobiety.com/p/nike-air-force-1-low-paris-sneakers-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1844,24 +2015,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 05 Aug 2024 09:15:46 GMT*
 
 
-## Gillian Jacobs
-
-## [adidas’ Secretly Good Sneaker Pushes the Samba Further Aside](https://www.highsnobiety.com/p/adidas-spezial-sneakers-black-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 09:00:00 GMT*
-
-
-## Jason Mantzoukas
-
-## [The Celebrity Beauty Boom Isn't Over Yet](https://www.highsnobiety.com/p/celebrity-beauty-brands-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 09:20:00 GMT*
-
-
 ## Jason Mantzoukas
 
 ## [Y-3’s Wonderfully Flat Sneaker is a Minimalist's Dream](https://www.highsnobiety.com/p/adidas-y3-japan-sneakers-fall-2024/)
@@ -1869,15 +2022,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Mon, 05 Aug 2024 09:46:18 GMT*
-
-
-## Jason Mantzoukas
-
-## [Super Exclusive New Balances Are Coming to a City Near You](https://www.highsnobiety.com/p/new-balances-991v2-city-edition/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 10:02:39 GMT*
 
 
 ## Jason Mantzoukas
@@ -1913,24 +2057,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Jason Mantzoukas
 
-## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 16:35:34 GMT*
-
-
-## Jason Mantzoukas
-
-## [ASICS' Leather Dad Shoe Is a New (Balance) Kind of Sneaker](https://www.highsnobiety.com/p/asics-gel-1130-leather-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 18:31:22 GMT*
-
-
-## Jason Mantzoukas
-
 ## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1940,11 +2066,38 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Jason Mantzoukas
 
-## [Oui? Oui! Nike's Paris-Themed Forces Are Scarily Good     ](https://www.highsnobiety.com/p/nike-air-force-1-low-paris-sneakers-2024/)
+## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 05 Aug 2024 09:15:46 GMT*
+*Published on: Tue, 06 Aug 2024 08:45:34 GMT*
+
+
+## Jason Mantzoukas
+
+## [ASICS' Leather Dad Shoe Is a New (Balance) Kind of Sneaker](https://www.highsnobiety.com/p/asics-gel-1130-leather-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:00:22 GMT*
+
+
+## Jason Mantzoukas
+
+## [Everything SNKRheads Must Know for Nike SNKRS Day 2024](https://www.highsnobiety.com/p/nike-snkrs-day-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:10:02 GMT*
+
+
+## Jason Mantzoukas
+
+## [Malls May Be Dead But Mall Brands Have Never Been More Alive](https://www.highsnobiety.com/p/mall-brand-renaissance-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:35:33 GMT*
 
 
 ## Jason Mantzoukas
@@ -1956,13 +2109,22 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 05 Aug 2024 09:00:00 GMT*
 
 
-## JB Smoove
+## Jason Mantzoukas
 
 ## [The Celebrity Beauty Boom Isn't Over Yet](https://www.highsnobiety.com/p/celebrity-beauty-brands-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Mon, 05 Aug 2024 09:20:00 GMT*
+
+
+## Jason Mantzoukas
+
+## [Oui? Oui! Nike's Paris-Themed Forces Are Scarily Good     ](https://www.highsnobiety.com/p/nike-air-force-1-low-paris-sneakers-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 09:15:46 GMT*
 
 
 ## JB Smoove
@@ -1972,15 +2134,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Mon, 05 Aug 2024 09:46:18 GMT*
-
-
-## JB Smoove
-
-## [Super Exclusive New Balances Are Coming to a City Near You](https://www.highsnobiety.com/p/new-balances-991v2-city-edition/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 10:02:39 GMT*
 
 
 ## JB Smoove
@@ -2016,11 +2169,20 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## JB Smoove
 
+## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 19:13:37 GMT*
+
+
+## JB Smoove
+
 ## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 05 Aug 2024 16:35:34 GMT*
+*Published on: Tue, 06 Aug 2024 08:45:34 GMT*
 
 
 ## JB Smoove
@@ -2029,16 +2191,43 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 05 Aug 2024 18:31:22 GMT*
+*Published on: Tue, 06 Aug 2024 09:00:22 GMT*
 
 
 ## JB Smoove
 
-## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
+## [Everything SNKRheads Must Know for Nike SNKRS Day 2024](https://www.highsnobiety.com/p/nike-snkrs-day-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 05 Aug 2024 19:13:37 GMT*
+*Published on: Tue, 06 Aug 2024 09:10:02 GMT*
+
+
+## JB Smoove
+
+## [Malls May Be Dead But Mall Brands Have Never Been More Alive](https://www.highsnobiety.com/p/mall-brand-renaissance-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:35:33 GMT*
+
+
+## JB Smoove
+
+## [adidas’ Secretly Good Sneaker Pushes the Samba Further Aside](https://www.highsnobiety.com/p/adidas-spezial-sneakers-black-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 09:00:00 GMT*
+
+
+## JB Smoove
+
+## [The Celebrity Beauty Boom Isn't Over Yet](https://www.highsnobiety.com/p/celebrity-beauty-brands-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 09:20:00 GMT*
 
 
 ## JB Smoove
@@ -2050,7 +2239,92 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 05 Aug 2024 09:15:46 GMT*
 
 
-## JB Smoove
+## Madison Pettis
+
+## [Y-3’s Wonderfully Flat Sneaker is a Minimalist's Dream](https://www.highsnobiety.com/p/adidas-y3-japan-sneakers-fall-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 09:46:18 GMT*
+
+
+## Madison Pettis
+
+## [Running Shoes for You to 'Ready, Set, Go' in Style  
+Nigel Sylvester's "Bike Air" Jordan Sneakers Are Back ( Better)](https://www.highsnobiety.com/p/stock-x-running-shoes/
+https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-grey-2024-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 11:00:00 GMT
+Mon, 05 Aug 2024 10:11:00 GMT*
+
+
+## Madison Pettis
+
+## [Lacey Table Tennis Shoes? adidas’ New Sneaker Is One-Of-A-Kind](https://www.highsnobiety.com/p/adidas-naked-copenhagen-tischtennis-samba/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 14:24:12 GMT*
+
+
+## Madison Pettis
+
+## [adidas' Wildly Underrated Hiking Shoe Enters Its Chunky Mule Era](https://www.highsnobiety.com/p/adidas-seeulater-mule-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 15:02:35 GMT*
+
+
+## Madison Pettis
+
+## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 19:13:37 GMT*
+
+
+## Madison Pettis
+
+## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 08:45:34 GMT*
+
+
+## Madison Pettis
+
+## [ASICS' Leather Dad Shoe Is a New (Balance) Kind of Sneaker](https://www.highsnobiety.com/p/asics-gel-1130-leather-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:00:22 GMT*
+
+
+## Madison Pettis
+
+## [Everything SNKRheads Must Know for Nike SNKRS Day 2024](https://www.highsnobiety.com/p/nike-snkrs-day-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:10:02 GMT*
+
+
+## Madison Pettis
+
+## [Malls May Be Dead But Mall Brands Have Never Been More Alive](https://www.highsnobiety.com/p/mall-brand-renaissance-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:35:33 GMT*
+
+
+## Madison Pettis
 
 ## [adidas’ Secretly Good Sneaker Pushes the Samba Further Aside](https://www.highsnobiety.com/p/adidas-spezial-sneakers-black-2024/)
 
@@ -2070,82 +2344,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Madison Pettis
 
-## [Y-3’s Wonderfully Flat Sneaker is a Minimalist's Dream](https://www.highsnobiety.com/p/adidas-y3-japan-sneakers-fall-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 09:46:18 GMT*
-
-
-## Madison Pettis
-
-## [Super Exclusive New Balances Are Coming to a City Near You](https://www.highsnobiety.com/p/new-balances-991v2-city-edition/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 10:02:39 GMT*
-
-
-## Madison Pettis
-
-## [Running Shoes for You to 'Ready, Set, Go' in Style  
-Nigel Sylvester's "Bike Air" Jordan Sneakers Are Back ( Better)](https://www.highsnobiety.com/p/stock-x-running-shoes/
-https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-grey-2024-where-to-buy/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 11:00:00 GMT
-Mon, 05 Aug 2024 10:11:00 GMT*
-
-
-## Madison Pettis
-
-## [Lacey Table Tennis Shoes? adidas’ New Sneaker Is One-Of-A-Kind](https://www.highsnobiety.com/p/adidas-naked-copenhagen-tischtennis-samba/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 14:24:12 GMT*
-
-
-## Madison Pettis
-
-## [adidas' Wildly Underrated Hiking Shoe Enters Its Chunky Mule Era](https://www.highsnobiety.com/p/adidas-seeulater-mule-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 15:02:35 GMT*
-
-
-## Madison Pettis
-
-## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 16:35:34 GMT*
-
-
-## Madison Pettis
-
-## [ASICS' Leather Dad Shoe Is a New (Balance) Kind of Sneaker](https://www.highsnobiety.com/p/asics-gel-1130-leather-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 18:31:22 GMT*
-
-
-## Madison Pettis
-
-## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 19:13:37 GMT*
-
-
-## Madison Pettis
-
 ## [Oui? Oui! Nike's Paris-Themed Forces Are Scarily Good     ](https://www.highsnobiety.com/p/nike-air-force-1-low-paris-sneakers-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2153,24 +2351,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 05 Aug 2024 09:15:46 GMT*
 
 
-## Madison Pettis
-
-## [adidas’ Secretly Good Sneaker Pushes the Samba Further Aside](https://www.highsnobiety.com/p/adidas-spezial-sneakers-black-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 09:00:00 GMT*
-
-
-## Austin Butler
-
-## [The Celebrity Beauty Boom Isn't Over Yet](https://www.highsnobiety.com/p/celebrity-beauty-brands-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 09:20:00 GMT*
-
-
 ## Austin Butler
 
 ## [Y-3’s Wonderfully Flat Sneaker is a Minimalist's Dream](https://www.highsnobiety.com/p/adidas-y3-japan-sneakers-fall-2024/)
@@ -2178,15 +2358,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Mon, 05 Aug 2024 09:46:18 GMT*
-
-
-## Austin Butler
-
-## [Super Exclusive New Balances Are Coming to a City Near You](https://www.highsnobiety.com/p/new-balances-991v2-city-edition/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 10:02:39 GMT*
 
 
 ## Austin Butler
@@ -2222,24 +2393,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Austin Butler
 
-## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 16:35:34 GMT*
-
-
-## Austin Butler
-
-## [ASICS' Leather Dad Shoe Is a New (Balance) Kind of Sneaker](https://www.highsnobiety.com/p/asics-gel-1130-leather-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 18:31:22 GMT*
-
-
-## Austin Butler
-
 ## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2249,11 +2402,38 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Austin Butler
 
-## [Oui? Oui! Nike's Paris-Themed Forces Are Scarily Good     ](https://www.highsnobiety.com/p/nike-air-force-1-low-paris-sneakers-2024/)
+## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 05 Aug 2024 09:15:46 GMT*
+*Published on: Tue, 06 Aug 2024 08:45:34 GMT*
+
+
+## Austin Butler
+
+## [ASICS' Leather Dad Shoe Is a New (Balance) Kind of Sneaker](https://www.highsnobiety.com/p/asics-gel-1130-leather-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:00:22 GMT*
+
+
+## Austin Butler
+
+## [Everything SNKRheads Must Know for Nike SNKRS Day 2024](https://www.highsnobiety.com/p/nike-snkrs-day-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:10:02 GMT*
+
+
+## Austin Butler
+
+## [Malls May Be Dead But Mall Brands Have Never Been More Alive](https://www.highsnobiety.com/p/mall-brand-renaissance-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:35:33 GMT*
 
 
 ## Austin Butler
@@ -2265,13 +2445,22 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 05 Aug 2024 09:00:00 GMT*
 
 
-## Mark Zuckerberg
+## Austin Butler
 
 ## [The Celebrity Beauty Boom Isn't Over Yet](https://www.highsnobiety.com/p/celebrity-beauty-brands-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Mon, 05 Aug 2024 09:20:00 GMT*
+
+
+## Austin Butler
+
+## [Oui? Oui! Nike's Paris-Themed Forces Are Scarily Good     ](https://www.highsnobiety.com/p/nike-air-force-1-low-paris-sneakers-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 09:15:46 GMT*
 
 
 ## Mark Zuckerberg
@@ -2281,15 +2470,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Mon, 05 Aug 2024 09:46:18 GMT*
-
-
-## Mark Zuckerberg
-
-## [Super Exclusive New Balances Are Coming to a City Near You](https://www.highsnobiety.com/p/new-balances-991v2-city-edition/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 10:02:39 GMT*
 
 
 ## Mark Zuckerberg
@@ -2325,11 +2505,20 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Mark Zuckerberg
 
+## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 19:13:37 GMT*
+
+
+## Mark Zuckerberg
+
 ## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 05 Aug 2024 16:35:34 GMT*
+*Published on: Tue, 06 Aug 2024 08:45:34 GMT*
 
 
 ## Mark Zuckerberg
@@ -2338,16 +2527,43 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 05 Aug 2024 18:31:22 GMT*
+*Published on: Tue, 06 Aug 2024 09:00:22 GMT*
 
 
 ## Mark Zuckerberg
 
-## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
+## [Everything SNKRheads Must Know for Nike SNKRS Day 2024](https://www.highsnobiety.com/p/nike-snkrs-day-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 05 Aug 2024 19:13:37 GMT*
+*Published on: Tue, 06 Aug 2024 09:10:02 GMT*
+
+
+## Mark Zuckerberg
+
+## [Malls May Be Dead But Mall Brands Have Never Been More Alive](https://www.highsnobiety.com/p/mall-brand-renaissance-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:35:33 GMT*
+
+
+## Mark Zuckerberg
+
+## [adidas’ Secretly Good Sneaker Pushes the Samba Further Aside](https://www.highsnobiety.com/p/adidas-spezial-sneakers-black-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 09:00:00 GMT*
+
+
+## Mark Zuckerberg
+
+## [The Celebrity Beauty Boom Isn't Over Yet](https://www.highsnobiety.com/p/celebrity-beauty-brands-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 09:20:00 GMT*
 
 
 ## Mark Zuckerberg
@@ -2359,7 +2575,92 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 05 Aug 2024 09:15:46 GMT*
 
 
-## Mark Zuckerberg
+## Ariana Grande
+
+## [Y-3’s Wonderfully Flat Sneaker is a Minimalist's Dream](https://www.highsnobiety.com/p/adidas-y3-japan-sneakers-fall-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 09:46:18 GMT*
+
+
+## Ariana Grande
+
+## [Running Shoes for You to 'Ready, Set, Go' in Style  
+Nigel Sylvester's "Bike Air" Jordan Sneakers Are Back ( Better)](https://www.highsnobiety.com/p/stock-x-running-shoes/
+https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-grey-2024-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 11:00:00 GMT
+Mon, 05 Aug 2024 10:11:00 GMT*
+
+
+## Ariana Grande
+
+## [Lacey Table Tennis Shoes? adidas’ New Sneaker Is One-Of-A-Kind](https://www.highsnobiety.com/p/adidas-naked-copenhagen-tischtennis-samba/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 14:24:12 GMT*
+
+
+## Ariana Grande
+
+## [adidas' Wildly Underrated Hiking Shoe Enters Its Chunky Mule Era](https://www.highsnobiety.com/p/adidas-seeulater-mule-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 15:02:35 GMT*
+
+
+## Ariana Grande
+
+## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 19:13:37 GMT*
+
+
+## Ariana Grande
+
+## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 08:45:34 GMT*
+
+
+## Ariana Grande
+
+## [ASICS' Leather Dad Shoe Is a New (Balance) Kind of Sneaker](https://www.highsnobiety.com/p/asics-gel-1130-leather-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:00:22 GMT*
+
+
+## Ariana Grande
+
+## [Everything SNKRheads Must Know for Nike SNKRS Day 2024](https://www.highsnobiety.com/p/nike-snkrs-day-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:10:02 GMT*
+
+
+## Ariana Grande
+
+## [Malls May Be Dead But Mall Brands Have Never Been More Alive](https://www.highsnobiety.com/p/mall-brand-renaissance-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:35:33 GMT*
+
+
+## Ariana Grande
 
 ## [adidas’ Secretly Good Sneaker Pushes the Samba Further Aside](https://www.highsnobiety.com/p/adidas-spezial-sneakers-black-2024/)
 
@@ -2379,82 +2680,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Ariana Grande
 
-## [Y-3’s Wonderfully Flat Sneaker is a Minimalist's Dream](https://www.highsnobiety.com/p/adidas-y3-japan-sneakers-fall-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 09:46:18 GMT*
-
-
-## Ariana Grande
-
-## [Super Exclusive New Balances Are Coming to a City Near You](https://www.highsnobiety.com/p/new-balances-991v2-city-edition/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 10:02:39 GMT*
-
-
-## Ariana Grande
-
-## [Running Shoes for You to 'Ready, Set, Go' in Style  
-Nigel Sylvester's "Bike Air" Jordan Sneakers Are Back ( Better)](https://www.highsnobiety.com/p/stock-x-running-shoes/
-https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-grey-2024-where-to-buy/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 11:00:00 GMT
-Mon, 05 Aug 2024 10:11:00 GMT*
-
-
-## Ariana Grande
-
-## [Lacey Table Tennis Shoes? adidas’ New Sneaker Is One-Of-A-Kind](https://www.highsnobiety.com/p/adidas-naked-copenhagen-tischtennis-samba/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 14:24:12 GMT*
-
-
-## Ariana Grande
-
-## [adidas' Wildly Underrated Hiking Shoe Enters Its Chunky Mule Era](https://www.highsnobiety.com/p/adidas-seeulater-mule-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 15:02:35 GMT*
-
-
-## Ariana Grande
-
-## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 16:35:34 GMT*
-
-
-## Ariana Grande
-
-## [ASICS' Leather Dad Shoe Is a New (Balance) Kind of Sneaker](https://www.highsnobiety.com/p/asics-gel-1130-leather-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 18:31:22 GMT*
-
-
-## Ariana Grande
-
-## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 19:13:37 GMT*
-
-
-## Ariana Grande
-
 ## [Oui? Oui! Nike's Paris-Themed Forces Are Scarily Good     ](https://www.highsnobiety.com/p/nike-air-force-1-low-paris-sneakers-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2462,24 +2687,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 05 Aug 2024 09:15:46 GMT*
 
 
-## Ariana Grande
-
-## [adidas’ Secretly Good Sneaker Pushes the Samba Further Aside](https://www.highsnobiety.com/p/adidas-spezial-sneakers-black-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 09:00:00 GMT*
-
-
-## Livvy Dunne
-
-## [The Celebrity Beauty Boom Isn't Over Yet](https://www.highsnobiety.com/p/celebrity-beauty-brands-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 09:20:00 GMT*
-
-
 ## Livvy Dunne
 
 ## [Y-3’s Wonderfully Flat Sneaker is a Minimalist's Dream](https://www.highsnobiety.com/p/adidas-y3-japan-sneakers-fall-2024/)
@@ -2487,15 +2694,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Mon, 05 Aug 2024 09:46:18 GMT*
-
-
-## Livvy Dunne
-
-## [Super Exclusive New Balances Are Coming to a City Near You](https://www.highsnobiety.com/p/new-balances-991v2-city-edition/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 10:02:39 GMT*
 
 
 ## Livvy Dunne
@@ -2531,24 +2729,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Livvy Dunne
 
-## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 16:35:34 GMT*
-
-
-## Livvy Dunne
-
-## [ASICS' Leather Dad Shoe Is a New (Balance) Kind of Sneaker](https://www.highsnobiety.com/p/asics-gel-1130-leather-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 18:31:22 GMT*
-
-
-## Livvy Dunne
-
 ## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2558,11 +2738,38 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Livvy Dunne
 
-## [Oui? Oui! Nike's Paris-Themed Forces Are Scarily Good     ](https://www.highsnobiety.com/p/nike-air-force-1-low-paris-sneakers-2024/)
+## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 05 Aug 2024 09:15:46 GMT*
+*Published on: Tue, 06 Aug 2024 08:45:34 GMT*
+
+
+## Livvy Dunne
+
+## [ASICS' Leather Dad Shoe Is a New (Balance) Kind of Sneaker](https://www.highsnobiety.com/p/asics-gel-1130-leather-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:00:22 GMT*
+
+
+## Livvy Dunne
+
+## [Everything SNKRheads Must Know for Nike SNKRS Day 2024](https://www.highsnobiety.com/p/nike-snkrs-day-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:10:02 GMT*
+
+
+## Livvy Dunne
+
+## [Malls May Be Dead But Mall Brands Have Never Been More Alive](https://www.highsnobiety.com/p/mall-brand-renaissance-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:35:33 GMT*
 
 
 ## Livvy Dunne
@@ -2574,13 +2781,22 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 05 Aug 2024 09:00:00 GMT*
 
 
-## Ali Wong
+## Livvy Dunne
 
 ## [The Celebrity Beauty Boom Isn't Over Yet](https://www.highsnobiety.com/p/celebrity-beauty-brands-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Mon, 05 Aug 2024 09:20:00 GMT*
+
+
+## Livvy Dunne
+
+## [Oui? Oui! Nike's Paris-Themed Forces Are Scarily Good     ](https://www.highsnobiety.com/p/nike-air-force-1-low-paris-sneakers-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 09:15:46 GMT*
 
 
 ## Ali Wong
@@ -2590,15 +2806,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Mon, 05 Aug 2024 09:46:18 GMT*
-
-
-## Ali Wong
-
-## [Super Exclusive New Balances Are Coming to a City Near You](https://www.highsnobiety.com/p/new-balances-991v2-city-edition/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 10:02:39 GMT*
 
 
 ## Ali Wong
@@ -2634,11 +2841,20 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Ali Wong
 
+## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 19:13:37 GMT*
+
+
+## Ali Wong
+
 ## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 05 Aug 2024 16:35:34 GMT*
+*Published on: Tue, 06 Aug 2024 08:45:34 GMT*
 
 
 ## Ali Wong
@@ -2647,16 +2863,43 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 05 Aug 2024 18:31:22 GMT*
+*Published on: Tue, 06 Aug 2024 09:00:22 GMT*
 
 
 ## Ali Wong
 
-## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
+## [Everything SNKRheads Must Know for Nike SNKRS Day 2024](https://www.highsnobiety.com/p/nike-snkrs-day-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 05 Aug 2024 19:13:37 GMT*
+*Published on: Tue, 06 Aug 2024 09:10:02 GMT*
+
+
+## Ali Wong
+
+## [Malls May Be Dead But Mall Brands Have Never Been More Alive](https://www.highsnobiety.com/p/mall-brand-renaissance-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:35:33 GMT*
+
+
+## Ali Wong
+
+## [adidas’ Secretly Good Sneaker Pushes the Samba Further Aside](https://www.highsnobiety.com/p/adidas-spezial-sneakers-black-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 09:00:00 GMT*
+
+
+## Ali Wong
+
+## [The Celebrity Beauty Boom Isn't Over Yet](https://www.highsnobiety.com/p/celebrity-beauty-brands-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 09:20:00 GMT*
 
 
 ## Ali Wong
@@ -2668,7 +2911,92 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 05 Aug 2024 09:15:46 GMT*
 
 
-## Ali Wong
+## Lizzo
+
+## [Y-3’s Wonderfully Flat Sneaker is a Minimalist's Dream](https://www.highsnobiety.com/p/adidas-y3-japan-sneakers-fall-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 09:46:18 GMT*
+
+
+## Lizzo
+
+## [Running Shoes for You to 'Ready, Set, Go' in Style  
+Nigel Sylvester's "Bike Air" Jordan Sneakers Are Back ( Better)](https://www.highsnobiety.com/p/stock-x-running-shoes/
+https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-grey-2024-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 11:00:00 GMT
+Mon, 05 Aug 2024 10:11:00 GMT*
+
+
+## Lizzo
+
+## [Lacey Table Tennis Shoes? adidas’ New Sneaker Is One-Of-A-Kind](https://www.highsnobiety.com/p/adidas-naked-copenhagen-tischtennis-samba/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 14:24:12 GMT*
+
+
+## Lizzo
+
+## [adidas' Wildly Underrated Hiking Shoe Enters Its Chunky Mule Era](https://www.highsnobiety.com/p/adidas-seeulater-mule-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 15:02:35 GMT*
+
+
+## Lizzo
+
+## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 19:13:37 GMT*
+
+
+## Lizzo
+
+## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 08:45:34 GMT*
+
+
+## Lizzo
+
+## [ASICS' Leather Dad Shoe Is a New (Balance) Kind of Sneaker](https://www.highsnobiety.com/p/asics-gel-1130-leather-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:00:22 GMT*
+
+
+## Lizzo
+
+## [Everything SNKRheads Must Know for Nike SNKRS Day 2024](https://www.highsnobiety.com/p/nike-snkrs-day-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:10:02 GMT*
+
+
+## Lizzo
+
+## [Malls May Be Dead But Mall Brands Have Never Been More Alive](https://www.highsnobiety.com/p/mall-brand-renaissance-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:35:33 GMT*
+
+
+## Lizzo
 
 ## [adidas’ Secretly Good Sneaker Pushes the Samba Further Aside](https://www.highsnobiety.com/p/adidas-spezial-sneakers-black-2024/)
 
@@ -2688,82 +3016,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Lizzo
 
-## [Y-3’s Wonderfully Flat Sneaker is a Minimalist's Dream](https://www.highsnobiety.com/p/adidas-y3-japan-sneakers-fall-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 09:46:18 GMT*
-
-
-## Lizzo
-
-## [Super Exclusive New Balances Are Coming to a City Near You](https://www.highsnobiety.com/p/new-balances-991v2-city-edition/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 10:02:39 GMT*
-
-
-## Lizzo
-
-## [Running Shoes for You to 'Ready, Set, Go' in Style  
-Nigel Sylvester's "Bike Air" Jordan Sneakers Are Back ( Better)](https://www.highsnobiety.com/p/stock-x-running-shoes/
-https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-grey-2024-where-to-buy/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 11:00:00 GMT
-Mon, 05 Aug 2024 10:11:00 GMT*
-
-
-## Lizzo
-
-## [Lacey Table Tennis Shoes? adidas’ New Sneaker Is One-Of-A-Kind](https://www.highsnobiety.com/p/adidas-naked-copenhagen-tischtennis-samba/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 14:24:12 GMT*
-
-
-## Lizzo
-
-## [adidas' Wildly Underrated Hiking Shoe Enters Its Chunky Mule Era](https://www.highsnobiety.com/p/adidas-seeulater-mule-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 15:02:35 GMT*
-
-
-## Lizzo
-
-## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 16:35:34 GMT*
-
-
-## Lizzo
-
-## [ASICS' Leather Dad Shoe Is a New (Balance) Kind of Sneaker](https://www.highsnobiety.com/p/asics-gel-1130-leather-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 18:31:22 GMT*
-
-
-## Lizzo
-
-## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 19:13:37 GMT*
-
-
-## Lizzo
-
 ## [Oui? Oui! Nike's Paris-Themed Forces Are Scarily Good     ](https://www.highsnobiety.com/p/nike-air-force-1-low-paris-sneakers-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2771,24 +3023,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 05 Aug 2024 09:15:46 GMT*
 
 
-## Lizzo
-
-## [adidas’ Secretly Good Sneaker Pushes the Samba Further Aside](https://www.highsnobiety.com/p/adidas-spezial-sneakers-black-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 09:00:00 GMT*
-
-
-## Alison Brie
-
-## [The Celebrity Beauty Boom Isn't Over Yet](https://www.highsnobiety.com/p/celebrity-beauty-brands-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 09:20:00 GMT*
-
-
 ## Alison Brie
 
 ## [Y-3’s Wonderfully Flat Sneaker is a Minimalist's Dream](https://www.highsnobiety.com/p/adidas-y3-japan-sneakers-fall-2024/)
@@ -2796,15 +3030,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Mon, 05 Aug 2024 09:46:18 GMT*
-
-
-## Alison Brie
-
-## [Super Exclusive New Balances Are Coming to a City Near You](https://www.highsnobiety.com/p/new-balances-991v2-city-edition/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 10:02:39 GMT*
 
 
 ## Alison Brie
@@ -2840,24 +3065,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Alison Brie
 
-## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 16:35:34 GMT*
-
-
-## Alison Brie
-
-## [ASICS' Leather Dad Shoe Is a New (Balance) Kind of Sneaker](https://www.highsnobiety.com/p/asics-gel-1130-leather-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 18:31:22 GMT*
-
-
-## Alison Brie
-
 ## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2867,11 +3074,38 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Alison Brie
 
-## [Oui? Oui! Nike's Paris-Themed Forces Are Scarily Good     ](https://www.highsnobiety.com/p/nike-air-force-1-low-paris-sneakers-2024/)
+## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 05 Aug 2024 09:15:46 GMT*
+*Published on: Tue, 06 Aug 2024 08:45:34 GMT*
+
+
+## Alison Brie
+
+## [ASICS' Leather Dad Shoe Is a New (Balance) Kind of Sneaker](https://www.highsnobiety.com/p/asics-gel-1130-leather-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:00:22 GMT*
+
+
+## Alison Brie
+
+## [Everything SNKRheads Must Know for Nike SNKRS Day 2024](https://www.highsnobiety.com/p/nike-snkrs-day-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:10:02 GMT*
+
+
+## Alison Brie
+
+## [Malls May Be Dead But Mall Brands Have Never Been More Alive](https://www.highsnobiety.com/p/mall-brand-renaissance-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:35:33 GMT*
 
 
 ## Alison Brie
@@ -2883,13 +3117,22 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 05 Aug 2024 09:00:00 GMT*
 
 
-## Lil Wayne
+## Alison Brie
 
 ## [The Celebrity Beauty Boom Isn't Over Yet](https://www.highsnobiety.com/p/celebrity-beauty-brands-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Mon, 05 Aug 2024 09:20:00 GMT*
+
+
+## Alison Brie
+
+## [Oui? Oui! Nike's Paris-Themed Forces Are Scarily Good     ](https://www.highsnobiety.com/p/nike-air-force-1-low-paris-sneakers-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 09:15:46 GMT*
 
 
 ## Lil Wayne
@@ -2899,15 +3142,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Mon, 05 Aug 2024 09:46:18 GMT*
-
-
-## Lil Wayne
-
-## [Super Exclusive New Balances Are Coming to a City Near You](https://www.highsnobiety.com/p/new-balances-991v2-city-edition/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 10:02:39 GMT*
 
 
 ## Lil Wayne
@@ -2943,11 +3177,20 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Lil Wayne
 
+## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 19:13:37 GMT*
+
+
+## Lil Wayne
+
 ## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 05 Aug 2024 16:35:34 GMT*
+*Published on: Tue, 06 Aug 2024 08:45:34 GMT*
 
 
 ## Lil Wayne
@@ -2956,16 +3199,43 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 05 Aug 2024 18:31:22 GMT*
+*Published on: Tue, 06 Aug 2024 09:00:22 GMT*
 
 
 ## Lil Wayne
 
-## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
+## [Everything SNKRheads Must Know for Nike SNKRS Day 2024](https://www.highsnobiety.com/p/nike-snkrs-day-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 05 Aug 2024 19:13:37 GMT*
+*Published on: Tue, 06 Aug 2024 09:10:02 GMT*
+
+
+## Lil Wayne
+
+## [Malls May Be Dead But Mall Brands Have Never Been More Alive](https://www.highsnobiety.com/p/mall-brand-renaissance-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:35:33 GMT*
+
+
+## Lil Wayne
+
+## [adidas’ Secretly Good Sneaker Pushes the Samba Further Aside](https://www.highsnobiety.com/p/adidas-spezial-sneakers-black-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 09:00:00 GMT*
+
+
+## Lil Wayne
+
+## [The Celebrity Beauty Boom Isn't Over Yet](https://www.highsnobiety.com/p/celebrity-beauty-brands-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 09:20:00 GMT*
 
 
 ## Lil Wayne
@@ -2977,7 +3247,92 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 05 Aug 2024 09:15:46 GMT*
 
 
-## Lil Wayne
+## Adele
+
+## [Y-3’s Wonderfully Flat Sneaker is a Minimalist's Dream](https://www.highsnobiety.com/p/adidas-y3-japan-sneakers-fall-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 09:46:18 GMT*
+
+
+## Adele
+
+## [Running Shoes for You to 'Ready, Set, Go' in Style  
+Nigel Sylvester's "Bike Air" Jordan Sneakers Are Back ( Better)](https://www.highsnobiety.com/p/stock-x-running-shoes/
+https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-grey-2024-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 11:00:00 GMT
+Mon, 05 Aug 2024 10:11:00 GMT*
+
+
+## Adele
+
+## [Lacey Table Tennis Shoes? adidas’ New Sneaker Is One-Of-A-Kind](https://www.highsnobiety.com/p/adidas-naked-copenhagen-tischtennis-samba/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 14:24:12 GMT*
+
+
+## Adele
+
+## [adidas' Wildly Underrated Hiking Shoe Enters Its Chunky Mule Era](https://www.highsnobiety.com/p/adidas-seeulater-mule-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 15:02:35 GMT*
+
+
+## Adele
+
+## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 19:13:37 GMT*
+
+
+## Adele
+
+## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 08:45:34 GMT*
+
+
+## Adele
+
+## [ASICS' Leather Dad Shoe Is a New (Balance) Kind of Sneaker](https://www.highsnobiety.com/p/asics-gel-1130-leather-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:00:22 GMT*
+
+
+## Adele
+
+## [Everything SNKRheads Must Know for Nike SNKRS Day 2024](https://www.highsnobiety.com/p/nike-snkrs-day-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:10:02 GMT*
+
+
+## Adele
+
+## [Malls May Be Dead But Mall Brands Have Never Been More Alive](https://www.highsnobiety.com/p/mall-brand-renaissance-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:35:33 GMT*
+
+
+## Adele
 
 ## [adidas’ Secretly Good Sneaker Pushes the Samba Further Aside](https://www.highsnobiety.com/p/adidas-spezial-sneakers-black-2024/)
 
@@ -2997,82 +3352,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Adele
 
-## [Y-3’s Wonderfully Flat Sneaker is a Minimalist's Dream](https://www.highsnobiety.com/p/adidas-y3-japan-sneakers-fall-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 09:46:18 GMT*
-
-
-## Adele
-
-## [Super Exclusive New Balances Are Coming to a City Near You](https://www.highsnobiety.com/p/new-balances-991v2-city-edition/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 10:02:39 GMT*
-
-
-## Adele
-
-## [Running Shoes for You to 'Ready, Set, Go' in Style  
-Nigel Sylvester's "Bike Air" Jordan Sneakers Are Back ( Better)](https://www.highsnobiety.com/p/stock-x-running-shoes/
-https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-grey-2024-where-to-buy/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 11:00:00 GMT
-Mon, 05 Aug 2024 10:11:00 GMT*
-
-
-## Adele
-
-## [Lacey Table Tennis Shoes? adidas’ New Sneaker Is One-Of-A-Kind](https://www.highsnobiety.com/p/adidas-naked-copenhagen-tischtennis-samba/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 14:24:12 GMT*
-
-
-## Adele
-
-## [adidas' Wildly Underrated Hiking Shoe Enters Its Chunky Mule Era](https://www.highsnobiety.com/p/adidas-seeulater-mule-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 15:02:35 GMT*
-
-
-## Adele
-
-## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 16:35:34 GMT*
-
-
-## Adele
-
-## [ASICS' Leather Dad Shoe Is a New (Balance) Kind of Sneaker](https://www.highsnobiety.com/p/asics-gel-1130-leather-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 18:31:22 GMT*
-
-
-## Adele
-
-## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 19:13:37 GMT*
-
-
-## Adele
-
 ## [Oui? Oui! Nike's Paris-Themed Forces Are Scarily Good     ](https://www.highsnobiety.com/p/nike-air-force-1-low-paris-sneakers-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3080,24 +3359,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 05 Aug 2024 09:15:46 GMT*
 
 
-## Adele
-
-## [adidas’ Secretly Good Sneaker Pushes the Samba Further Aside](https://www.highsnobiety.com/p/adidas-spezial-sneakers-black-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 09:00:00 GMT*
-
-
-## Lindsay Lohan
-
-## [The Celebrity Beauty Boom Isn't Over Yet](https://www.highsnobiety.com/p/celebrity-beauty-brands-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 09:20:00 GMT*
-
-
 ## Lindsay Lohan
 
 ## [Y-3’s Wonderfully Flat Sneaker is a Minimalist's Dream](https://www.highsnobiety.com/p/adidas-y3-japan-sneakers-fall-2024/)
@@ -3105,15 +3366,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Mon, 05 Aug 2024 09:46:18 GMT*
-
-
-## Lindsay Lohan
-
-## [Super Exclusive New Balances Are Coming to a City Near You](https://www.highsnobiety.com/p/new-balances-991v2-city-edition/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 10:02:39 GMT*
 
 
 ## Lindsay Lohan
@@ -3149,24 +3401,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Lindsay Lohan
 
-## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 16:35:34 GMT*
-
-
-## Lindsay Lohan
-
-## [ASICS' Leather Dad Shoe Is a New (Balance) Kind of Sneaker](https://www.highsnobiety.com/p/asics-gel-1130-leather-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 18:31:22 GMT*
-
-
-## Lindsay Lohan
-
 ## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3176,11 +3410,38 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Lindsay Lohan
 
-## [Oui? Oui! Nike's Paris-Themed Forces Are Scarily Good     ](https://www.highsnobiety.com/p/nike-air-force-1-low-paris-sneakers-2024/)
+## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 05 Aug 2024 09:15:46 GMT*
+*Published on: Tue, 06 Aug 2024 08:45:34 GMT*
+
+
+## Lindsay Lohan
+
+## [ASICS' Leather Dad Shoe Is a New (Balance) Kind of Sneaker](https://www.highsnobiety.com/p/asics-gel-1130-leather-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:00:22 GMT*
+
+
+## Lindsay Lohan
+
+## [Everything SNKRheads Must Know for Nike SNKRS Day 2024](https://www.highsnobiety.com/p/nike-snkrs-day-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:10:02 GMT*
+
+
+## Lindsay Lohan
+
+## [Malls May Be Dead But Mall Brands Have Never Been More Alive](https://www.highsnobiety.com/p/mall-brand-renaissance-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:35:33 GMT*
 
 
 ## Lindsay Lohan
@@ -3192,13 +3453,22 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 05 Aug 2024 09:00:00 GMT*
 
 
-## Addison Rae
+## Lindsay Lohan
 
 ## [The Celebrity Beauty Boom Isn't Over Yet](https://www.highsnobiety.com/p/celebrity-beauty-brands-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Mon, 05 Aug 2024 09:20:00 GMT*
+
+
+## Lindsay Lohan
+
+## [Oui? Oui! Nike's Paris-Themed Forces Are Scarily Good     ](https://www.highsnobiety.com/p/nike-air-force-1-low-paris-sneakers-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 09:15:46 GMT*
 
 
 ## Addison Rae
@@ -3208,15 +3478,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Mon, 05 Aug 2024 09:46:18 GMT*
-
-
-## Addison Rae
-
-## [Super Exclusive New Balances Are Coming to a City Near You](https://www.highsnobiety.com/p/new-balances-991v2-city-edition/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 10:02:39 GMT*
 
 
 ## Addison Rae
@@ -3252,11 +3513,20 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Addison Rae
 
+## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 19:13:37 GMT*
+
+
+## Addison Rae
+
 ## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 05 Aug 2024 16:35:34 GMT*
+*Published on: Tue, 06 Aug 2024 08:45:34 GMT*
 
 
 ## Addison Rae
@@ -3265,16 +3535,43 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 05 Aug 2024 18:31:22 GMT*
+*Published on: Tue, 06 Aug 2024 09:00:22 GMT*
 
 
 ## Addison Rae
 
-## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
+## [Everything SNKRheads Must Know for Nike SNKRS Day 2024](https://www.highsnobiety.com/p/nike-snkrs-day-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 05 Aug 2024 19:13:37 GMT*
+*Published on: Tue, 06 Aug 2024 09:10:02 GMT*
+
+
+## Addison Rae
+
+## [Malls May Be Dead But Mall Brands Have Never Been More Alive](https://www.highsnobiety.com/p/mall-brand-renaissance-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:35:33 GMT*
+
+
+## Addison Rae
+
+## [adidas’ Secretly Good Sneaker Pushes the Samba Further Aside](https://www.highsnobiety.com/p/adidas-spezial-sneakers-black-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 09:00:00 GMT*
+
+
+## Addison Rae
+
+## [The Celebrity Beauty Boom Isn't Over Yet](https://www.highsnobiety.com/p/celebrity-beauty-brands-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 09:20:00 GMT*
 
 
 ## Addison Rae
@@ -3286,7 +3583,92 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 05 Aug 2024 09:15:46 GMT*
 
 
-## Addison Rae
+## Latto
+
+## [Y-3’s Wonderfully Flat Sneaker is a Minimalist's Dream](https://www.highsnobiety.com/p/adidas-y3-japan-sneakers-fall-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 09:46:18 GMT*
+
+
+## Latto
+
+## [Running Shoes for You to 'Ready, Set, Go' in Style  
+Nigel Sylvester's "Bike Air" Jordan Sneakers Are Back ( Better)](https://www.highsnobiety.com/p/stock-x-running-shoes/
+https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-grey-2024-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 11:00:00 GMT
+Mon, 05 Aug 2024 10:11:00 GMT*
+
+
+## Latto
+
+## [Lacey Table Tennis Shoes? adidas’ New Sneaker Is One-Of-A-Kind](https://www.highsnobiety.com/p/adidas-naked-copenhagen-tischtennis-samba/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 14:24:12 GMT*
+
+
+## Latto
+
+## [adidas' Wildly Underrated Hiking Shoe Enters Its Chunky Mule Era](https://www.highsnobiety.com/p/adidas-seeulater-mule-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 15:02:35 GMT*
+
+
+## Latto
+
+## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 19:13:37 GMT*
+
+
+## Latto
+
+## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 08:45:34 GMT*
+
+
+## Latto
+
+## [ASICS' Leather Dad Shoe Is a New (Balance) Kind of Sneaker](https://www.highsnobiety.com/p/asics-gel-1130-leather-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:00:22 GMT*
+
+
+## Latto
+
+## [Everything SNKRheads Must Know for Nike SNKRS Day 2024](https://www.highsnobiety.com/p/nike-snkrs-day-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:10:02 GMT*
+
+
+## Latto
+
+## [Malls May Be Dead But Mall Brands Have Never Been More Alive](https://www.highsnobiety.com/p/mall-brand-renaissance-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:35:33 GMT*
+
+
+## Latto
 
 ## [adidas’ Secretly Good Sneaker Pushes the Samba Further Aside](https://www.highsnobiety.com/p/adidas-spezial-sneakers-black-2024/)
 
@@ -3306,82 +3688,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Latto
 
-## [Y-3’s Wonderfully Flat Sneaker is a Minimalist's Dream](https://www.highsnobiety.com/p/adidas-y3-japan-sneakers-fall-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 09:46:18 GMT*
-
-
-## Latto
-
-## [Super Exclusive New Balances Are Coming to a City Near You](https://www.highsnobiety.com/p/new-balances-991v2-city-edition/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 10:02:39 GMT*
-
-
-## Latto
-
-## [Running Shoes for You to 'Ready, Set, Go' in Style  
-Nigel Sylvester's "Bike Air" Jordan Sneakers Are Back ( Better)](https://www.highsnobiety.com/p/stock-x-running-shoes/
-https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-grey-2024-where-to-buy/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 11:00:00 GMT
-Mon, 05 Aug 2024 10:11:00 GMT*
-
-
-## Latto
-
-## [Lacey Table Tennis Shoes? adidas’ New Sneaker Is One-Of-A-Kind](https://www.highsnobiety.com/p/adidas-naked-copenhagen-tischtennis-samba/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 14:24:12 GMT*
-
-
-## Latto
-
-## [adidas' Wildly Underrated Hiking Shoe Enters Its Chunky Mule Era](https://www.highsnobiety.com/p/adidas-seeulater-mule-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 15:02:35 GMT*
-
-
-## Latto
-
-## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 16:35:34 GMT*
-
-
-## Latto
-
-## [ASICS' Leather Dad Shoe Is a New (Balance) Kind of Sneaker](https://www.highsnobiety.com/p/asics-gel-1130-leather-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 18:31:22 GMT*
-
-
-## Latto
-
-## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 19:13:37 GMT*
-
-
-## Latto
-
 ## [Oui? Oui! Nike's Paris-Themed Forces Are Scarily Good     ](https://www.highsnobiety.com/p/nike-air-force-1-low-paris-sneakers-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3389,24 +3695,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 05 Aug 2024 09:15:46 GMT*
 
 
-## Latto
-
-## [adidas’ Secretly Good Sneaker Pushes the Samba Further Aside](https://www.highsnobiety.com/p/adidas-spezial-sneakers-black-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 09:00:00 GMT*
-
-
-## Aaron Paul
-
-## [The Celebrity Beauty Boom Isn't Over Yet](https://www.highsnobiety.com/p/celebrity-beauty-brands-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 09:20:00 GMT*
-
-
 ## Aaron Paul
 
 ## [Y-3’s Wonderfully Flat Sneaker is a Minimalist's Dream](https://www.highsnobiety.com/p/adidas-y3-japan-sneakers-fall-2024/)
@@ -3414,15 +3702,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Mon, 05 Aug 2024 09:46:18 GMT*
-
-
-## Aaron Paul
-
-## [Super Exclusive New Balances Are Coming to a City Near You](https://www.highsnobiety.com/p/new-balances-991v2-city-edition/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 10:02:39 GMT*
 
 
 ## Aaron Paul
@@ -3458,24 +3737,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Aaron Paul
 
-## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 16:35:34 GMT*
-
-
-## Aaron Paul
-
-## [ASICS' Leather Dad Shoe Is a New (Balance) Kind of Sneaker](https://www.highsnobiety.com/p/asics-gel-1130-leather-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 18:31:22 GMT*
-
-
-## Aaron Paul
-
 ## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3485,11 +3746,38 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Aaron Paul
 
-## [Oui? Oui! Nike's Paris-Themed Forces Are Scarily Good     ](https://www.highsnobiety.com/p/nike-air-force-1-low-paris-sneakers-2024/)
+## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 05 Aug 2024 09:15:46 GMT*
+*Published on: Tue, 06 Aug 2024 08:45:34 GMT*
+
+
+## Aaron Paul
+
+## [ASICS' Leather Dad Shoe Is a New (Balance) Kind of Sneaker](https://www.highsnobiety.com/p/asics-gel-1130-leather-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:00:22 GMT*
+
+
+## Aaron Paul
+
+## [Everything SNKRheads Must Know for Nike SNKRS Day 2024](https://www.highsnobiety.com/p/nike-snkrs-day-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:10:02 GMT*
+
+
+## Aaron Paul
+
+## [Malls May Be Dead But Mall Brands Have Never Been More Alive](https://www.highsnobiety.com/p/mall-brand-renaissance-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:35:33 GMT*
 
 
 ## Aaron Paul
@@ -3501,13 +3789,22 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 05 Aug 2024 09:00:00 GMT*
 
 
-## LeBron James
+## Aaron Paul
 
 ## [The Celebrity Beauty Boom Isn't Over Yet](https://www.highsnobiety.com/p/celebrity-beauty-brands-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Mon, 05 Aug 2024 09:20:00 GMT*
+
+
+## Aaron Paul
+
+## [Oui? Oui! Nike's Paris-Themed Forces Are Scarily Good     ](https://www.highsnobiety.com/p/nike-air-force-1-low-paris-sneakers-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 09:15:46 GMT*
 
 
 ## LeBron James
@@ -3517,15 +3814,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Mon, 05 Aug 2024 09:46:18 GMT*
-
-
-## LeBron James
-
-## [Super Exclusive New Balances Are Coming to a City Near You](https://www.highsnobiety.com/p/new-balances-991v2-city-edition/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 10:02:39 GMT*
 
 
 ## LeBron James
@@ -3561,11 +3849,20 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## LeBron James
 
+## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 19:13:37 GMT*
+
+
+## LeBron James
+
 ## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 05 Aug 2024 16:35:34 GMT*
+*Published on: Tue, 06 Aug 2024 08:45:34 GMT*
 
 
 ## LeBron James
@@ -3574,16 +3871,43 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 05 Aug 2024 18:31:22 GMT*
+*Published on: Tue, 06 Aug 2024 09:00:22 GMT*
 
 
 ## LeBron James
 
-## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
+## [Everything SNKRheads Must Know for Nike SNKRS Day 2024](https://www.highsnobiety.com/p/nike-snkrs-day-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 05 Aug 2024 19:13:37 GMT*
+*Published on: Tue, 06 Aug 2024 09:10:02 GMT*
+
+
+## LeBron James
+
+## [Malls May Be Dead But Mall Brands Have Never Been More Alive](https://www.highsnobiety.com/p/mall-brand-renaissance-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:35:33 GMT*
+
+
+## LeBron James
+
+## [adidas’ Secretly Good Sneaker Pushes the Samba Further Aside](https://www.highsnobiety.com/p/adidas-spezial-sneakers-black-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 09:00:00 GMT*
+
+
+## LeBron James
+
+## [The Celebrity Beauty Boom Isn't Over Yet](https://www.highsnobiety.com/p/celebrity-beauty-brands-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 09:20:00 GMT*
 
 
 ## LeBron James
@@ -3595,7 +3919,92 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 05 Aug 2024 09:15:46 GMT*
 
 
-## LeBron James
+## 50 Cent
+
+## [Y-3’s Wonderfully Flat Sneaker is a Minimalist's Dream](https://www.highsnobiety.com/p/adidas-y3-japan-sneakers-fall-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 09:46:18 GMT*
+
+
+## 50 Cent
+
+## [Running Shoes for You to 'Ready, Set, Go' in Style  
+Nigel Sylvester's "Bike Air" Jordan Sneakers Are Back ( Better)](https://www.highsnobiety.com/p/stock-x-running-shoes/
+https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-grey-2024-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 11:00:00 GMT
+Mon, 05 Aug 2024 10:11:00 GMT*
+
+
+## 50 Cent
+
+## [Lacey Table Tennis Shoes? adidas’ New Sneaker Is One-Of-A-Kind](https://www.highsnobiety.com/p/adidas-naked-copenhagen-tischtennis-samba/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 14:24:12 GMT*
+
+
+## 50 Cent
+
+## [adidas' Wildly Underrated Hiking Shoe Enters Its Chunky Mule Era](https://www.highsnobiety.com/p/adidas-seeulater-mule-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 15:02:35 GMT*
+
+
+## 50 Cent
+
+## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 19:13:37 GMT*
+
+
+## 50 Cent
+
+## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 08:45:34 GMT*
+
+
+## 50 Cent
+
+## [ASICS' Leather Dad Shoe Is a New (Balance) Kind of Sneaker](https://www.highsnobiety.com/p/asics-gel-1130-leather-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:00:22 GMT*
+
+
+## 50 Cent
+
+## [Everything SNKRheads Must Know for Nike SNKRS Day 2024](https://www.highsnobiety.com/p/nike-snkrs-day-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:10:02 GMT*
+
+
+## 50 Cent
+
+## [Malls May Be Dead But Mall Brands Have Never Been More Alive](https://www.highsnobiety.com/p/mall-brand-renaissance-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:35:33 GMT*
+
+
+## 50 Cent
 
 ## [adidas’ Secretly Good Sneaker Pushes the Samba Further Aside](https://www.highsnobiety.com/p/adidas-spezial-sneakers-black-2024/)
 
@@ -3615,82 +4024,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## 50 Cent
 
-## [Y-3’s Wonderfully Flat Sneaker is a Minimalist's Dream](https://www.highsnobiety.com/p/adidas-y3-japan-sneakers-fall-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 09:46:18 GMT*
-
-
-## 50 Cent
-
-## [Super Exclusive New Balances Are Coming to a City Near You](https://www.highsnobiety.com/p/new-balances-991v2-city-edition/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 10:02:39 GMT*
-
-
-## 50 Cent
-
-## [Running Shoes for You to 'Ready, Set, Go' in Style  
-Nigel Sylvester's "Bike Air" Jordan Sneakers Are Back ( Better)](https://www.highsnobiety.com/p/stock-x-running-shoes/
-https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-grey-2024-where-to-buy/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 11:00:00 GMT
-Mon, 05 Aug 2024 10:11:00 GMT*
-
-
-## 50 Cent
-
-## [Lacey Table Tennis Shoes? adidas’ New Sneaker Is One-Of-A-Kind](https://www.highsnobiety.com/p/adidas-naked-copenhagen-tischtennis-samba/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 14:24:12 GMT*
-
-
-## 50 Cent
-
-## [adidas' Wildly Underrated Hiking Shoe Enters Its Chunky Mule Era](https://www.highsnobiety.com/p/adidas-seeulater-mule-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 15:02:35 GMT*
-
-
-## 50 Cent
-
-## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 16:35:34 GMT*
-
-
-## 50 Cent
-
-## [ASICS' Leather Dad Shoe Is a New (Balance) Kind of Sneaker](https://www.highsnobiety.com/p/asics-gel-1130-leather-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 18:31:22 GMT*
-
-
-## 50 Cent
-
-## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 19:13:37 GMT*
-
-
-## 50 Cent
-
 ## [Oui? Oui! Nike's Paris-Themed Forces Are Scarily Good     ](https://www.highsnobiety.com/p/nike-air-force-1-low-paris-sneakers-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3698,24 +4031,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 05 Aug 2024 09:15:46 GMT*
 
 
-## 50 Cent
-
-## [adidas’ Secretly Good Sneaker Pushes the Samba Further Aside](https://www.highsnobiety.com/p/adidas-spezial-sneakers-black-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 09:00:00 GMT*
-
-
-## Kesha
-
-## [The Celebrity Beauty Boom Isn't Over Yet](https://www.highsnobiety.com/p/celebrity-beauty-brands-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 09:20:00 GMT*
-
-
 ## Kesha
 
 ## [Y-3’s Wonderfully Flat Sneaker is a Minimalist's Dream](https://www.highsnobiety.com/p/adidas-y3-japan-sneakers-fall-2024/)
@@ -3723,15 +4038,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Mon, 05 Aug 2024 09:46:18 GMT*
-
-
-## Kesha
-
-## [Super Exclusive New Balances Are Coming to a City Near You](https://www.highsnobiety.com/p/new-balances-991v2-city-edition/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 10:02:39 GMT*
 
 
 ## Kesha
@@ -3767,24 +4073,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Kesha
 
-## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 16:35:34 GMT*
-
-
-## Kesha
-
-## [ASICS' Leather Dad Shoe Is a New (Balance) Kind of Sneaker](https://www.highsnobiety.com/p/asics-gel-1130-leather-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 18:31:22 GMT*
-
-
-## Kesha
-
 ## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3794,11 +4082,38 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Kesha
 
-## [Oui? Oui! Nike's Paris-Themed Forces Are Scarily Good     ](https://www.highsnobiety.com/p/nike-air-force-1-low-paris-sneakers-2024/)
+## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 05 Aug 2024 09:15:46 GMT*
+*Published on: Tue, 06 Aug 2024 08:45:34 GMT*
+
+
+## Kesha
+
+## [ASICS' Leather Dad Shoe Is a New (Balance) Kind of Sneaker](https://www.highsnobiety.com/p/asics-gel-1130-leather-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:00:22 GMT*
+
+
+## Kesha
+
+## [Everything SNKRheads Must Know for Nike SNKRS Day 2024](https://www.highsnobiety.com/p/nike-snkrs-day-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:10:02 GMT*
+
+
+## Kesha
+
+## [Malls May Be Dead But Mall Brands Have Never Been More Alive](https://www.highsnobiety.com/p/mall-brand-renaissance-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:35:33 GMT*
 
 
 ## Kesha
@@ -3810,13 +4125,22 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 05 Aug 2024 09:00:00 GMT*
 
 
-## 21 Savage
+## Kesha
 
 ## [The Celebrity Beauty Boom Isn't Over Yet](https://www.highsnobiety.com/p/celebrity-beauty-brands-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Mon, 05 Aug 2024 09:20:00 GMT*
+
+
+## Kesha
+
+## [Oui? Oui! Nike's Paris-Themed Forces Are Scarily Good     ](https://www.highsnobiety.com/p/nike-air-force-1-low-paris-sneakers-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 09:15:46 GMT*
 
 
 ## 21 Savage
@@ -3826,15 +4150,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Mon, 05 Aug 2024 09:46:18 GMT*
-
-
-## 21 Savage
-
-## [Super Exclusive New Balances Are Coming to a City Near You](https://www.highsnobiety.com/p/new-balances-991v2-city-edition/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 10:02:39 GMT*
 
 
 ## 21 Savage
@@ -3870,11 +4185,20 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## 21 Savage
 
+## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 19:13:37 GMT*
+
+
+## 21 Savage
+
 ## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 05 Aug 2024 16:35:34 GMT*
+*Published on: Tue, 06 Aug 2024 08:45:34 GMT*
 
 
 ## 21 Savage
@@ -3883,16 +4207,43 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 05 Aug 2024 18:31:22 GMT*
+*Published on: Tue, 06 Aug 2024 09:00:22 GMT*
 
 
 ## 21 Savage
 
-## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
+## [Everything SNKRheads Must Know for Nike SNKRS Day 2024](https://www.highsnobiety.com/p/nike-snkrs-day-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 05 Aug 2024 19:13:37 GMT*
+*Published on: Tue, 06 Aug 2024 09:10:02 GMT*
+
+
+## 21 Savage
+
+## [Malls May Be Dead But Mall Brands Have Never Been More Alive](https://www.highsnobiety.com/p/mall-brand-renaissance-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:35:33 GMT*
+
+
+## 21 Savage
+
+## [adidas’ Secretly Good Sneaker Pushes the Samba Further Aside](https://www.highsnobiety.com/p/adidas-spezial-sneakers-black-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 09:00:00 GMT*
+
+
+## 21 Savage
+
+## [The Celebrity Beauty Boom Isn't Over Yet](https://www.highsnobiety.com/p/celebrity-beauty-brands-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 09:20:00 GMT*
 
 
 ## 21 Savage
@@ -3904,7 +4255,92 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 05 Aug 2024 09:15:46 GMT*
 
 
-## 21 Savage
+## Larry David
+
+## [Y-3’s Wonderfully Flat Sneaker is a Minimalist's Dream](https://www.highsnobiety.com/p/adidas-y3-japan-sneakers-fall-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 09:46:18 GMT*
+
+
+## Larry David
+
+## [Running Shoes for You to 'Ready, Set, Go' in Style  
+Nigel Sylvester's "Bike Air" Jordan Sneakers Are Back ( Better)](https://www.highsnobiety.com/p/stock-x-running-shoes/
+https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-grey-2024-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 11:00:00 GMT
+Mon, 05 Aug 2024 10:11:00 GMT*
+
+
+## Larry David
+
+## [Lacey Table Tennis Shoes? adidas’ New Sneaker Is One-Of-A-Kind](https://www.highsnobiety.com/p/adidas-naked-copenhagen-tischtennis-samba/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 14:24:12 GMT*
+
+
+## Larry David
+
+## [adidas' Wildly Underrated Hiking Shoe Enters Its Chunky Mule Era](https://www.highsnobiety.com/p/adidas-seeulater-mule-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 15:02:35 GMT*
+
+
+## Larry David
+
+## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 19:13:37 GMT*
+
+
+## Larry David
+
+## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 08:45:34 GMT*
+
+
+## Larry David
+
+## [ASICS' Leather Dad Shoe Is a New (Balance) Kind of Sneaker](https://www.highsnobiety.com/p/asics-gel-1130-leather-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:00:22 GMT*
+
+
+## Larry David
+
+## [Everything SNKRheads Must Know for Nike SNKRS Day 2024](https://www.highsnobiety.com/p/nike-snkrs-day-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:10:02 GMT*
+
+
+## Larry David
+
+## [Malls May Be Dead But Mall Brands Have Never Been More Alive](https://www.highsnobiety.com/p/mall-brand-renaissance-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:35:33 GMT*
+
+
+## Larry David
 
 ## [adidas’ Secretly Good Sneaker Pushes the Samba Further Aside](https://www.highsnobiety.com/p/adidas-spezial-sneakers-black-2024/)
 
@@ -3924,82 +4360,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Larry David
 
-## [Y-3’s Wonderfully Flat Sneaker is a Minimalist's Dream](https://www.highsnobiety.com/p/adidas-y3-japan-sneakers-fall-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 09:46:18 GMT*
-
-
-## Larry David
-
-## [Super Exclusive New Balances Are Coming to a City Near You](https://www.highsnobiety.com/p/new-balances-991v2-city-edition/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 10:02:39 GMT*
-
-
-## Larry David
-
-## [Running Shoes for You to 'Ready, Set, Go' in Style  
-Nigel Sylvester's "Bike Air" Jordan Sneakers Are Back ( Better)](https://www.highsnobiety.com/p/stock-x-running-shoes/
-https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-grey-2024-where-to-buy/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 11:00:00 GMT
-Mon, 05 Aug 2024 10:11:00 GMT*
-
-
-## Larry David
-
-## [Lacey Table Tennis Shoes? adidas’ New Sneaker Is One-Of-A-Kind](https://www.highsnobiety.com/p/adidas-naked-copenhagen-tischtennis-samba/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 14:24:12 GMT*
-
-
-## Larry David
-
-## [adidas' Wildly Underrated Hiking Shoe Enters Its Chunky Mule Era](https://www.highsnobiety.com/p/adidas-seeulater-mule-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 15:02:35 GMT*
-
-
-## Larry David
-
-## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 16:35:34 GMT*
-
-
-## Larry David
-
-## [ASICS' Leather Dad Shoe Is a New (Balance) Kind of Sneaker](https://www.highsnobiety.com/p/asics-gel-1130-leather-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 18:31:22 GMT*
-
-
-## Larry David
-
-## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 19:13:37 GMT*
-
-
-## Larry David
-
 ## [Oui? Oui! Nike's Paris-Themed Forces Are Scarily Good     ](https://www.highsnobiety.com/p/nike-air-force-1-low-paris-sneakers-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -4007,24 +4367,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 05 Aug 2024 09:15:46 GMT*
 
 
-## Larry David
-
-## [adidas’ Secretly Good Sneaker Pushes the Samba Further Aside](https://www.highsnobiety.com/p/adidas-spezial-sneakers-black-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 09:00:00 GMT*
-
-
-## Seth Rogan
-
-## [The Celebrity Beauty Boom Isn't Over Yet](https://www.highsnobiety.com/p/celebrity-beauty-brands-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 09:20:00 GMT*
-
-
 ## Seth Rogan
 
 ## [Y-3’s Wonderfully Flat Sneaker is a Minimalist's Dream](https://www.highsnobiety.com/p/adidas-y3-japan-sneakers-fall-2024/)
@@ -4032,15 +4374,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Mon, 05 Aug 2024 09:46:18 GMT*
-
-
-## Seth Rogan
-
-## [Super Exclusive New Balances Are Coming to a City Near You](https://www.highsnobiety.com/p/new-balances-991v2-city-edition/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 10:02:39 GMT*
 
 
 ## Seth Rogan
@@ -4076,24 +4409,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Seth Rogan
 
-## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 16:35:34 GMT*
-
-
-## Seth Rogan
-
-## [ASICS' Leather Dad Shoe Is a New (Balance) Kind of Sneaker](https://www.highsnobiety.com/p/asics-gel-1130-leather-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 18:31:22 GMT*
-
-
-## Seth Rogan
-
 ## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -4103,11 +4418,38 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Seth Rogan
 
-## [Oui? Oui! Nike's Paris-Themed Forces Are Scarily Good     ](https://www.highsnobiety.com/p/nike-air-force-1-low-paris-sneakers-2024/)
+## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 05 Aug 2024 09:15:46 GMT*
+*Published on: Tue, 06 Aug 2024 08:45:34 GMT*
+
+
+## Seth Rogan
+
+## [ASICS' Leather Dad Shoe Is a New (Balance) Kind of Sneaker](https://www.highsnobiety.com/p/asics-gel-1130-leather-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:00:22 GMT*
+
+
+## Seth Rogan
+
+## [Everything SNKRheads Must Know for Nike SNKRS Day 2024](https://www.highsnobiety.com/p/nike-snkrs-day-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:10:02 GMT*
+
+
+## Seth Rogan
+
+## [Malls May Be Dead But Mall Brands Have Never Been More Alive](https://www.highsnobiety.com/p/mall-brand-renaissance-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:35:33 GMT*
 
 
 ## Seth Rogan
@@ -4119,13 +4461,22 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 05 Aug 2024 09:00:00 GMT*
 
 
-## Simone Biles
+## Seth Rogan
 
 ## [The Celebrity Beauty Boom Isn't Over Yet](https://www.highsnobiety.com/p/celebrity-beauty-brands-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Mon, 05 Aug 2024 09:20:00 GMT*
+
+
+## Seth Rogan
+
+## [Oui? Oui! Nike's Paris-Themed Forces Are Scarily Good     ](https://www.highsnobiety.com/p/nike-air-force-1-low-paris-sneakers-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 09:15:46 GMT*
 
 
 ## Simone Biles
@@ -4135,15 +4486,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Mon, 05 Aug 2024 09:46:18 GMT*
-
-
-## Simone Biles
-
-## [Super Exclusive New Balances Are Coming to a City Near You](https://www.highsnobiety.com/p/new-balances-991v2-city-edition/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 10:02:39 GMT*
 
 
 ## Simone Biles
@@ -4179,11 +4521,20 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Simone Biles
 
+## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 19:13:37 GMT*
+
+
+## Simone Biles
+
 ## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 05 Aug 2024 16:35:34 GMT*
+*Published on: Tue, 06 Aug 2024 08:45:34 GMT*
 
 
 ## Simone Biles
@@ -4192,16 +4543,43 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 05 Aug 2024 18:31:22 GMT*
+*Published on: Tue, 06 Aug 2024 09:00:22 GMT*
 
 
 ## Simone Biles
 
-## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
+## [Everything SNKRheads Must Know for Nike SNKRS Day 2024](https://www.highsnobiety.com/p/nike-snkrs-day-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 05 Aug 2024 19:13:37 GMT*
+*Published on: Tue, 06 Aug 2024 09:10:02 GMT*
+
+
+## Simone Biles
+
+## [Malls May Be Dead But Mall Brands Have Never Been More Alive](https://www.highsnobiety.com/p/mall-brand-renaissance-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:35:33 GMT*
+
+
+## Simone Biles
+
+## [adidas’ Secretly Good Sneaker Pushes the Samba Further Aside](https://www.highsnobiety.com/p/adidas-spezial-sneakers-black-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 09:00:00 GMT*
+
+
+## Simone Biles
+
+## [The Celebrity Beauty Boom Isn't Over Yet](https://www.highsnobiety.com/p/celebrity-beauty-brands-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 09:20:00 GMT*
 
 
 ## Simone Biles
@@ -4213,7 +4591,92 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 05 Aug 2024 09:15:46 GMT*
 
 
-## Simone Biles
+## Pete Davidson
+
+## [Y-3’s Wonderfully Flat Sneaker is a Minimalist's Dream](https://www.highsnobiety.com/p/adidas-y3-japan-sneakers-fall-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 09:46:18 GMT*
+
+
+## Pete Davidson
+
+## [Running Shoes for You to 'Ready, Set, Go' in Style  
+Nigel Sylvester's "Bike Air" Jordan Sneakers Are Back ( Better)](https://www.highsnobiety.com/p/stock-x-running-shoes/
+https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-grey-2024-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 11:00:00 GMT
+Mon, 05 Aug 2024 10:11:00 GMT*
+
+
+## Pete Davidson
+
+## [Lacey Table Tennis Shoes? adidas’ New Sneaker Is One-Of-A-Kind](https://www.highsnobiety.com/p/adidas-naked-copenhagen-tischtennis-samba/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 14:24:12 GMT*
+
+
+## Pete Davidson
+
+## [adidas' Wildly Underrated Hiking Shoe Enters Its Chunky Mule Era](https://www.highsnobiety.com/p/adidas-seeulater-mule-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 15:02:35 GMT*
+
+
+## Pete Davidson
+
+## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 19:13:37 GMT*
+
+
+## Pete Davidson
+
+## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 08:45:34 GMT*
+
+
+## Pete Davidson
+
+## [ASICS' Leather Dad Shoe Is a New (Balance) Kind of Sneaker](https://www.highsnobiety.com/p/asics-gel-1130-leather-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:00:22 GMT*
+
+
+## Pete Davidson
+
+## [Everything SNKRheads Must Know for Nike SNKRS Day 2024](https://www.highsnobiety.com/p/nike-snkrs-day-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:10:02 GMT*
+
+
+## Pete Davidson
+
+## [Malls May Be Dead But Mall Brands Have Never Been More Alive](https://www.highsnobiety.com/p/mall-brand-renaissance-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:35:33 GMT*
+
+
+## Pete Davidson
 
 ## [adidas’ Secretly Good Sneaker Pushes the Samba Further Aside](https://www.highsnobiety.com/p/adidas-spezial-sneakers-black-2024/)
 
@@ -4233,82 +4696,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Pete Davidson
 
-## [Y-3’s Wonderfully Flat Sneaker is a Minimalist's Dream](https://www.highsnobiety.com/p/adidas-y3-japan-sneakers-fall-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 09:46:18 GMT*
-
-
-## Pete Davidson
-
-## [Super Exclusive New Balances Are Coming to a City Near You](https://www.highsnobiety.com/p/new-balances-991v2-city-edition/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 10:02:39 GMT*
-
-
-## Pete Davidson
-
-## [Running Shoes for You to 'Ready, Set, Go' in Style  
-Nigel Sylvester's "Bike Air" Jordan Sneakers Are Back ( Better)](https://www.highsnobiety.com/p/stock-x-running-shoes/
-https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-grey-2024-where-to-buy/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 11:00:00 GMT
-Mon, 05 Aug 2024 10:11:00 GMT*
-
-
-## Pete Davidson
-
-## [Lacey Table Tennis Shoes? adidas’ New Sneaker Is One-Of-A-Kind](https://www.highsnobiety.com/p/adidas-naked-copenhagen-tischtennis-samba/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 14:24:12 GMT*
-
-
-## Pete Davidson
-
-## [adidas' Wildly Underrated Hiking Shoe Enters Its Chunky Mule Era](https://www.highsnobiety.com/p/adidas-seeulater-mule-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 15:02:35 GMT*
-
-
-## Pete Davidson
-
-## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 16:35:34 GMT*
-
-
-## Pete Davidson
-
-## [ASICS' Leather Dad Shoe Is a New (Balance) Kind of Sneaker](https://www.highsnobiety.com/p/asics-gel-1130-leather-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 18:31:22 GMT*
-
-
-## Pete Davidson
-
-## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 19:13:37 GMT*
-
-
-## Pete Davidson
-
 ## [Oui? Oui! Nike's Paris-Themed Forces Are Scarily Good     ](https://www.highsnobiety.com/p/nike-air-force-1-low-paris-sneakers-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -4316,24 +4703,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 05 Aug 2024 09:15:46 GMT*
 
 
-## Pete Davidson
-
-## [adidas’ Secretly Good Sneaker Pushes the Samba Further Aside](https://www.highsnobiety.com/p/adidas-spezial-sneakers-black-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 09:00:00 GMT*
-
-
-## Prince Harry
-
-## [The Celebrity Beauty Boom Isn't Over Yet](https://www.highsnobiety.com/p/celebrity-beauty-brands-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 09:20:00 GMT*
-
-
 ## Prince Harry
 
 ## [Y-3’s Wonderfully Flat Sneaker is a Minimalist's Dream](https://www.highsnobiety.com/p/adidas-y3-japan-sneakers-fall-2024/)
@@ -4341,15 +4710,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Mon, 05 Aug 2024 09:46:18 GMT*
-
-
-## Prince Harry
-
-## [Super Exclusive New Balances Are Coming to a City Near You](https://www.highsnobiety.com/p/new-balances-991v2-city-edition/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 10:02:39 GMT*
 
 
 ## Prince Harry
@@ -4385,24 +4745,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Prince Harry
 
-## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 16:35:34 GMT*
-
-
-## Prince Harry
-
-## [ASICS' Leather Dad Shoe Is a New (Balance) Kind of Sneaker](https://www.highsnobiety.com/p/asics-gel-1130-leather-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 18:31:22 GMT*
-
-
-## Prince Harry
-
 ## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -4412,11 +4754,38 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Prince Harry
 
-## [Oui? Oui! Nike's Paris-Themed Forces Are Scarily Good     ](https://www.highsnobiety.com/p/nike-air-force-1-low-paris-sneakers-2024/)
+## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 05 Aug 2024 09:15:46 GMT*
+*Published on: Tue, 06 Aug 2024 08:45:34 GMT*
+
+
+## Prince Harry
+
+## [ASICS' Leather Dad Shoe Is a New (Balance) Kind of Sneaker](https://www.highsnobiety.com/p/asics-gel-1130-leather-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:00:22 GMT*
+
+
+## Prince Harry
+
+## [Everything SNKRheads Must Know for Nike SNKRS Day 2024](https://www.highsnobiety.com/p/nike-snkrs-day-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:10:02 GMT*
+
+
+## Prince Harry
+
+## [Malls May Be Dead But Mall Brands Have Never Been More Alive](https://www.highsnobiety.com/p/mall-brand-renaissance-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:35:33 GMT*
 
 
 ## Prince Harry
@@ -4428,13 +4797,22 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 05 Aug 2024 09:00:00 GMT*
 
 
-## Princess of Wales
+## Prince Harry
 
 ## [The Celebrity Beauty Boom Isn't Over Yet](https://www.highsnobiety.com/p/celebrity-beauty-brands-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Mon, 05 Aug 2024 09:20:00 GMT*
+
+
+## Prince Harry
+
+## [Oui? Oui! Nike's Paris-Themed Forces Are Scarily Good     ](https://www.highsnobiety.com/p/nike-air-force-1-low-paris-sneakers-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 09:15:46 GMT*
 
 
 ## Princess of Wales
@@ -4444,15 +4822,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Mon, 05 Aug 2024 09:46:18 GMT*
-
-
-## Princess of Wales
-
-## [Super Exclusive New Balances Are Coming to a City Near You](https://www.highsnobiety.com/p/new-balances-991v2-city-edition/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 10:02:39 GMT*
 
 
 ## Princess of Wales
@@ -4488,11 +4857,20 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Princess of Wales
 
+## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 19:13:37 GMT*
+
+
+## Princess of Wales
+
 ## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 05 Aug 2024 16:35:34 GMT*
+*Published on: Tue, 06 Aug 2024 08:45:34 GMT*
 
 
 ## Princess of Wales
@@ -4501,16 +4879,43 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 05 Aug 2024 18:31:22 GMT*
+*Published on: Tue, 06 Aug 2024 09:00:22 GMT*
 
 
 ## Princess of Wales
 
-## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
+## [Everything SNKRheads Must Know for Nike SNKRS Day 2024](https://www.highsnobiety.com/p/nike-snkrs-day-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 05 Aug 2024 19:13:37 GMT*
+*Published on: Tue, 06 Aug 2024 09:10:02 GMT*
+
+
+## Princess of Wales
+
+## [Malls May Be Dead But Mall Brands Have Never Been More Alive](https://www.highsnobiety.com/p/mall-brand-renaissance-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:35:33 GMT*
+
+
+## Princess of Wales
+
+## [adidas’ Secretly Good Sneaker Pushes the Samba Further Aside](https://www.highsnobiety.com/p/adidas-spezial-sneakers-black-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 09:00:00 GMT*
+
+
+## Princess of Wales
+
+## [The Celebrity Beauty Boom Isn't Over Yet](https://www.highsnobiety.com/p/celebrity-beauty-brands-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 09:20:00 GMT*
 
 
 ## Princess of Wales
@@ -4522,7 +4927,92 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 05 Aug 2024 09:15:46 GMT*
 
 
-## Princess of Wales
+## Rachel McAdams
+
+## [Y-3’s Wonderfully Flat Sneaker is a Minimalist's Dream](https://www.highsnobiety.com/p/adidas-y3-japan-sneakers-fall-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 09:46:18 GMT*
+
+
+## Rachel McAdams
+
+## [Running Shoes for You to 'Ready, Set, Go' in Style  
+Nigel Sylvester's "Bike Air" Jordan Sneakers Are Back ( Better)](https://www.highsnobiety.com/p/stock-x-running-shoes/
+https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-grey-2024-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 11:00:00 GMT
+Mon, 05 Aug 2024 10:11:00 GMT*
+
+
+## Rachel McAdams
+
+## [Lacey Table Tennis Shoes? adidas’ New Sneaker Is One-Of-A-Kind](https://www.highsnobiety.com/p/adidas-naked-copenhagen-tischtennis-samba/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 14:24:12 GMT*
+
+
+## Rachel McAdams
+
+## [adidas' Wildly Underrated Hiking Shoe Enters Its Chunky Mule Era](https://www.highsnobiety.com/p/adidas-seeulater-mule-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 15:02:35 GMT*
+
+
+## Rachel McAdams
+
+## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 19:13:37 GMT*
+
+
+## Rachel McAdams
+
+## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 08:45:34 GMT*
+
+
+## Rachel McAdams
+
+## [ASICS' Leather Dad Shoe Is a New (Balance) Kind of Sneaker](https://www.highsnobiety.com/p/asics-gel-1130-leather-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:00:22 GMT*
+
+
+## Rachel McAdams
+
+## [Everything SNKRheads Must Know for Nike SNKRS Day 2024](https://www.highsnobiety.com/p/nike-snkrs-day-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:10:02 GMT*
+
+
+## Rachel McAdams
+
+## [Malls May Be Dead But Mall Brands Have Never Been More Alive](https://www.highsnobiety.com/p/mall-brand-renaissance-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:35:33 GMT*
+
+
+## Rachel McAdams
 
 ## [adidas’ Secretly Good Sneaker Pushes the Samba Further Aside](https://www.highsnobiety.com/p/adidas-spezial-sneakers-black-2024/)
 
@@ -4542,82 +5032,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Rachel McAdams
 
-## [Y-3’s Wonderfully Flat Sneaker is a Minimalist's Dream](https://www.highsnobiety.com/p/adidas-y3-japan-sneakers-fall-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 09:46:18 GMT*
-
-
-## Rachel McAdams
-
-## [Super Exclusive New Balances Are Coming to a City Near You](https://www.highsnobiety.com/p/new-balances-991v2-city-edition/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 10:02:39 GMT*
-
-
-## Rachel McAdams
-
-## [Running Shoes for You to 'Ready, Set, Go' in Style  
-Nigel Sylvester's "Bike Air" Jordan Sneakers Are Back ( Better)](https://www.highsnobiety.com/p/stock-x-running-shoes/
-https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-grey-2024-where-to-buy/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 11:00:00 GMT
-Mon, 05 Aug 2024 10:11:00 GMT*
-
-
-## Rachel McAdams
-
-## [Lacey Table Tennis Shoes? adidas’ New Sneaker Is One-Of-A-Kind](https://www.highsnobiety.com/p/adidas-naked-copenhagen-tischtennis-samba/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 14:24:12 GMT*
-
-
-## Rachel McAdams
-
-## [adidas' Wildly Underrated Hiking Shoe Enters Its Chunky Mule Era](https://www.highsnobiety.com/p/adidas-seeulater-mule-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 15:02:35 GMT*
-
-
-## Rachel McAdams
-
-## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 16:35:34 GMT*
-
-
-## Rachel McAdams
-
-## [ASICS' Leather Dad Shoe Is a New (Balance) Kind of Sneaker](https://www.highsnobiety.com/p/asics-gel-1130-leather-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 18:31:22 GMT*
-
-
-## Rachel McAdams
-
-## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 19:13:37 GMT*
-
-
-## Rachel McAdams
-
 ## [Oui? Oui! Nike's Paris-Themed Forces Are Scarily Good     ](https://www.highsnobiety.com/p/nike-air-force-1-low-paris-sneakers-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -4625,24 +5039,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 05 Aug 2024 09:15:46 GMT*
 
 
-## Rachel McAdams
-
-## [adidas’ Secretly Good Sneaker Pushes the Samba Further Aside](https://www.highsnobiety.com/p/adidas-spezial-sneakers-black-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 09:00:00 GMT*
-
-
-## Reneé Rapp
-
-## [The Celebrity Beauty Boom Isn't Over Yet](https://www.highsnobiety.com/p/celebrity-beauty-brands-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 09:20:00 GMT*
-
-
 ## Reneé Rapp
 
 ## [Y-3’s Wonderfully Flat Sneaker is a Minimalist's Dream](https://www.highsnobiety.com/p/adidas-y3-japan-sneakers-fall-2024/)
@@ -4650,15 +5046,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Mon, 05 Aug 2024 09:46:18 GMT*
-
-
-## Reneé Rapp
-
-## [Super Exclusive New Balances Are Coming to a City Near You](https://www.highsnobiety.com/p/new-balances-991v2-city-edition/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 10:02:39 GMT*
 
 
 ## Reneé Rapp
@@ -4694,24 +5081,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Reneé Rapp
 
-## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 16:35:34 GMT*
-
-
-## Reneé Rapp
-
-## [ASICS' Leather Dad Shoe Is a New (Balance) Kind of Sneaker](https://www.highsnobiety.com/p/asics-gel-1130-leather-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 18:31:22 GMT*
-
-
-## Reneé Rapp
-
 ## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -4721,11 +5090,38 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Reneé Rapp
 
-## [Oui? Oui! Nike's Paris-Themed Forces Are Scarily Good     ](https://www.highsnobiety.com/p/nike-air-force-1-low-paris-sneakers-2024/)
+## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 05 Aug 2024 09:15:46 GMT*
+*Published on: Tue, 06 Aug 2024 08:45:34 GMT*
+
+
+## Reneé Rapp
+
+## [ASICS' Leather Dad Shoe Is a New (Balance) Kind of Sneaker](https://www.highsnobiety.com/p/asics-gel-1130-leather-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:00:22 GMT*
+
+
+## Reneé Rapp
+
+## [Everything SNKRheads Must Know for Nike SNKRS Day 2024](https://www.highsnobiety.com/p/nike-snkrs-day-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:10:02 GMT*
+
+
+## Reneé Rapp
+
+## [Malls May Be Dead But Mall Brands Have Never Been More Alive](https://www.highsnobiety.com/p/mall-brand-renaissance-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:35:33 GMT*
 
 
 ## Reneé Rapp
@@ -4737,13 +5133,22 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 05 Aug 2024 09:00:00 GMT*
 
 
-## Rick Ross
+## Reneé Rapp
 
 ## [The Celebrity Beauty Boom Isn't Over Yet](https://www.highsnobiety.com/p/celebrity-beauty-brands-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Mon, 05 Aug 2024 09:20:00 GMT*
+
+
+## Reneé Rapp
+
+## [Oui? Oui! Nike's Paris-Themed Forces Are Scarily Good     ](https://www.highsnobiety.com/p/nike-air-force-1-low-paris-sneakers-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 09:15:46 GMT*
 
 
 ## Rick Ross
@@ -4753,15 +5158,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Mon, 05 Aug 2024 09:46:18 GMT*
-
-
-## Rick Ross
-
-## [Super Exclusive New Balances Are Coming to a City Near You](https://www.highsnobiety.com/p/new-balances-991v2-city-edition/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 10:02:39 GMT*
 
 
 ## Rick Ross
@@ -4797,11 +5193,20 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Rick Ross
 
+## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 19:13:37 GMT*
+
+
+## Rick Ross
+
 ## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 05 Aug 2024 16:35:34 GMT*
+*Published on: Tue, 06 Aug 2024 08:45:34 GMT*
 
 
 ## Rick Ross
@@ -4810,16 +5215,43 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 05 Aug 2024 18:31:22 GMT*
+*Published on: Tue, 06 Aug 2024 09:00:22 GMT*
 
 
 ## Rick Ross
 
-## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
+## [Everything SNKRheads Must Know for Nike SNKRS Day 2024](https://www.highsnobiety.com/p/nike-snkrs-day-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 05 Aug 2024 19:13:37 GMT*
+*Published on: Tue, 06 Aug 2024 09:10:02 GMT*
+
+
+## Rick Ross
+
+## [Malls May Be Dead But Mall Brands Have Never Been More Alive](https://www.highsnobiety.com/p/mall-brand-renaissance-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:35:33 GMT*
+
+
+## Rick Ross
+
+## [adidas’ Secretly Good Sneaker Pushes the Samba Further Aside](https://www.highsnobiety.com/p/adidas-spezial-sneakers-black-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 09:00:00 GMT*
+
+
+## Rick Ross
+
+## [The Celebrity Beauty Boom Isn't Over Yet](https://www.highsnobiety.com/p/celebrity-beauty-brands-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 09:20:00 GMT*
 
 
 ## Rick Ross
@@ -4831,7 +5263,92 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 05 Aug 2024 09:15:46 GMT*
 
 
-## Rick Ross
+## Sam Ashgari
+
+## [Y-3’s Wonderfully Flat Sneaker is a Minimalist's Dream](https://www.highsnobiety.com/p/adidas-y3-japan-sneakers-fall-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 09:46:18 GMT*
+
+
+## Sam Ashgari
+
+## [Running Shoes for You to 'Ready, Set, Go' in Style  
+Nigel Sylvester's "Bike Air" Jordan Sneakers Are Back ( Better)](https://www.highsnobiety.com/p/stock-x-running-shoes/
+https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-grey-2024-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 11:00:00 GMT
+Mon, 05 Aug 2024 10:11:00 GMT*
+
+
+## Sam Ashgari
+
+## [Lacey Table Tennis Shoes? adidas’ New Sneaker Is One-Of-A-Kind](https://www.highsnobiety.com/p/adidas-naked-copenhagen-tischtennis-samba/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 14:24:12 GMT*
+
+
+## Sam Ashgari
+
+## [adidas' Wildly Underrated Hiking Shoe Enters Its Chunky Mule Era](https://www.highsnobiety.com/p/adidas-seeulater-mule-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 15:02:35 GMT*
+
+
+## Sam Ashgari
+
+## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 19:13:37 GMT*
+
+
+## Sam Ashgari
+
+## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 08:45:34 GMT*
+
+
+## Sam Ashgari
+
+## [ASICS' Leather Dad Shoe Is a New (Balance) Kind of Sneaker](https://www.highsnobiety.com/p/asics-gel-1130-leather-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:00:22 GMT*
+
+
+## Sam Ashgari
+
+## [Everything SNKRheads Must Know for Nike SNKRS Day 2024](https://www.highsnobiety.com/p/nike-snkrs-day-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:10:02 GMT*
+
+
+## Sam Ashgari
+
+## [Malls May Be Dead But Mall Brands Have Never Been More Alive](https://www.highsnobiety.com/p/mall-brand-renaissance-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:35:33 GMT*
+
+
+## Sam Ashgari
 
 ## [adidas’ Secretly Good Sneaker Pushes the Samba Further Aside](https://www.highsnobiety.com/p/adidas-spezial-sneakers-black-2024/)
 
@@ -4851,82 +5368,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Sam Ashgari
 
-## [Y-3’s Wonderfully Flat Sneaker is a Minimalist's Dream](https://www.highsnobiety.com/p/adidas-y3-japan-sneakers-fall-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 09:46:18 GMT*
-
-
-## Sam Ashgari
-
-## [Super Exclusive New Balances Are Coming to a City Near You](https://www.highsnobiety.com/p/new-balances-991v2-city-edition/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 10:02:39 GMT*
-
-
-## Sam Ashgari
-
-## [Running Shoes for You to 'Ready, Set, Go' in Style  
-Nigel Sylvester's "Bike Air" Jordan Sneakers Are Back ( Better)](https://www.highsnobiety.com/p/stock-x-running-shoes/
-https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-grey-2024-where-to-buy/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 11:00:00 GMT
-Mon, 05 Aug 2024 10:11:00 GMT*
-
-
-## Sam Ashgari
-
-## [Lacey Table Tennis Shoes? adidas’ New Sneaker Is One-Of-A-Kind](https://www.highsnobiety.com/p/adidas-naked-copenhagen-tischtennis-samba/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 14:24:12 GMT*
-
-
-## Sam Ashgari
-
-## [adidas' Wildly Underrated Hiking Shoe Enters Its Chunky Mule Era](https://www.highsnobiety.com/p/adidas-seeulater-mule-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 15:02:35 GMT*
-
-
-## Sam Ashgari
-
-## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 16:35:34 GMT*
-
-
-## Sam Ashgari
-
-## [ASICS' Leather Dad Shoe Is a New (Balance) Kind of Sneaker](https://www.highsnobiety.com/p/asics-gel-1130-leather-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 18:31:22 GMT*
-
-
-## Sam Ashgari
-
-## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 19:13:37 GMT*
-
-
-## Sam Ashgari
-
 ## [Oui? Oui! Nike's Paris-Themed Forces Are Scarily Good     ](https://www.highsnobiety.com/p/nike-air-force-1-low-paris-sneakers-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -4934,24 +5375,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 05 Aug 2024 09:15:46 GMT*
 
 
-## Sam Ashgari
-
-## [adidas’ Secretly Good Sneaker Pushes the Samba Further Aside](https://www.highsnobiety.com/p/adidas-spezial-sneakers-black-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 09:00:00 GMT*
-
-
-## Sandra Oh
-
-## [The Celebrity Beauty Boom Isn't Over Yet](https://www.highsnobiety.com/p/celebrity-beauty-brands-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 09:20:00 GMT*
-
-
 ## Sandra Oh
 
 ## [Y-3’s Wonderfully Flat Sneaker is a Minimalist's Dream](https://www.highsnobiety.com/p/adidas-y3-japan-sneakers-fall-2024/)
@@ -4959,15 +5382,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Mon, 05 Aug 2024 09:46:18 GMT*
-
-
-## Sandra Oh
-
-## [Super Exclusive New Balances Are Coming to a City Near You](https://www.highsnobiety.com/p/new-balances-991v2-city-edition/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 10:02:39 GMT*
 
 
 ## Sandra Oh
@@ -5003,24 +5417,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Sandra Oh
 
-## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 16:35:34 GMT*
-
-
-## Sandra Oh
-
-## [ASICS' Leather Dad Shoe Is a New (Balance) Kind of Sneaker](https://www.highsnobiety.com/p/asics-gel-1130-leather-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 18:31:22 GMT*
-
-
-## Sandra Oh
-
 ## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -5030,11 +5426,38 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Sandra Oh
 
-## [Oui? Oui! Nike's Paris-Themed Forces Are Scarily Good     ](https://www.highsnobiety.com/p/nike-air-force-1-low-paris-sneakers-2024/)
+## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 05 Aug 2024 09:15:46 GMT*
+*Published on: Tue, 06 Aug 2024 08:45:34 GMT*
+
+
+## Sandra Oh
+
+## [ASICS' Leather Dad Shoe Is a New (Balance) Kind of Sneaker](https://www.highsnobiety.com/p/asics-gel-1130-leather-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:00:22 GMT*
+
+
+## Sandra Oh
+
+## [Everything SNKRheads Must Know for Nike SNKRS Day 2024](https://www.highsnobiety.com/p/nike-snkrs-day-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:10:02 GMT*
+
+
+## Sandra Oh
+
+## [Malls May Be Dead But Mall Brands Have Never Been More Alive](https://www.highsnobiety.com/p/mall-brand-renaissance-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:35:33 GMT*
 
 
 ## Sandra Oh
@@ -5046,13 +5469,22 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 05 Aug 2024 09:00:00 GMT*
 
 
-## Donald Trump
+## Sandra Oh
 
 ## [The Celebrity Beauty Boom Isn't Over Yet](https://www.highsnobiety.com/p/celebrity-beauty-brands-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Mon, 05 Aug 2024 09:20:00 GMT*
+
+
+## Sandra Oh
+
+## [Oui? Oui! Nike's Paris-Themed Forces Are Scarily Good     ](https://www.highsnobiety.com/p/nike-air-force-1-low-paris-sneakers-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 09:15:46 GMT*
 
 
 ## Donald Trump
@@ -5062,15 +5494,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Mon, 05 Aug 2024 09:46:18 GMT*
-
-
-## Donald Trump
-
-## [Super Exclusive New Balances Are Coming to a City Near You](https://www.highsnobiety.com/p/new-balances-991v2-city-edition/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 10:02:39 GMT*
 
 
 ## Donald Trump
@@ -5106,11 +5529,20 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Donald Trump
 
+## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 19:13:37 GMT*
+
+
+## Donald Trump
+
 ## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 05 Aug 2024 16:35:34 GMT*
+*Published on: Tue, 06 Aug 2024 08:45:34 GMT*
 
 
 ## Donald Trump
@@ -5119,16 +5551,43 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 05 Aug 2024 18:31:22 GMT*
+*Published on: Tue, 06 Aug 2024 09:00:22 GMT*
 
 
 ## Donald Trump
 
-## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
+## [Everything SNKRheads Must Know for Nike SNKRS Day 2024](https://www.highsnobiety.com/p/nike-snkrs-day-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 05 Aug 2024 19:13:37 GMT*
+*Published on: Tue, 06 Aug 2024 09:10:02 GMT*
+
+
+## Donald Trump
+
+## [Malls May Be Dead But Mall Brands Have Never Been More Alive](https://www.highsnobiety.com/p/mall-brand-renaissance-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:35:33 GMT*
+
+
+## Donald Trump
+
+## [adidas’ Secretly Good Sneaker Pushes the Samba Further Aside](https://www.highsnobiety.com/p/adidas-spezial-sneakers-black-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 09:00:00 GMT*
+
+
+## Donald Trump
+
+## [The Celebrity Beauty Boom Isn't Over Yet](https://www.highsnobiety.com/p/celebrity-beauty-brands-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 09:20:00 GMT*
 
 
 ## Donald Trump
@@ -5140,7 +5599,92 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 05 Aug 2024 09:15:46 GMT*
 
 
-## Donald Trump
+## Diddy
+
+## [Y-3’s Wonderfully Flat Sneaker is a Minimalist's Dream](https://www.highsnobiety.com/p/adidas-y3-japan-sneakers-fall-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 09:46:18 GMT*
+
+
+## Diddy
+
+## [Running Shoes for You to 'Ready, Set, Go' in Style  
+Nigel Sylvester's "Bike Air" Jordan Sneakers Are Back ( Better)](https://www.highsnobiety.com/p/stock-x-running-shoes/
+https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-grey-2024-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 11:00:00 GMT
+Mon, 05 Aug 2024 10:11:00 GMT*
+
+
+## Diddy
+
+## [Lacey Table Tennis Shoes? adidas’ New Sneaker Is One-Of-A-Kind](https://www.highsnobiety.com/p/adidas-naked-copenhagen-tischtennis-samba/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 14:24:12 GMT*
+
+
+## Diddy
+
+## [adidas' Wildly Underrated Hiking Shoe Enters Its Chunky Mule Era](https://www.highsnobiety.com/p/adidas-seeulater-mule-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 15:02:35 GMT*
+
+
+## Diddy
+
+## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 19:13:37 GMT*
+
+
+## Diddy
+
+## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 08:45:34 GMT*
+
+
+## Diddy
+
+## [ASICS' Leather Dad Shoe Is a New (Balance) Kind of Sneaker](https://www.highsnobiety.com/p/asics-gel-1130-leather-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:00:22 GMT*
+
+
+## Diddy
+
+## [Everything SNKRheads Must Know for Nike SNKRS Day 2024](https://www.highsnobiety.com/p/nike-snkrs-day-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:10:02 GMT*
+
+
+## Diddy
+
+## [Malls May Be Dead But Mall Brands Have Never Been More Alive](https://www.highsnobiety.com/p/mall-brand-renaissance-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:35:33 GMT*
+
+
+## Diddy
 
 ## [adidas’ Secretly Good Sneaker Pushes the Samba Further Aside](https://www.highsnobiety.com/p/adidas-spezial-sneakers-black-2024/)
 
@@ -5160,82 +5704,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Diddy
 
-## [Y-3’s Wonderfully Flat Sneaker is a Minimalist's Dream](https://www.highsnobiety.com/p/adidas-y3-japan-sneakers-fall-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 09:46:18 GMT*
-
-
-## Diddy
-
-## [Super Exclusive New Balances Are Coming to a City Near You](https://www.highsnobiety.com/p/new-balances-991v2-city-edition/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 10:02:39 GMT*
-
-
-## Diddy
-
-## [Running Shoes for You to 'Ready, Set, Go' in Style  
-Nigel Sylvester's "Bike Air" Jordan Sneakers Are Back ( Better)](https://www.highsnobiety.com/p/stock-x-running-shoes/
-https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-grey-2024-where-to-buy/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 11:00:00 GMT
-Mon, 05 Aug 2024 10:11:00 GMT*
-
-
-## Diddy
-
-## [Lacey Table Tennis Shoes? adidas’ New Sneaker Is One-Of-A-Kind](https://www.highsnobiety.com/p/adidas-naked-copenhagen-tischtennis-samba/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 14:24:12 GMT*
-
-
-## Diddy
-
-## [adidas' Wildly Underrated Hiking Shoe Enters Its Chunky Mule Era](https://www.highsnobiety.com/p/adidas-seeulater-mule-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 15:02:35 GMT*
-
-
-## Diddy
-
-## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 16:35:34 GMT*
-
-
-## Diddy
-
-## [ASICS' Leather Dad Shoe Is a New (Balance) Kind of Sneaker](https://www.highsnobiety.com/p/asics-gel-1130-leather-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 18:31:22 GMT*
-
-
-## Diddy
-
-## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 19:13:37 GMT*
-
-
-## Diddy
-
 ## [Oui? Oui! Nike's Paris-Themed Forces Are Scarily Good     ](https://www.highsnobiety.com/p/nike-air-force-1-low-paris-sneakers-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -5243,24 +5711,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 05 Aug 2024 09:15:46 GMT*
 
 
-## Diddy
-
-## [adidas’ Secretly Good Sneaker Pushes the Samba Further Aside](https://www.highsnobiety.com/p/adidas-spezial-sneakers-black-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 09:00:00 GMT*
-
-
-## City Girls
-
-## [The Celebrity Beauty Boom Isn't Over Yet](https://www.highsnobiety.com/p/celebrity-beauty-brands-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 09:20:00 GMT*
-
-
 ## City Girls
 
 ## [Y-3’s Wonderfully Flat Sneaker is a Minimalist's Dream](https://www.highsnobiety.com/p/adidas-y3-japan-sneakers-fall-2024/)
@@ -5268,15 +5718,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Mon, 05 Aug 2024 09:46:18 GMT*
-
-
-## City Girls
-
-## [Super Exclusive New Balances Are Coming to a City Near You](https://www.highsnobiety.com/p/new-balances-991v2-city-edition/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 10:02:39 GMT*
 
 
 ## City Girls
@@ -5312,24 +5753,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## City Girls
 
-## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 16:35:34 GMT*
-
-
-## City Girls
-
-## [ASICS' Leather Dad Shoe Is a New (Balance) Kind of Sneaker](https://www.highsnobiety.com/p/asics-gel-1130-leather-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 18:31:22 GMT*
-
-
-## City Girls
-
 ## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -5339,11 +5762,38 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## City Girls
 
-## [Oui? Oui! Nike's Paris-Themed Forces Are Scarily Good     ](https://www.highsnobiety.com/p/nike-air-force-1-low-paris-sneakers-2024/)
+## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 05 Aug 2024 09:15:46 GMT*
+*Published on: Tue, 06 Aug 2024 08:45:34 GMT*
+
+
+## City Girls
+
+## [ASICS' Leather Dad Shoe Is a New (Balance) Kind of Sneaker](https://www.highsnobiety.com/p/asics-gel-1130-leather-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:00:22 GMT*
+
+
+## City Girls
+
+## [Everything SNKRheads Must Know for Nike SNKRS Day 2024](https://www.highsnobiety.com/p/nike-snkrs-day-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:10:02 GMT*
+
+
+## City Girls
+
+## [Malls May Be Dead But Mall Brands Have Never Been More Alive](https://www.highsnobiety.com/p/mall-brand-renaissance-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:35:33 GMT*
 
 
 ## City Girls
@@ -5355,13 +5805,22 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 05 Aug 2024 09:00:00 GMT*
 
 
-## Chloe Bailey
+## City Girls
 
 ## [The Celebrity Beauty Boom Isn't Over Yet](https://www.highsnobiety.com/p/celebrity-beauty-brands-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Mon, 05 Aug 2024 09:20:00 GMT*
+
+
+## City Girls
+
+## [Oui? Oui! Nike's Paris-Themed Forces Are Scarily Good     ](https://www.highsnobiety.com/p/nike-air-force-1-low-paris-sneakers-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 09:15:46 GMT*
 
 
 ## Chloe Bailey
@@ -5371,15 +5830,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Mon, 05 Aug 2024 09:46:18 GMT*
-
-
-## Chloe Bailey
-
-## [Super Exclusive New Balances Are Coming to a City Near You](https://www.highsnobiety.com/p/new-balances-991v2-city-edition/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 10:02:39 GMT*
 
 
 ## Chloe Bailey
@@ -5415,11 +5865,20 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Chloe Bailey
 
+## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 19:13:37 GMT*
+
+
+## Chloe Bailey
+
 ## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 05 Aug 2024 16:35:34 GMT*
+*Published on: Tue, 06 Aug 2024 08:45:34 GMT*
 
 
 ## Chloe Bailey
@@ -5428,16 +5887,43 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 05 Aug 2024 18:31:22 GMT*
+*Published on: Tue, 06 Aug 2024 09:00:22 GMT*
 
 
 ## Chloe Bailey
 
-## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
+## [Everything SNKRheads Must Know for Nike SNKRS Day 2024](https://www.highsnobiety.com/p/nike-snkrs-day-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 05 Aug 2024 19:13:37 GMT*
+*Published on: Tue, 06 Aug 2024 09:10:02 GMT*
+
+
+## Chloe Bailey
+
+## [Malls May Be Dead But Mall Brands Have Never Been More Alive](https://www.highsnobiety.com/p/mall-brand-renaissance-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:35:33 GMT*
+
+
+## Chloe Bailey
+
+## [adidas’ Secretly Good Sneaker Pushes the Samba Further Aside](https://www.highsnobiety.com/p/adidas-spezial-sneakers-black-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 09:00:00 GMT*
+
+
+## Chloe Bailey
+
+## [The Celebrity Beauty Boom Isn't Over Yet](https://www.highsnobiety.com/p/celebrity-beauty-brands-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 09:20:00 GMT*
 
 
 ## Chloe Bailey
@@ -5449,7 +5935,92 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 05 Aug 2024 09:15:46 GMT*
 
 
-## Chloe Bailey
+## Charli D Amelio
+
+## [Y-3’s Wonderfully Flat Sneaker is a Minimalist's Dream](https://www.highsnobiety.com/p/adidas-y3-japan-sneakers-fall-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 09:46:18 GMT*
+
+
+## Charli D Amelio
+
+## [Running Shoes for You to 'Ready, Set, Go' in Style  
+Nigel Sylvester's "Bike Air" Jordan Sneakers Are Back ( Better)](https://www.highsnobiety.com/p/stock-x-running-shoes/
+https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-grey-2024-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 11:00:00 GMT
+Mon, 05 Aug 2024 10:11:00 GMT*
+
+
+## Charli D Amelio
+
+## [Lacey Table Tennis Shoes? adidas’ New Sneaker Is One-Of-A-Kind](https://www.highsnobiety.com/p/adidas-naked-copenhagen-tischtennis-samba/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 14:24:12 GMT*
+
+
+## Charli D Amelio
+
+## [adidas' Wildly Underrated Hiking Shoe Enters Its Chunky Mule Era](https://www.highsnobiety.com/p/adidas-seeulater-mule-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 15:02:35 GMT*
+
+
+## Charli D Amelio
+
+## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 19:13:37 GMT*
+
+
+## Charli D Amelio
+
+## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 08:45:34 GMT*
+
+
+## Charli D Amelio
+
+## [ASICS' Leather Dad Shoe Is a New (Balance) Kind of Sneaker](https://www.highsnobiety.com/p/asics-gel-1130-leather-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:00:22 GMT*
+
+
+## Charli D Amelio
+
+## [Everything SNKRheads Must Know for Nike SNKRS Day 2024](https://www.highsnobiety.com/p/nike-snkrs-day-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:10:02 GMT*
+
+
+## Charli D Amelio
+
+## [Malls May Be Dead But Mall Brands Have Never Been More Alive](https://www.highsnobiety.com/p/mall-brand-renaissance-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:35:33 GMT*
+
+
+## Charli D Amelio
 
 ## [adidas’ Secretly Good Sneaker Pushes the Samba Further Aside](https://www.highsnobiety.com/p/adidas-spezial-sneakers-black-2024/)
 
@@ -5469,82 +6040,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Charli D Amelio
 
-## [Y-3’s Wonderfully Flat Sneaker is a Minimalist's Dream](https://www.highsnobiety.com/p/adidas-y3-japan-sneakers-fall-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 09:46:18 GMT*
-
-
-## Charli D Amelio
-
-## [Super Exclusive New Balances Are Coming to a City Near You](https://www.highsnobiety.com/p/new-balances-991v2-city-edition/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 10:02:39 GMT*
-
-
-## Charli D Amelio
-
-## [Running Shoes for You to 'Ready, Set, Go' in Style  
-Nigel Sylvester's "Bike Air" Jordan Sneakers Are Back ( Better)](https://www.highsnobiety.com/p/stock-x-running-shoes/
-https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-grey-2024-where-to-buy/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 11:00:00 GMT
-Mon, 05 Aug 2024 10:11:00 GMT*
-
-
-## Charli D Amelio
-
-## [Lacey Table Tennis Shoes? adidas’ New Sneaker Is One-Of-A-Kind](https://www.highsnobiety.com/p/adidas-naked-copenhagen-tischtennis-samba/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 14:24:12 GMT*
-
-
-## Charli D Amelio
-
-## [adidas' Wildly Underrated Hiking Shoe Enters Its Chunky Mule Era](https://www.highsnobiety.com/p/adidas-seeulater-mule-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 15:02:35 GMT*
-
-
-## Charli D Amelio
-
-## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 16:35:34 GMT*
-
-
-## Charli D Amelio
-
-## [ASICS' Leather Dad Shoe Is a New (Balance) Kind of Sneaker](https://www.highsnobiety.com/p/asics-gel-1130-leather-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 18:31:22 GMT*
-
-
-## Charli D Amelio
-
-## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 19:13:37 GMT*
-
-
-## Charli D Amelio
-
 ## [Oui? Oui! Nike's Paris-Themed Forces Are Scarily Good     ](https://www.highsnobiety.com/p/nike-air-force-1-low-paris-sneakers-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -5552,24 +6047,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 05 Aug 2024 09:15:46 GMT*
 
 
-## Charli D Amelio
-
-## [adidas’ Secretly Good Sneaker Pushes the Samba Further Aside](https://www.highsnobiety.com/p/adidas-spezial-sneakers-black-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 09:00:00 GMT*
-
-
-## Cardi B
-
-## [The Celebrity Beauty Boom Isn't Over Yet](https://www.highsnobiety.com/p/celebrity-beauty-brands-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 09:20:00 GMT*
-
-
 ## Cardi B
 
 ## [Y-3’s Wonderfully Flat Sneaker is a Minimalist's Dream](https://www.highsnobiety.com/p/adidas-y3-japan-sneakers-fall-2024/)
@@ -5577,15 +6054,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Mon, 05 Aug 2024 09:46:18 GMT*
-
-
-## Cardi B
-
-## [Super Exclusive New Balances Are Coming to a City Near You](https://www.highsnobiety.com/p/new-balances-991v2-city-edition/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 10:02:39 GMT*
 
 
 ## Cardi B
@@ -5621,24 +6089,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Cardi B
 
-## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 16:35:34 GMT*
-
-
-## Cardi B
-
-## [ASICS' Leather Dad Shoe Is a New (Balance) Kind of Sneaker](https://www.highsnobiety.com/p/asics-gel-1130-leather-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 18:31:22 GMT*
-
-
-## Cardi B
-
 ## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -5648,11 +6098,38 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Cardi B
 
-## [Oui? Oui! Nike's Paris-Themed Forces Are Scarily Good     ](https://www.highsnobiety.com/p/nike-air-force-1-low-paris-sneakers-2024/)
+## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 05 Aug 2024 09:15:46 GMT*
+*Published on: Tue, 06 Aug 2024 08:45:34 GMT*
+
+
+## Cardi B
+
+## [ASICS' Leather Dad Shoe Is a New (Balance) Kind of Sneaker](https://www.highsnobiety.com/p/asics-gel-1130-leather-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:00:22 GMT*
+
+
+## Cardi B
+
+## [Everything SNKRheads Must Know for Nike SNKRS Day 2024](https://www.highsnobiety.com/p/nike-snkrs-day-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:10:02 GMT*
+
+
+## Cardi B
+
+## [Malls May Be Dead But Mall Brands Have Never Been More Alive](https://www.highsnobiety.com/p/mall-brand-renaissance-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:35:33 GMT*
 
 
 ## Cardi B
@@ -5664,13 +6141,22 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 05 Aug 2024 09:00:00 GMT*
 
 
-## Bryan Cranston
+## Cardi B
 
 ## [The Celebrity Beauty Boom Isn't Over Yet](https://www.highsnobiety.com/p/celebrity-beauty-brands-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Mon, 05 Aug 2024 09:20:00 GMT*
+
+
+## Cardi B
+
+## [Oui? Oui! Nike's Paris-Themed Forces Are Scarily Good     ](https://www.highsnobiety.com/p/nike-air-force-1-low-paris-sneakers-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 09:15:46 GMT*
 
 
 ## Bryan Cranston
@@ -5680,15 +6166,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Mon, 05 Aug 2024 09:46:18 GMT*
-
-
-## Bryan Cranston
-
-## [Super Exclusive New Balances Are Coming to a City Near You](https://www.highsnobiety.com/p/new-balances-991v2-city-edition/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 10:02:39 GMT*
 
 
 ## Bryan Cranston
@@ -5724,11 +6201,20 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Bryan Cranston
 
+## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 19:13:37 GMT*
+
+
+## Bryan Cranston
+
 ## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 05 Aug 2024 16:35:34 GMT*
+*Published on: Tue, 06 Aug 2024 08:45:34 GMT*
 
 
 ## Bryan Cranston
@@ -5737,16 +6223,43 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 05 Aug 2024 18:31:22 GMT*
+*Published on: Tue, 06 Aug 2024 09:00:22 GMT*
 
 
 ## Bryan Cranston
 
-## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
+## [Everything SNKRheads Must Know for Nike SNKRS Day 2024](https://www.highsnobiety.com/p/nike-snkrs-day-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 05 Aug 2024 19:13:37 GMT*
+*Published on: Tue, 06 Aug 2024 09:10:02 GMT*
+
+
+## Bryan Cranston
+
+## [Malls May Be Dead But Mall Brands Have Never Been More Alive](https://www.highsnobiety.com/p/mall-brand-renaissance-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:35:33 GMT*
+
+
+## Bryan Cranston
+
+## [adidas’ Secretly Good Sneaker Pushes the Samba Further Aside](https://www.highsnobiety.com/p/adidas-spezial-sneakers-black-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 09:00:00 GMT*
+
+
+## Bryan Cranston
+
+## [The Celebrity Beauty Boom Isn't Over Yet](https://www.highsnobiety.com/p/celebrity-beauty-brands-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 09:20:00 GMT*
 
 
 ## Bryan Cranston
@@ -5758,7 +6271,92 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 05 Aug 2024 09:15:46 GMT*
 
 
-## Bryan Cranston
+## Brielle Biermann
+
+## [Y-3’s Wonderfully Flat Sneaker is a Minimalist's Dream](https://www.highsnobiety.com/p/adidas-y3-japan-sneakers-fall-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 09:46:18 GMT*
+
+
+## Brielle Biermann
+
+## [Running Shoes for You to 'Ready, Set, Go' in Style  
+Nigel Sylvester's "Bike Air" Jordan Sneakers Are Back ( Better)](https://www.highsnobiety.com/p/stock-x-running-shoes/
+https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-grey-2024-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 11:00:00 GMT
+Mon, 05 Aug 2024 10:11:00 GMT*
+
+
+## Brielle Biermann
+
+## [Lacey Table Tennis Shoes? adidas’ New Sneaker Is One-Of-A-Kind](https://www.highsnobiety.com/p/adidas-naked-copenhagen-tischtennis-samba/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 14:24:12 GMT*
+
+
+## Brielle Biermann
+
+## [adidas' Wildly Underrated Hiking Shoe Enters Its Chunky Mule Era](https://www.highsnobiety.com/p/adidas-seeulater-mule-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 15:02:35 GMT*
+
+
+## Brielle Biermann
+
+## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 19:13:37 GMT*
+
+
+## Brielle Biermann
+
+## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 08:45:34 GMT*
+
+
+## Brielle Biermann
+
+## [ASICS' Leather Dad Shoe Is a New (Balance) Kind of Sneaker](https://www.highsnobiety.com/p/asics-gel-1130-leather-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:00:22 GMT*
+
+
+## Brielle Biermann
+
+## [Everything SNKRheads Must Know for Nike SNKRS Day 2024](https://www.highsnobiety.com/p/nike-snkrs-day-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:10:02 GMT*
+
+
+## Brielle Biermann
+
+## [Malls May Be Dead But Mall Brands Have Never Been More Alive](https://www.highsnobiety.com/p/mall-brand-renaissance-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:35:33 GMT*
+
+
+## Brielle Biermann
 
 ## [adidas’ Secretly Good Sneaker Pushes the Samba Further Aside](https://www.highsnobiety.com/p/adidas-spezial-sneakers-black-2024/)
 
@@ -5778,82 +6376,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Brielle Biermann
 
-## [Y-3’s Wonderfully Flat Sneaker is a Minimalist's Dream](https://www.highsnobiety.com/p/adidas-y3-japan-sneakers-fall-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 09:46:18 GMT*
-
-
-## Brielle Biermann
-
-## [Super Exclusive New Balances Are Coming to a City Near You](https://www.highsnobiety.com/p/new-balances-991v2-city-edition/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 10:02:39 GMT*
-
-
-## Brielle Biermann
-
-## [Running Shoes for You to 'Ready, Set, Go' in Style  
-Nigel Sylvester's "Bike Air" Jordan Sneakers Are Back ( Better)](https://www.highsnobiety.com/p/stock-x-running-shoes/
-https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-grey-2024-where-to-buy/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 11:00:00 GMT
-Mon, 05 Aug 2024 10:11:00 GMT*
-
-
-## Brielle Biermann
-
-## [Lacey Table Tennis Shoes? adidas’ New Sneaker Is One-Of-A-Kind](https://www.highsnobiety.com/p/adidas-naked-copenhagen-tischtennis-samba/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 14:24:12 GMT*
-
-
-## Brielle Biermann
-
-## [adidas' Wildly Underrated Hiking Shoe Enters Its Chunky Mule Era](https://www.highsnobiety.com/p/adidas-seeulater-mule-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 15:02:35 GMT*
-
-
-## Brielle Biermann
-
-## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 16:35:34 GMT*
-
-
-## Brielle Biermann
-
-## [ASICS' Leather Dad Shoe Is a New (Balance) Kind of Sneaker](https://www.highsnobiety.com/p/asics-gel-1130-leather-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 18:31:22 GMT*
-
-
-## Brielle Biermann
-
-## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 19:13:37 GMT*
-
-
-## Brielle Biermann
-
 ## [Oui? Oui! Nike's Paris-Themed Forces Are Scarily Good     ](https://www.highsnobiety.com/p/nike-air-force-1-low-paris-sneakers-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -5861,24 +6383,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 05 Aug 2024 09:15:46 GMT*
 
 
-## Brielle Biermann
-
-## [adidas’ Secretly Good Sneaker Pushes the Samba Further Aside](https://www.highsnobiety.com/p/adidas-spezial-sneakers-black-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 09:00:00 GMT*
-
-
-## Dua Lipa
-
-## [The Celebrity Beauty Boom Isn't Over Yet](https://www.highsnobiety.com/p/celebrity-beauty-brands-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 09:20:00 GMT*
-
-
 ## Dua Lipa
 
 ## [Y-3’s Wonderfully Flat Sneaker is a Minimalist's Dream](https://www.highsnobiety.com/p/adidas-y3-japan-sneakers-fall-2024/)
@@ -5886,15 +6390,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Mon, 05 Aug 2024 09:46:18 GMT*
-
-
-## Dua Lipa
-
-## [Super Exclusive New Balances Are Coming to a City Near You](https://www.highsnobiety.com/p/new-balances-991v2-city-edition/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 10:02:39 GMT*
 
 
 ## Dua Lipa
@@ -5930,24 +6425,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Dua Lipa
 
-## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 16:35:34 GMT*
-
-
-## Dua Lipa
-
-## [ASICS' Leather Dad Shoe Is a New (Balance) Kind of Sneaker](https://www.highsnobiety.com/p/asics-gel-1130-leather-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 18:31:22 GMT*
-
-
-## Dua Lipa
-
 ## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -5957,11 +6434,38 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Dua Lipa
 
-## [Oui? Oui! Nike's Paris-Themed Forces Are Scarily Good     ](https://www.highsnobiety.com/p/nike-air-force-1-low-paris-sneakers-2024/)
+## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 05 Aug 2024 09:15:46 GMT*
+*Published on: Tue, 06 Aug 2024 08:45:34 GMT*
+
+
+## Dua Lipa
+
+## [ASICS' Leather Dad Shoe Is a New (Balance) Kind of Sneaker](https://www.highsnobiety.com/p/asics-gel-1130-leather-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:00:22 GMT*
+
+
+## Dua Lipa
+
+## [Everything SNKRheads Must Know for Nike SNKRS Day 2024](https://www.highsnobiety.com/p/nike-snkrs-day-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:10:02 GMT*
+
+
+## Dua Lipa
+
+## [Malls May Be Dead But Mall Brands Have Never Been More Alive](https://www.highsnobiety.com/p/mall-brand-renaissance-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:35:33 GMT*
 
 
 ## Dua Lipa
@@ -5973,13 +6477,22 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 05 Aug 2024 09:00:00 GMT*
 
 
-## Drake
+## Dua Lipa
 
 ## [The Celebrity Beauty Boom Isn't Over Yet](https://www.highsnobiety.com/p/celebrity-beauty-brands-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Mon, 05 Aug 2024 09:20:00 GMT*
+
+
+## Dua Lipa
+
+## [Oui? Oui! Nike's Paris-Themed Forces Are Scarily Good     ](https://www.highsnobiety.com/p/nike-air-force-1-low-paris-sneakers-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 09:15:46 GMT*
 
 
 ## Drake
@@ -5989,15 +6502,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Mon, 05 Aug 2024 09:46:18 GMT*
-
-
-## Drake
-
-## [Super Exclusive New Balances Are Coming to a City Near You](https://www.highsnobiety.com/p/new-balances-991v2-city-edition/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 10:02:39 GMT*
 
 
 ## Drake
@@ -6033,11 +6537,20 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Drake
 
+## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 19:13:37 GMT*
+
+
+## Drake
+
 ## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 05 Aug 2024 16:35:34 GMT*
+*Published on: Tue, 06 Aug 2024 08:45:34 GMT*
 
 
 ## Drake
@@ -6046,16 +6559,43 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 05 Aug 2024 18:31:22 GMT*
+*Published on: Tue, 06 Aug 2024 09:00:22 GMT*
 
 
 ## Drake
 
-## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
+## [Everything SNKRheads Must Know for Nike SNKRS Day 2024](https://www.highsnobiety.com/p/nike-snkrs-day-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 05 Aug 2024 19:13:37 GMT*
+*Published on: Tue, 06 Aug 2024 09:10:02 GMT*
+
+
+## Drake
+
+## [Malls May Be Dead But Mall Brands Have Never Been More Alive](https://www.highsnobiety.com/p/mall-brand-renaissance-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:35:33 GMT*
+
+
+## Drake
+
+## [adidas’ Secretly Good Sneaker Pushes the Samba Further Aside](https://www.highsnobiety.com/p/adidas-spezial-sneakers-black-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 09:00:00 GMT*
+
+
+## Drake
+
+## [The Celebrity Beauty Boom Isn't Over Yet](https://www.highsnobiety.com/p/celebrity-beauty-brands-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 09:20:00 GMT*
 
 
 ## Drake
@@ -6067,7 +6607,92 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 05 Aug 2024 09:15:46 GMT*
 
 
-## Drake
+## Jenner
+
+## [Y-3’s Wonderfully Flat Sneaker is a Minimalist's Dream](https://www.highsnobiety.com/p/adidas-y3-japan-sneakers-fall-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 09:46:18 GMT*
+
+
+## Jenner
+
+## [Running Shoes for You to 'Ready, Set, Go' in Style  
+Nigel Sylvester's "Bike Air" Jordan Sneakers Are Back ( Better)](https://www.highsnobiety.com/p/stock-x-running-shoes/
+https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-grey-2024-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 11:00:00 GMT
+Mon, 05 Aug 2024 10:11:00 GMT*
+
+
+## Jenner
+
+## [Lacey Table Tennis Shoes? adidas’ New Sneaker Is One-Of-A-Kind](https://www.highsnobiety.com/p/adidas-naked-copenhagen-tischtennis-samba/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 14:24:12 GMT*
+
+
+## Jenner
+
+## [adidas' Wildly Underrated Hiking Shoe Enters Its Chunky Mule Era](https://www.highsnobiety.com/p/adidas-seeulater-mule-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 15:02:35 GMT*
+
+
+## Jenner
+
+## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 19:13:37 GMT*
+
+
+## Jenner
+
+## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 08:45:34 GMT*
+
+
+## Jenner
+
+## [ASICS' Leather Dad Shoe Is a New (Balance) Kind of Sneaker](https://www.highsnobiety.com/p/asics-gel-1130-leather-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:00:22 GMT*
+
+
+## Jenner
+
+## [Everything SNKRheads Must Know for Nike SNKRS Day 2024](https://www.highsnobiety.com/p/nike-snkrs-day-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:10:02 GMT*
+
+
+## Jenner
+
+## [Malls May Be Dead But Mall Brands Have Never Been More Alive](https://www.highsnobiety.com/p/mall-brand-renaissance-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:35:33 GMT*
+
+
+## Jenner
 
 ## [adidas’ Secretly Good Sneaker Pushes the Samba Further Aside](https://www.highsnobiety.com/p/adidas-spezial-sneakers-black-2024/)
 
@@ -6087,82 +6712,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Jenner
 
-## [Y-3’s Wonderfully Flat Sneaker is a Minimalist's Dream](https://www.highsnobiety.com/p/adidas-y3-japan-sneakers-fall-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 09:46:18 GMT*
-
-
-## Jenner
-
-## [Super Exclusive New Balances Are Coming to a City Near You](https://www.highsnobiety.com/p/new-balances-991v2-city-edition/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 10:02:39 GMT*
-
-
-## Jenner
-
-## [Running Shoes for You to 'Ready, Set, Go' in Style  
-Nigel Sylvester's "Bike Air" Jordan Sneakers Are Back ( Better)](https://www.highsnobiety.com/p/stock-x-running-shoes/
-https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-grey-2024-where-to-buy/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 11:00:00 GMT
-Mon, 05 Aug 2024 10:11:00 GMT*
-
-
-## Jenner
-
-## [Lacey Table Tennis Shoes? adidas’ New Sneaker Is One-Of-A-Kind](https://www.highsnobiety.com/p/adidas-naked-copenhagen-tischtennis-samba/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 14:24:12 GMT*
-
-
-## Jenner
-
-## [adidas' Wildly Underrated Hiking Shoe Enters Its Chunky Mule Era](https://www.highsnobiety.com/p/adidas-seeulater-mule-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 15:02:35 GMT*
-
-
-## Jenner
-
-## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 16:35:34 GMT*
-
-
-## Jenner
-
-## [ASICS' Leather Dad Shoe Is a New (Balance) Kind of Sneaker](https://www.highsnobiety.com/p/asics-gel-1130-leather-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 18:31:22 GMT*
-
-
-## Jenner
-
-## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 19:13:37 GMT*
-
-
-## Jenner
-
 ## [Oui? Oui! Nike's Paris-Themed Forces Are Scarily Good     ](https://www.highsnobiety.com/p/nike-air-force-1-low-paris-sneakers-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -6170,24 +6719,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 05 Aug 2024 09:15:46 GMT*
 
 
-## Jenner
-
-## [adidas’ Secretly Good Sneaker Pushes the Samba Further Aside](https://www.highsnobiety.com/p/adidas-spezial-sneakers-black-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 09:00:00 GMT*
-
-
-## J. Cole
-
-## [The Celebrity Beauty Boom Isn't Over Yet](https://www.highsnobiety.com/p/celebrity-beauty-brands-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 09:20:00 GMT*
-
-
 ## J. Cole
 
 ## [Y-3’s Wonderfully Flat Sneaker is a Minimalist's Dream](https://www.highsnobiety.com/p/adidas-y3-japan-sneakers-fall-2024/)
@@ -6195,15 +6726,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Mon, 05 Aug 2024 09:46:18 GMT*
-
-
-## J. Cole
-
-## [Super Exclusive New Balances Are Coming to a City Near You](https://www.highsnobiety.com/p/new-balances-991v2-city-edition/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 10:02:39 GMT*
 
 
 ## J. Cole
@@ -6239,24 +6761,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## J. Cole
 
-## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 16:35:34 GMT*
-
-
-## J. Cole
-
-## [ASICS' Leather Dad Shoe Is a New (Balance) Kind of Sneaker](https://www.highsnobiety.com/p/asics-gel-1130-leather-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 18:31:22 GMT*
-
-
-## J. Cole
-
 ## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -6266,11 +6770,38 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## J. Cole
 
-## [Oui? Oui! Nike's Paris-Themed Forces Are Scarily Good     ](https://www.highsnobiety.com/p/nike-air-force-1-low-paris-sneakers-2024/)
+## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 05 Aug 2024 09:15:46 GMT*
+*Published on: Tue, 06 Aug 2024 08:45:34 GMT*
+
+
+## J. Cole
+
+## [ASICS' Leather Dad Shoe Is a New (Balance) Kind of Sneaker](https://www.highsnobiety.com/p/asics-gel-1130-leather-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:00:22 GMT*
+
+
+## J. Cole
+
+## [Everything SNKRheads Must Know for Nike SNKRS Day 2024](https://www.highsnobiety.com/p/nike-snkrs-day-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:10:02 GMT*
+
+
+## J. Cole
+
+## [Malls May Be Dead But Mall Brands Have Never Been More Alive](https://www.highsnobiety.com/p/mall-brand-renaissance-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:35:33 GMT*
 
 
 ## J. Cole
@@ -6282,13 +6813,22 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 05 Aug 2024 09:00:00 GMT*
 
 
-## Jerrod Carmichael
+## J. Cole
 
 ## [The Celebrity Beauty Boom Isn't Over Yet](https://www.highsnobiety.com/p/celebrity-beauty-brands-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Mon, 05 Aug 2024 09:20:00 GMT*
+
+
+## J. Cole
+
+## [Oui? Oui! Nike's Paris-Themed Forces Are Scarily Good     ](https://www.highsnobiety.com/p/nike-air-force-1-low-paris-sneakers-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 09:15:46 GMT*
 
 
 ## Jerrod Carmichael
@@ -6298,15 +6838,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Mon, 05 Aug 2024 09:46:18 GMT*
-
-
-## Jerrod Carmichael
-
-## [Super Exclusive New Balances Are Coming to a City Near You](https://www.highsnobiety.com/p/new-balances-991v2-city-edition/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 10:02:39 GMT*
 
 
 ## Jerrod Carmichael
@@ -6342,11 +6873,20 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Jerrod Carmichael
 
+## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 19:13:37 GMT*
+
+
+## Jerrod Carmichael
+
 ## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 05 Aug 2024 16:35:34 GMT*
+*Published on: Tue, 06 Aug 2024 08:45:34 GMT*
 
 
 ## Jerrod Carmichael
@@ -6355,16 +6895,43 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 05 Aug 2024 18:31:22 GMT*
+*Published on: Tue, 06 Aug 2024 09:00:22 GMT*
 
 
 ## Jerrod Carmichael
 
-## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
+## [Everything SNKRheads Must Know for Nike SNKRS Day 2024](https://www.highsnobiety.com/p/nike-snkrs-day-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 05 Aug 2024 19:13:37 GMT*
+*Published on: Tue, 06 Aug 2024 09:10:02 GMT*
+
+
+## Jerrod Carmichael
+
+## [Malls May Be Dead But Mall Brands Have Never Been More Alive](https://www.highsnobiety.com/p/mall-brand-renaissance-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:35:33 GMT*
+
+
+## Jerrod Carmichael
+
+## [adidas’ Secretly Good Sneaker Pushes the Samba Further Aside](https://www.highsnobiety.com/p/adidas-spezial-sneakers-black-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 09:00:00 GMT*
+
+
+## Jerrod Carmichael
+
+## [The Celebrity Beauty Boom Isn't Over Yet](https://www.highsnobiety.com/p/celebrity-beauty-brands-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 09:20:00 GMT*
 
 
 ## Jerrod Carmichael
@@ -6376,7 +6943,92 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 05 Aug 2024 09:15:46 GMT*
 
 
-## Jerrod Carmichael
+## Jennifer Lawrence
+
+## [Y-3’s Wonderfully Flat Sneaker is a Minimalist's Dream](https://www.highsnobiety.com/p/adidas-y3-japan-sneakers-fall-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 09:46:18 GMT*
+
+
+## Jennifer Lawrence
+
+## [Running Shoes for You to 'Ready, Set, Go' in Style  
+Nigel Sylvester's "Bike Air" Jordan Sneakers Are Back ( Better)](https://www.highsnobiety.com/p/stock-x-running-shoes/
+https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-grey-2024-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 11:00:00 GMT
+Mon, 05 Aug 2024 10:11:00 GMT*
+
+
+## Jennifer Lawrence
+
+## [Lacey Table Tennis Shoes? adidas’ New Sneaker Is One-Of-A-Kind](https://www.highsnobiety.com/p/adidas-naked-copenhagen-tischtennis-samba/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 14:24:12 GMT*
+
+
+## Jennifer Lawrence
+
+## [adidas' Wildly Underrated Hiking Shoe Enters Its Chunky Mule Era](https://www.highsnobiety.com/p/adidas-seeulater-mule-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 15:02:35 GMT*
+
+
+## Jennifer Lawrence
+
+## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 19:13:37 GMT*
+
+
+## Jennifer Lawrence
+
+## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 08:45:34 GMT*
+
+
+## Jennifer Lawrence
+
+## [ASICS' Leather Dad Shoe Is a New (Balance) Kind of Sneaker](https://www.highsnobiety.com/p/asics-gel-1130-leather-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:00:22 GMT*
+
+
+## Jennifer Lawrence
+
+## [Everything SNKRheads Must Know for Nike SNKRS Day 2024](https://www.highsnobiety.com/p/nike-snkrs-day-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:10:02 GMT*
+
+
+## Jennifer Lawrence
+
+## [Malls May Be Dead But Mall Brands Have Never Been More Alive](https://www.highsnobiety.com/p/mall-brand-renaissance-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:35:33 GMT*
+
+
+## Jennifer Lawrence
 
 ## [adidas’ Secretly Good Sneaker Pushes the Samba Further Aside](https://www.highsnobiety.com/p/adidas-spezial-sneakers-black-2024/)
 
@@ -6396,82 +7048,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Jennifer Lawrence
 
-## [Y-3’s Wonderfully Flat Sneaker is a Minimalist's Dream](https://www.highsnobiety.com/p/adidas-y3-japan-sneakers-fall-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 09:46:18 GMT*
-
-
-## Jennifer Lawrence
-
-## [Super Exclusive New Balances Are Coming to a City Near You](https://www.highsnobiety.com/p/new-balances-991v2-city-edition/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 10:02:39 GMT*
-
-
-## Jennifer Lawrence
-
-## [Running Shoes for You to 'Ready, Set, Go' in Style  
-Nigel Sylvester's "Bike Air" Jordan Sneakers Are Back ( Better)](https://www.highsnobiety.com/p/stock-x-running-shoes/
-https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-grey-2024-where-to-buy/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 11:00:00 GMT
-Mon, 05 Aug 2024 10:11:00 GMT*
-
-
-## Jennifer Lawrence
-
-## [Lacey Table Tennis Shoes? adidas’ New Sneaker Is One-Of-A-Kind](https://www.highsnobiety.com/p/adidas-naked-copenhagen-tischtennis-samba/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 14:24:12 GMT*
-
-
-## Jennifer Lawrence
-
-## [adidas' Wildly Underrated Hiking Shoe Enters Its Chunky Mule Era](https://www.highsnobiety.com/p/adidas-seeulater-mule-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 15:02:35 GMT*
-
-
-## Jennifer Lawrence
-
-## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 16:35:34 GMT*
-
-
-## Jennifer Lawrence
-
-## [ASICS' Leather Dad Shoe Is a New (Balance) Kind of Sneaker](https://www.highsnobiety.com/p/asics-gel-1130-leather-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 18:31:22 GMT*
-
-
-## Jennifer Lawrence
-
-## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 19:13:37 GMT*
-
-
-## Jennifer Lawrence
-
 ## [Oui? Oui! Nike's Paris-Themed Forces Are Scarily Good     ](https://www.highsnobiety.com/p/nike-air-force-1-low-paris-sneakers-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -6479,24 +7055,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 05 Aug 2024 09:15:46 GMT*
 
 
-## Jennifer Lawrence
-
-## [adidas’ Secretly Good Sneaker Pushes the Samba Further Aside](https://www.highsnobiety.com/p/adidas-spezial-sneakers-black-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 09:00:00 GMT*
-
-
-## Joe Biden
-
-## [The Celebrity Beauty Boom Isn't Over Yet](https://www.highsnobiety.com/p/celebrity-beauty-brands-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 09:20:00 GMT*
-
-
 ## Joe Biden
 
 ## [Y-3’s Wonderfully Flat Sneaker is a Minimalist's Dream](https://www.highsnobiety.com/p/adidas-y3-japan-sneakers-fall-2024/)
@@ -6504,15 +7062,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Mon, 05 Aug 2024 09:46:18 GMT*
-
-
-## Joe Biden
-
-## [Super Exclusive New Balances Are Coming to a City Near You](https://www.highsnobiety.com/p/new-balances-991v2-city-edition/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 10:02:39 GMT*
 
 
 ## Joe Biden
@@ -6548,24 +7097,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Joe Biden
 
-## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 16:35:34 GMT*
-
-
-## Joe Biden
-
-## [ASICS' Leather Dad Shoe Is a New (Balance) Kind of Sneaker](https://www.highsnobiety.com/p/asics-gel-1130-leather-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 18:31:22 GMT*
-
-
-## Joe Biden
-
 ## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -6575,11 +7106,38 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Joe Biden
 
-## [Oui? Oui! Nike's Paris-Themed Forces Are Scarily Good     ](https://www.highsnobiety.com/p/nike-air-force-1-low-paris-sneakers-2024/)
+## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 05 Aug 2024 09:15:46 GMT*
+*Published on: Tue, 06 Aug 2024 08:45:34 GMT*
+
+
+## Joe Biden
+
+## [ASICS' Leather Dad Shoe Is a New (Balance) Kind of Sneaker](https://www.highsnobiety.com/p/asics-gel-1130-leather-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:00:22 GMT*
+
+
+## Joe Biden
+
+## [Everything SNKRheads Must Know for Nike SNKRS Day 2024](https://www.highsnobiety.com/p/nike-snkrs-day-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:10:02 GMT*
+
+
+## Joe Biden
+
+## [Malls May Be Dead But Mall Brands Have Never Been More Alive](https://www.highsnobiety.com/p/mall-brand-renaissance-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:35:33 GMT*
 
 
 ## Joe Biden
@@ -6591,13 +7149,22 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 05 Aug 2024 09:00:00 GMT*
 
 
-## J.K. Simmons
+## Joe Biden
 
 ## [The Celebrity Beauty Boom Isn't Over Yet](https://www.highsnobiety.com/p/celebrity-beauty-brands-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Mon, 05 Aug 2024 09:20:00 GMT*
+
+
+## Joe Biden
+
+## [Oui? Oui! Nike's Paris-Themed Forces Are Scarily Good     ](https://www.highsnobiety.com/p/nike-air-force-1-low-paris-sneakers-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 09:15:46 GMT*
 
 
 ## J.K. Simmons
@@ -6607,15 +7174,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Mon, 05 Aug 2024 09:46:18 GMT*
-
-
-## J.K. Simmons
-
-## [Super Exclusive New Balances Are Coming to a City Near You](https://www.highsnobiety.com/p/new-balances-991v2-city-edition/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 10:02:39 GMT*
 
 
 ## J.K. Simmons
@@ -6651,11 +7209,20 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## J.K. Simmons
 
+## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 19:13:37 GMT*
+
+
+## J.K. Simmons
+
 ## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 05 Aug 2024 16:35:34 GMT*
+*Published on: Tue, 06 Aug 2024 08:45:34 GMT*
 
 
 ## J.K. Simmons
@@ -6664,16 +7231,43 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 05 Aug 2024 18:31:22 GMT*
+*Published on: Tue, 06 Aug 2024 09:00:22 GMT*
 
 
 ## J.K. Simmons
 
-## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
+## [Everything SNKRheads Must Know for Nike SNKRS Day 2024](https://www.highsnobiety.com/p/nike-snkrs-day-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 05 Aug 2024 19:13:37 GMT*
+*Published on: Tue, 06 Aug 2024 09:10:02 GMT*
+
+
+## J.K. Simmons
+
+## [Malls May Be Dead But Mall Brands Have Never Been More Alive](https://www.highsnobiety.com/p/mall-brand-renaissance-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:35:33 GMT*
+
+
+## J.K. Simmons
+
+## [adidas’ Secretly Good Sneaker Pushes the Samba Further Aside](https://www.highsnobiety.com/p/adidas-spezial-sneakers-black-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 09:00:00 GMT*
+
+
+## J.K. Simmons
+
+## [The Celebrity Beauty Boom Isn't Over Yet](https://www.highsnobiety.com/p/celebrity-beauty-brands-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 09:20:00 GMT*
 
 
 ## J.K. Simmons
@@ -6685,7 +7279,92 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 05 Aug 2024 09:15:46 GMT*
 
 
-## J.K. Simmons
+## Kamala Harris
+
+## [Y-3’s Wonderfully Flat Sneaker is a Minimalist's Dream](https://www.highsnobiety.com/p/adidas-y3-japan-sneakers-fall-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 09:46:18 GMT*
+
+
+## Kamala Harris
+
+## [Running Shoes for You to 'Ready, Set, Go' in Style  
+Nigel Sylvester's "Bike Air" Jordan Sneakers Are Back ( Better)](https://www.highsnobiety.com/p/stock-x-running-shoes/
+https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-grey-2024-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 11:00:00 GMT
+Mon, 05 Aug 2024 10:11:00 GMT*
+
+
+## Kamala Harris
+
+## [Lacey Table Tennis Shoes? adidas’ New Sneaker Is One-Of-A-Kind](https://www.highsnobiety.com/p/adidas-naked-copenhagen-tischtennis-samba/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 14:24:12 GMT*
+
+
+## Kamala Harris
+
+## [adidas' Wildly Underrated Hiking Shoe Enters Its Chunky Mule Era](https://www.highsnobiety.com/p/adidas-seeulater-mule-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 15:02:35 GMT*
+
+
+## Kamala Harris
+
+## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 19:13:37 GMT*
+
+
+## Kamala Harris
+
+## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 08:45:34 GMT*
+
+
+## Kamala Harris
+
+## [ASICS' Leather Dad Shoe Is a New (Balance) Kind of Sneaker](https://www.highsnobiety.com/p/asics-gel-1130-leather-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:00:22 GMT*
+
+
+## Kamala Harris
+
+## [Everything SNKRheads Must Know for Nike SNKRS Day 2024](https://www.highsnobiety.com/p/nike-snkrs-day-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:10:02 GMT*
+
+
+## Kamala Harris
+
+## [Malls May Be Dead But Mall Brands Have Never Been More Alive](https://www.highsnobiety.com/p/mall-brand-renaissance-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:35:33 GMT*
+
+
+## Kamala Harris
 
 ## [adidas’ Secretly Good Sneaker Pushes the Samba Further Aside](https://www.highsnobiety.com/p/adidas-spezial-sneakers-black-2024/)
 
@@ -6705,82 +7384,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Kamala Harris
 
-## [Y-3’s Wonderfully Flat Sneaker is a Minimalist's Dream](https://www.highsnobiety.com/p/adidas-y3-japan-sneakers-fall-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 09:46:18 GMT*
-
-
-## Kamala Harris
-
-## [Super Exclusive New Balances Are Coming to a City Near You](https://www.highsnobiety.com/p/new-balances-991v2-city-edition/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 10:02:39 GMT*
-
-
-## Kamala Harris
-
-## [Running Shoes for You to 'Ready, Set, Go' in Style  
-Nigel Sylvester's "Bike Air" Jordan Sneakers Are Back ( Better)](https://www.highsnobiety.com/p/stock-x-running-shoes/
-https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-grey-2024-where-to-buy/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 11:00:00 GMT
-Mon, 05 Aug 2024 10:11:00 GMT*
-
-
-## Kamala Harris
-
-## [Lacey Table Tennis Shoes? adidas’ New Sneaker Is One-Of-A-Kind](https://www.highsnobiety.com/p/adidas-naked-copenhagen-tischtennis-samba/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 14:24:12 GMT*
-
-
-## Kamala Harris
-
-## [adidas' Wildly Underrated Hiking Shoe Enters Its Chunky Mule Era](https://www.highsnobiety.com/p/adidas-seeulater-mule-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 15:02:35 GMT*
-
-
-## Kamala Harris
-
-## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 16:35:34 GMT*
-
-
-## Kamala Harris
-
-## [ASICS' Leather Dad Shoe Is a New (Balance) Kind of Sneaker](https://www.highsnobiety.com/p/asics-gel-1130-leather-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 18:31:22 GMT*
-
-
-## Kamala Harris
-
-## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 19:13:37 GMT*
-
-
-## Kamala Harris
-
 ## [Oui? Oui! Nike's Paris-Themed Forces Are Scarily Good     ](https://www.highsnobiety.com/p/nike-air-force-1-low-paris-sneakers-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -6788,24 +7391,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 05 Aug 2024 09:15:46 GMT*
 
 
-## Kamala Harris
-
-## [adidas’ Secretly Good Sneaker Pushes the Samba Further Aside](https://www.highsnobiety.com/p/adidas-spezial-sneakers-black-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 09:00:00 GMT*
-
-
-## John C Reilly
-
-## [The Celebrity Beauty Boom Isn't Over Yet](https://www.highsnobiety.com/p/celebrity-beauty-brands-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 09:20:00 GMT*
-
-
 ## John C Reilly
 
 ## [Y-3’s Wonderfully Flat Sneaker is a Minimalist's Dream](https://www.highsnobiety.com/p/adidas-y3-japan-sneakers-fall-2024/)
@@ -6813,15 +7398,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Mon, 05 Aug 2024 09:46:18 GMT*
-
-
-## John C Reilly
-
-## [Super Exclusive New Balances Are Coming to a City Near You](https://www.highsnobiety.com/p/new-balances-991v2-city-edition/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 10:02:39 GMT*
 
 
 ## John C Reilly
@@ -6857,24 +7433,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## John C Reilly
 
-## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 16:35:34 GMT*
-
-
-## John C Reilly
-
-## [ASICS' Leather Dad Shoe Is a New (Balance) Kind of Sneaker](https://www.highsnobiety.com/p/asics-gel-1130-leather-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 18:31:22 GMT*
-
-
-## John C Reilly
-
 ## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -6884,11 +7442,38 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## John C Reilly
 
-## [Oui? Oui! Nike's Paris-Themed Forces Are Scarily Good     ](https://www.highsnobiety.com/p/nike-air-force-1-low-paris-sneakers-2024/)
+## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 05 Aug 2024 09:15:46 GMT*
+*Published on: Tue, 06 Aug 2024 08:45:34 GMT*
+
+
+## John C Reilly
+
+## [ASICS' Leather Dad Shoe Is a New (Balance) Kind of Sneaker](https://www.highsnobiety.com/p/asics-gel-1130-leather-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:00:22 GMT*
+
+
+## John C Reilly
+
+## [Everything SNKRheads Must Know for Nike SNKRS Day 2024](https://www.highsnobiety.com/p/nike-snkrs-day-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:10:02 GMT*
+
+
+## John C Reilly
+
+## [Malls May Be Dead But Mall Brands Have Never Been More Alive](https://www.highsnobiety.com/p/mall-brand-renaissance-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:35:33 GMT*
 
 
 ## John C Reilly
@@ -6900,13 +7485,22 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 05 Aug 2024 09:00:00 GMT*
 
 
-## Kardashian
+## John C Reilly
 
 ## [The Celebrity Beauty Boom Isn't Over Yet](https://www.highsnobiety.com/p/celebrity-beauty-brands-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Mon, 05 Aug 2024 09:20:00 GMT*
+
+
+## John C Reilly
+
+## [Oui? Oui! Nike's Paris-Themed Forces Are Scarily Good     ](https://www.highsnobiety.com/p/nike-air-force-1-low-paris-sneakers-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 09:15:46 GMT*
 
 
 ## Kardashian
@@ -6916,15 +7510,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Mon, 05 Aug 2024 09:46:18 GMT*
-
-
-## Kardashian
-
-## [Super Exclusive New Balances Are Coming to a City Near You](https://www.highsnobiety.com/p/new-balances-991v2-city-edition/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 10:02:39 GMT*
 
 
 ## Kardashian
@@ -6960,11 +7545,20 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Kardashian
 
+## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 19:13:37 GMT*
+
+
+## Kardashian
+
 ## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 05 Aug 2024 16:35:34 GMT*
+*Published on: Tue, 06 Aug 2024 08:45:34 GMT*
 
 
 ## Kardashian
@@ -6973,16 +7567,43 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 05 Aug 2024 18:31:22 GMT*
+*Published on: Tue, 06 Aug 2024 09:00:22 GMT*
 
 
 ## Kardashian
 
-## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
+## [Everything SNKRheads Must Know for Nike SNKRS Day 2024](https://www.highsnobiety.com/p/nike-snkrs-day-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 05 Aug 2024 19:13:37 GMT*
+*Published on: Tue, 06 Aug 2024 09:10:02 GMT*
+
+
+## Kardashian
+
+## [Malls May Be Dead But Mall Brands Have Never Been More Alive](https://www.highsnobiety.com/p/mall-brand-renaissance-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:35:33 GMT*
+
+
+## Kardashian
+
+## [adidas’ Secretly Good Sneaker Pushes the Samba Further Aside](https://www.highsnobiety.com/p/adidas-spezial-sneakers-black-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 09:00:00 GMT*
+
+
+## Kardashian
+
+## [The Celebrity Beauty Boom Isn't Over Yet](https://www.highsnobiety.com/p/celebrity-beauty-brands-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 09:20:00 GMT*
 
 
 ## Kardashian
@@ -6994,7 +7615,92 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 05 Aug 2024 09:15:46 GMT*
 
 
-## Kardashian
+## Kanye
+
+## [Y-3’s Wonderfully Flat Sneaker is a Minimalist's Dream](https://www.highsnobiety.com/p/adidas-y3-japan-sneakers-fall-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 09:46:18 GMT*
+
+
+## Kanye
+
+## [Running Shoes for You to 'Ready, Set, Go' in Style  
+Nigel Sylvester's "Bike Air" Jordan Sneakers Are Back ( Better)](https://www.highsnobiety.com/p/stock-x-running-shoes/
+https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-grey-2024-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 11:00:00 GMT
+Mon, 05 Aug 2024 10:11:00 GMT*
+
+
+## Kanye
+
+## [Lacey Table Tennis Shoes? adidas’ New Sneaker Is One-Of-A-Kind](https://www.highsnobiety.com/p/adidas-naked-copenhagen-tischtennis-samba/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 14:24:12 GMT*
+
+
+## Kanye
+
+## [adidas' Wildly Underrated Hiking Shoe Enters Its Chunky Mule Era](https://www.highsnobiety.com/p/adidas-seeulater-mule-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 15:02:35 GMT*
+
+
+## Kanye
+
+## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 19:13:37 GMT*
+
+
+## Kanye
+
+## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 08:45:34 GMT*
+
+
+## Kanye
+
+## [ASICS' Leather Dad Shoe Is a New (Balance) Kind of Sneaker](https://www.highsnobiety.com/p/asics-gel-1130-leather-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:00:22 GMT*
+
+
+## Kanye
+
+## [Everything SNKRheads Must Know for Nike SNKRS Day 2024](https://www.highsnobiety.com/p/nike-snkrs-day-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:10:02 GMT*
+
+
+## Kanye
+
+## [Malls May Be Dead But Mall Brands Have Never Been More Alive](https://www.highsnobiety.com/p/mall-brand-renaissance-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:35:33 GMT*
+
+
+## Kanye
 
 ## [adidas’ Secretly Good Sneaker Pushes the Samba Further Aside](https://www.highsnobiety.com/p/adidas-spezial-sneakers-black-2024/)
 
@@ -7014,82 +7720,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Kanye
 
-## [Y-3’s Wonderfully Flat Sneaker is a Minimalist's Dream](https://www.highsnobiety.com/p/adidas-y3-japan-sneakers-fall-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 09:46:18 GMT*
-
-
-## Kanye
-
-## [Super Exclusive New Balances Are Coming to a City Near You](https://www.highsnobiety.com/p/new-balances-991v2-city-edition/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 10:02:39 GMT*
-
-
-## Kanye
-
-## [Running Shoes for You to 'Ready, Set, Go' in Style  
-Nigel Sylvester's "Bike Air" Jordan Sneakers Are Back ( Better)](https://www.highsnobiety.com/p/stock-x-running-shoes/
-https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-grey-2024-where-to-buy/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 11:00:00 GMT
-Mon, 05 Aug 2024 10:11:00 GMT*
-
-
-## Kanye
-
-## [Lacey Table Tennis Shoes? adidas’ New Sneaker Is One-Of-A-Kind](https://www.highsnobiety.com/p/adidas-naked-copenhagen-tischtennis-samba/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 14:24:12 GMT*
-
-
-## Kanye
-
-## [adidas' Wildly Underrated Hiking Shoe Enters Its Chunky Mule Era](https://www.highsnobiety.com/p/adidas-seeulater-mule-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 15:02:35 GMT*
-
-
-## Kanye
-
-## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 16:35:34 GMT*
-
-
-## Kanye
-
-## [ASICS' Leather Dad Shoe Is a New (Balance) Kind of Sneaker](https://www.highsnobiety.com/p/asics-gel-1130-leather-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 18:31:22 GMT*
-
-
-## Kanye
-
-## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 19:13:37 GMT*
-
-
-## Kanye
-
 ## [Oui? Oui! Nike's Paris-Themed Forces Are Scarily Good     ](https://www.highsnobiety.com/p/nike-air-force-1-low-paris-sneakers-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -7097,24 +7727,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 05 Aug 2024 09:15:46 GMT*
 
 
-## Kanye
-
-## [adidas’ Secretly Good Sneaker Pushes the Samba Further Aside](https://www.highsnobiety.com/p/adidas-spezial-sneakers-black-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 09:00:00 GMT*
-
-
-## Zendaya
-
-## [The Celebrity Beauty Boom Isn't Over Yet](https://www.highsnobiety.com/p/celebrity-beauty-brands-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 09:20:00 GMT*
-
-
 ## Zendaya
 
 ## [Y-3’s Wonderfully Flat Sneaker is a Minimalist's Dream](https://www.highsnobiety.com/p/adidas-y3-japan-sneakers-fall-2024/)
@@ -7122,15 +7734,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Mon, 05 Aug 2024 09:46:18 GMT*
-
-
-## Zendaya
-
-## [Super Exclusive New Balances Are Coming to a City Near You](https://www.highsnobiety.com/p/new-balances-991v2-city-edition/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 10:02:39 GMT*
 
 
 ## Zendaya
@@ -7166,24 +7769,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Zendaya
 
-## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 16:35:34 GMT*
-
-
-## Zendaya
-
-## [ASICS' Leather Dad Shoe Is a New (Balance) Kind of Sneaker](https://www.highsnobiety.com/p/asics-gel-1130-leather-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 18:31:22 GMT*
-
-
-## Zendaya
-
 ## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -7193,11 +7778,38 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Zendaya
 
-## [Oui? Oui! Nike's Paris-Themed Forces Are Scarily Good     ](https://www.highsnobiety.com/p/nike-air-force-1-low-paris-sneakers-2024/)
+## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 05 Aug 2024 09:15:46 GMT*
+*Published on: Tue, 06 Aug 2024 08:45:34 GMT*
+
+
+## Zendaya
+
+## [ASICS' Leather Dad Shoe Is a New (Balance) Kind of Sneaker](https://www.highsnobiety.com/p/asics-gel-1130-leather-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:00:22 GMT*
+
+
+## Zendaya
+
+## [Everything SNKRheads Must Know for Nike SNKRS Day 2024](https://www.highsnobiety.com/p/nike-snkrs-day-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:10:02 GMT*
+
+
+## Zendaya
+
+## [Malls May Be Dead But Mall Brands Have Never Been More Alive](https://www.highsnobiety.com/p/mall-brand-renaissance-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:35:33 GMT*
 
 
 ## Zendaya
@@ -7209,13 +7821,22 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 05 Aug 2024 09:00:00 GMT*
 
 
-## Will Ferrell
+## Zendaya
 
 ## [The Celebrity Beauty Boom Isn't Over Yet](https://www.highsnobiety.com/p/celebrity-beauty-brands-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Mon, 05 Aug 2024 09:20:00 GMT*
+
+
+## Zendaya
+
+## [Oui? Oui! Nike's Paris-Themed Forces Are Scarily Good     ](https://www.highsnobiety.com/p/nike-air-force-1-low-paris-sneakers-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 09:15:46 GMT*
 
 
 ## Will Ferrell
@@ -7225,15 +7846,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Mon, 05 Aug 2024 09:46:18 GMT*
-
-
-## Will Ferrell
-
-## [Super Exclusive New Balances Are Coming to a City Near You](https://www.highsnobiety.com/p/new-balances-991v2-city-edition/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 10:02:39 GMT*
 
 
 ## Will Ferrell
@@ -7269,11 +7881,20 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Will Ferrell
 
+## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 19:13:37 GMT*
+
+
+## Will Ferrell
+
 ## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 05 Aug 2024 16:35:34 GMT*
+*Published on: Tue, 06 Aug 2024 08:45:34 GMT*
 
 
 ## Will Ferrell
@@ -7282,16 +7903,43 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 05 Aug 2024 18:31:22 GMT*
+*Published on: Tue, 06 Aug 2024 09:00:22 GMT*
 
 
 ## Will Ferrell
 
-## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
+## [Everything SNKRheads Must Know for Nike SNKRS Day 2024](https://www.highsnobiety.com/p/nike-snkrs-day-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 05 Aug 2024 19:13:37 GMT*
+*Published on: Tue, 06 Aug 2024 09:10:02 GMT*
+
+
+## Will Ferrell
+
+## [Malls May Be Dead But Mall Brands Have Never Been More Alive](https://www.highsnobiety.com/p/mall-brand-renaissance-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:35:33 GMT*
+
+
+## Will Ferrell
+
+## [adidas’ Secretly Good Sneaker Pushes the Samba Further Aside](https://www.highsnobiety.com/p/adidas-spezial-sneakers-black-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 09:00:00 GMT*
+
+
+## Will Ferrell
+
+## [The Celebrity Beauty Boom Isn't Over Yet](https://www.highsnobiety.com/p/celebrity-beauty-brands-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 09:20:00 GMT*
 
 
 ## Will Ferrell
@@ -7303,7 +7951,92 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 05 Aug 2024 09:15:46 GMT*
 
 
-## Will Ferrell
+## Zazie Beetz
+
+## [Y-3’s Wonderfully Flat Sneaker is a Minimalist's Dream](https://www.highsnobiety.com/p/adidas-y3-japan-sneakers-fall-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 09:46:18 GMT*
+
+
+## Zazie Beetz
+
+## [Running Shoes for You to 'Ready, Set, Go' in Style  
+Nigel Sylvester's "Bike Air" Jordan Sneakers Are Back ( Better)](https://www.highsnobiety.com/p/stock-x-running-shoes/
+https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-grey-2024-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 11:00:00 GMT
+Mon, 05 Aug 2024 10:11:00 GMT*
+
+
+## Zazie Beetz
+
+## [Lacey Table Tennis Shoes? adidas’ New Sneaker Is One-Of-A-Kind](https://www.highsnobiety.com/p/adidas-naked-copenhagen-tischtennis-samba/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 14:24:12 GMT*
+
+
+## Zazie Beetz
+
+## [adidas' Wildly Underrated Hiking Shoe Enters Its Chunky Mule Era](https://www.highsnobiety.com/p/adidas-seeulater-mule-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 15:02:35 GMT*
+
+
+## Zazie Beetz
+
+## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 19:13:37 GMT*
+
+
+## Zazie Beetz
+
+## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 08:45:34 GMT*
+
+
+## Zazie Beetz
+
+## [ASICS' Leather Dad Shoe Is a New (Balance) Kind of Sneaker](https://www.highsnobiety.com/p/asics-gel-1130-leather-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:00:22 GMT*
+
+
+## Zazie Beetz
+
+## [Everything SNKRheads Must Know for Nike SNKRS Day 2024](https://www.highsnobiety.com/p/nike-snkrs-day-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:10:02 GMT*
+
+
+## Zazie Beetz
+
+## [Malls May Be Dead But Mall Brands Have Never Been More Alive](https://www.highsnobiety.com/p/mall-brand-renaissance-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:35:33 GMT*
+
+
+## Zazie Beetz
 
 ## [adidas’ Secretly Good Sneaker Pushes the Samba Further Aside](https://www.highsnobiety.com/p/adidas-spezial-sneakers-black-2024/)
 
@@ -7323,82 +8056,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Zazie Beetz
 
-## [Y-3’s Wonderfully Flat Sneaker is a Minimalist's Dream](https://www.highsnobiety.com/p/adidas-y3-japan-sneakers-fall-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 09:46:18 GMT*
-
-
-## Zazie Beetz
-
-## [Super Exclusive New Balances Are Coming to a City Near You](https://www.highsnobiety.com/p/new-balances-991v2-city-edition/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 10:02:39 GMT*
-
-
-## Zazie Beetz
-
-## [Running Shoes for You to 'Ready, Set, Go' in Style  
-Nigel Sylvester's "Bike Air" Jordan Sneakers Are Back ( Better)](https://www.highsnobiety.com/p/stock-x-running-shoes/
-https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-grey-2024-where-to-buy/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 11:00:00 GMT
-Mon, 05 Aug 2024 10:11:00 GMT*
-
-
-## Zazie Beetz
-
-## [Lacey Table Tennis Shoes? adidas’ New Sneaker Is One-Of-A-Kind](https://www.highsnobiety.com/p/adidas-naked-copenhagen-tischtennis-samba/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 14:24:12 GMT*
-
-
-## Zazie Beetz
-
-## [adidas' Wildly Underrated Hiking Shoe Enters Its Chunky Mule Era](https://www.highsnobiety.com/p/adidas-seeulater-mule-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 15:02:35 GMT*
-
-
-## Zazie Beetz
-
-## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 16:35:34 GMT*
-
-
-## Zazie Beetz
-
-## [ASICS' Leather Dad Shoe Is a New (Balance) Kind of Sneaker](https://www.highsnobiety.com/p/asics-gel-1130-leather-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 18:31:22 GMT*
-
-
-## Zazie Beetz
-
-## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 19:13:37 GMT*
-
-
-## Zazie Beetz
-
 ## [Oui? Oui! Nike's Paris-Themed Forces Are Scarily Good     ](https://www.highsnobiety.com/p/nike-air-force-1-low-paris-sneakers-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -7406,24 +8063,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 05 Aug 2024 09:15:46 GMT*
 
 
-## Zazie Beetz
-
-## [adidas’ Secretly Good Sneaker Pushes the Samba Further Aside](https://www.highsnobiety.com/p/adidas-spezial-sneakers-black-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 09:00:00 GMT*
-
-
-## Bob Odenkirk
-
-## [The Celebrity Beauty Boom Isn't Over Yet](https://www.highsnobiety.com/p/celebrity-beauty-brands-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 09:20:00 GMT*
-
-
 ## Bob Odenkirk
 
 ## [Y-3’s Wonderfully Flat Sneaker is a Minimalist's Dream](https://www.highsnobiety.com/p/adidas-y3-japan-sneakers-fall-2024/)
@@ -7431,15 +8070,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Mon, 05 Aug 2024 09:46:18 GMT*
-
-
-## Bob Odenkirk
-
-## [Super Exclusive New Balances Are Coming to a City Near You](https://www.highsnobiety.com/p/new-balances-991v2-city-edition/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 10:02:39 GMT*
 
 
 ## Bob Odenkirk
@@ -7475,24 +8105,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Bob Odenkirk
 
-## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 16:35:34 GMT*
-
-
-## Bob Odenkirk
-
-## [ASICS' Leather Dad Shoe Is a New (Balance) Kind of Sneaker](https://www.highsnobiety.com/p/asics-gel-1130-leather-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 18:31:22 GMT*
-
-
-## Bob Odenkirk
-
 ## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -7502,11 +8114,38 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Bob Odenkirk
 
-## [Oui? Oui! Nike's Paris-Themed Forces Are Scarily Good     ](https://www.highsnobiety.com/p/nike-air-force-1-low-paris-sneakers-2024/)
+## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 05 Aug 2024 09:15:46 GMT*
+*Published on: Tue, 06 Aug 2024 08:45:34 GMT*
+
+
+## Bob Odenkirk
+
+## [ASICS' Leather Dad Shoe Is a New (Balance) Kind of Sneaker](https://www.highsnobiety.com/p/asics-gel-1130-leather-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:00:22 GMT*
+
+
+## Bob Odenkirk
+
+## [Everything SNKRheads Must Know for Nike SNKRS Day 2024](https://www.highsnobiety.com/p/nike-snkrs-day-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:10:02 GMT*
+
+
+## Bob Odenkirk
+
+## [Malls May Be Dead But Mall Brands Have Never Been More Alive](https://www.highsnobiety.com/p/mall-brand-renaissance-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:35:33 GMT*
 
 
 ## Bob Odenkirk
@@ -7518,13 +8157,22 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 05 Aug 2024 09:00:00 GMT*
 
 
-## Brad Pitt
+## Bob Odenkirk
 
 ## [The Celebrity Beauty Boom Isn't Over Yet](https://www.highsnobiety.com/p/celebrity-beauty-brands-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Mon, 05 Aug 2024 09:20:00 GMT*
+
+
+## Bob Odenkirk
+
+## [Oui? Oui! Nike's Paris-Themed Forces Are Scarily Good     ](https://www.highsnobiety.com/p/nike-air-force-1-low-paris-sneakers-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 09:15:46 GMT*
 
 
 ## Brad Pitt
@@ -7534,15 +8182,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Mon, 05 Aug 2024 09:46:18 GMT*
-
-
-## Brad Pitt
-
-## [Super Exclusive New Balances Are Coming to a City Near You](https://www.highsnobiety.com/p/new-balances-991v2-city-edition/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 10:02:39 GMT*
 
 
 ## Brad Pitt
@@ -7578,11 +8217,20 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Brad Pitt
 
+## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 19:13:37 GMT*
+
+
+## Brad Pitt
+
 ## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 05 Aug 2024 16:35:34 GMT*
+*Published on: Tue, 06 Aug 2024 08:45:34 GMT*
 
 
 ## Brad Pitt
@@ -7591,16 +8239,43 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 05 Aug 2024 18:31:22 GMT*
+*Published on: Tue, 06 Aug 2024 09:00:22 GMT*
 
 
 ## Brad Pitt
 
-## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
+## [Everything SNKRheads Must Know for Nike SNKRS Day 2024](https://www.highsnobiety.com/p/nike-snkrs-day-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 05 Aug 2024 19:13:37 GMT*
+*Published on: Tue, 06 Aug 2024 09:10:02 GMT*
+
+
+## Brad Pitt
+
+## [Malls May Be Dead But Mall Brands Have Never Been More Alive](https://www.highsnobiety.com/p/mall-brand-renaissance-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:35:33 GMT*
+
+
+## Brad Pitt
+
+## [adidas’ Secretly Good Sneaker Pushes the Samba Further Aside](https://www.highsnobiety.com/p/adidas-spezial-sneakers-black-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 09:00:00 GMT*
+
+
+## Brad Pitt
+
+## [The Celebrity Beauty Boom Isn't Over Yet](https://www.highsnobiety.com/p/celebrity-beauty-brands-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 09:20:00 GMT*
 
 
 ## Brad Pitt
@@ -7612,7 +8287,92 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 05 Aug 2024 09:15:46 GMT*
 
 
-## Brad Pitt
+## Beyoncé
+
+## [Y-3’s Wonderfully Flat Sneaker is a Minimalist's Dream](https://www.highsnobiety.com/p/adidas-y3-japan-sneakers-fall-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 09:46:18 GMT*
+
+
+## Beyoncé
+
+## [Running Shoes for You to 'Ready, Set, Go' in Style  
+Nigel Sylvester's "Bike Air" Jordan Sneakers Are Back ( Better)](https://www.highsnobiety.com/p/stock-x-running-shoes/
+https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-grey-2024-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 11:00:00 GMT
+Mon, 05 Aug 2024 10:11:00 GMT*
+
+
+## Beyoncé
+
+## [Lacey Table Tennis Shoes? adidas’ New Sneaker Is One-Of-A-Kind](https://www.highsnobiety.com/p/adidas-naked-copenhagen-tischtennis-samba/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 14:24:12 GMT*
+
+
+## Beyoncé
+
+## [adidas' Wildly Underrated Hiking Shoe Enters Its Chunky Mule Era](https://www.highsnobiety.com/p/adidas-seeulater-mule-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 15:02:35 GMT*
+
+
+## Beyoncé
+
+## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 19:13:37 GMT*
+
+
+## Beyoncé
+
+## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 08:45:34 GMT*
+
+
+## Beyoncé
+
+## [ASICS' Leather Dad Shoe Is a New (Balance) Kind of Sneaker](https://www.highsnobiety.com/p/asics-gel-1130-leather-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:00:22 GMT*
+
+
+## Beyoncé
+
+## [Everything SNKRheads Must Know for Nike SNKRS Day 2024](https://www.highsnobiety.com/p/nike-snkrs-day-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:10:02 GMT*
+
+
+## Beyoncé
+
+## [Malls May Be Dead But Mall Brands Have Never Been More Alive](https://www.highsnobiety.com/p/mall-brand-renaissance-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:35:33 GMT*
+
+
+## Beyoncé
 
 ## [adidas’ Secretly Good Sneaker Pushes the Samba Further Aside](https://www.highsnobiety.com/p/adidas-spezial-sneakers-black-2024/)
 
@@ -7632,82 +8392,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Beyoncé
 
-## [Y-3’s Wonderfully Flat Sneaker is a Minimalist's Dream](https://www.highsnobiety.com/p/adidas-y3-japan-sneakers-fall-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 09:46:18 GMT*
-
-
-## Beyoncé
-
-## [Super Exclusive New Balances Are Coming to a City Near You](https://www.highsnobiety.com/p/new-balances-991v2-city-edition/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 10:02:39 GMT*
-
-
-## Beyoncé
-
-## [Running Shoes for You to 'Ready, Set, Go' in Style  
-Nigel Sylvester's "Bike Air" Jordan Sneakers Are Back ( Better)](https://www.highsnobiety.com/p/stock-x-running-shoes/
-https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-grey-2024-where-to-buy/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 11:00:00 GMT
-Mon, 05 Aug 2024 10:11:00 GMT*
-
-
-## Beyoncé
-
-## [Lacey Table Tennis Shoes? adidas’ New Sneaker Is One-Of-A-Kind](https://www.highsnobiety.com/p/adidas-naked-copenhagen-tischtennis-samba/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 14:24:12 GMT*
-
-
-## Beyoncé
-
-## [adidas' Wildly Underrated Hiking Shoe Enters Its Chunky Mule Era](https://www.highsnobiety.com/p/adidas-seeulater-mule-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 15:02:35 GMT*
-
-
-## Beyoncé
-
-## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 16:35:34 GMT*
-
-
-## Beyoncé
-
-## [ASICS' Leather Dad Shoe Is a New (Balance) Kind of Sneaker](https://www.highsnobiety.com/p/asics-gel-1130-leather-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 18:31:22 GMT*
-
-
-## Beyoncé
-
-## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 19:13:37 GMT*
-
-
-## Beyoncé
-
 ## [Oui? Oui! Nike's Paris-Themed Forces Are Scarily Good     ](https://www.highsnobiety.com/p/nike-air-force-1-low-paris-sneakers-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -7715,24 +8399,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 05 Aug 2024 09:15:46 GMT*
 
 
-## Beyoncé
-
-## [adidas’ Secretly Good Sneaker Pushes the Samba Further Aside](https://www.highsnobiety.com/p/adidas-spezial-sneakers-black-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 09:00:00 GMT*
-
-
-## Bia
-
-## [The Celebrity Beauty Boom Isn't Over Yet](https://www.highsnobiety.com/p/celebrity-beauty-brands-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 09:20:00 GMT*
-
-
 ## Bia
 
 ## [Y-3’s Wonderfully Flat Sneaker is a Minimalist's Dream](https://www.highsnobiety.com/p/adidas-y3-japan-sneakers-fall-2024/)
@@ -7740,15 +8406,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Mon, 05 Aug 2024 09:46:18 GMT*
-
-
-## Bia
-
-## [Super Exclusive New Balances Are Coming to a City Near You](https://www.highsnobiety.com/p/new-balances-991v2-city-edition/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 10:02:39 GMT*
 
 
 ## Bia
@@ -7784,24 +8441,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Bia
 
-## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 16:35:34 GMT*
-
-
-## Bia
-
-## [ASICS' Leather Dad Shoe Is a New (Balance) Kind of Sneaker](https://www.highsnobiety.com/p/asics-gel-1130-leather-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 18:31:22 GMT*
-
-
-## Bia
-
 ## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -7811,11 +8450,38 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Bia
 
-## [Oui? Oui! Nike's Paris-Themed Forces Are Scarily Good     ](https://www.highsnobiety.com/p/nike-air-force-1-low-paris-sneakers-2024/)
+## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 05 Aug 2024 09:15:46 GMT*
+*Published on: Tue, 06 Aug 2024 08:45:34 GMT*
+
+
+## Bia
+
+## [ASICS' Leather Dad Shoe Is a New (Balance) Kind of Sneaker](https://www.highsnobiety.com/p/asics-gel-1130-leather-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:00:22 GMT*
+
+
+## Bia
+
+## [Everything SNKRheads Must Know for Nike SNKRS Day 2024](https://www.highsnobiety.com/p/nike-snkrs-day-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:10:02 GMT*
+
+
+## Bia
+
+## [Malls May Be Dead But Mall Brands Have Never Been More Alive](https://www.highsnobiety.com/p/mall-brand-renaissance-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:35:33 GMT*
 
 
 ## Bia
@@ -7827,13 +8493,22 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 05 Aug 2024 09:00:00 GMT*
 
 
-## Avantika
+## Bia
 
 ## [The Celebrity Beauty Boom Isn't Over Yet](https://www.highsnobiety.com/p/celebrity-beauty-brands-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Mon, 05 Aug 2024 09:20:00 GMT*
+
+
+## Bia
+
+## [Oui? Oui! Nike's Paris-Themed Forces Are Scarily Good     ](https://www.highsnobiety.com/p/nike-air-force-1-low-paris-sneakers-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 09:15:46 GMT*
 
 
 ## Avantika
@@ -7843,15 +8518,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Mon, 05 Aug 2024 09:46:18 GMT*
-
-
-## Avantika
-
-## [Super Exclusive New Balances Are Coming to a City Near You](https://www.highsnobiety.com/p/new-balances-991v2-city-edition/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 10:02:39 GMT*
 
 
 ## Avantika
@@ -7887,11 +8553,20 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Avantika
 
+## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 19:13:37 GMT*
+
+
+## Avantika
+
 ## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 05 Aug 2024 16:35:34 GMT*
+*Published on: Tue, 06 Aug 2024 08:45:34 GMT*
 
 
 ## Avantika
@@ -7900,16 +8575,43 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 05 Aug 2024 18:31:22 GMT*
+*Published on: Tue, 06 Aug 2024 09:00:22 GMT*
 
 
 ## Avantika
 
-## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
+## [Everything SNKRheads Must Know for Nike SNKRS Day 2024](https://www.highsnobiety.com/p/nike-snkrs-day-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 05 Aug 2024 19:13:37 GMT*
+*Published on: Tue, 06 Aug 2024 09:10:02 GMT*
+
+
+## Avantika
+
+## [Malls May Be Dead But Mall Brands Have Never Been More Alive](https://www.highsnobiety.com/p/mall-brand-renaissance-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:35:33 GMT*
+
+
+## Avantika
+
+## [adidas’ Secretly Good Sneaker Pushes the Samba Further Aside](https://www.highsnobiety.com/p/adidas-spezial-sneakers-black-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 09:00:00 GMT*
+
+
+## Avantika
+
+## [The Celebrity Beauty Boom Isn't Over Yet](https://www.highsnobiety.com/p/celebrity-beauty-brands-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 09:20:00 GMT*
 
 
 ## Avantika
@@ -7921,7 +8623,92 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 05 Aug 2024 09:15:46 GMT*
 
 
-## Avantika
+## Bernie Sanders
+
+## [Y-3’s Wonderfully Flat Sneaker is a Minimalist's Dream](https://www.highsnobiety.com/p/adidas-y3-japan-sneakers-fall-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 09:46:18 GMT*
+
+
+## Bernie Sanders
+
+## [Running Shoes for You to 'Ready, Set, Go' in Style  
+Nigel Sylvester's "Bike Air" Jordan Sneakers Are Back ( Better)](https://www.highsnobiety.com/p/stock-x-running-shoes/
+https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-grey-2024-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 11:00:00 GMT
+Mon, 05 Aug 2024 10:11:00 GMT*
+
+
+## Bernie Sanders
+
+## [Lacey Table Tennis Shoes? adidas’ New Sneaker Is One-Of-A-Kind](https://www.highsnobiety.com/p/adidas-naked-copenhagen-tischtennis-samba/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 14:24:12 GMT*
+
+
+## Bernie Sanders
+
+## [adidas' Wildly Underrated Hiking Shoe Enters Its Chunky Mule Era](https://www.highsnobiety.com/p/adidas-seeulater-mule-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 15:02:35 GMT*
+
+
+## Bernie Sanders
+
+## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 19:13:37 GMT*
+
+
+## Bernie Sanders
+
+## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 08:45:34 GMT*
+
+
+## Bernie Sanders
+
+## [ASICS' Leather Dad Shoe Is a New (Balance) Kind of Sneaker](https://www.highsnobiety.com/p/asics-gel-1130-leather-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:00:22 GMT*
+
+
+## Bernie Sanders
+
+## [Everything SNKRheads Must Know for Nike SNKRS Day 2024](https://www.highsnobiety.com/p/nike-snkrs-day-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:10:02 GMT*
+
+
+## Bernie Sanders
+
+## [Malls May Be Dead But Mall Brands Have Never Been More Alive](https://www.highsnobiety.com/p/mall-brand-renaissance-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:35:33 GMT*
+
+
+## Bernie Sanders
 
 ## [adidas’ Secretly Good Sneaker Pushes the Samba Further Aside](https://www.highsnobiety.com/p/adidas-spezial-sneakers-black-2024/)
 
@@ -7941,82 +8728,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Bernie Sanders
 
-## [Y-3’s Wonderfully Flat Sneaker is a Minimalist's Dream](https://www.highsnobiety.com/p/adidas-y3-japan-sneakers-fall-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 09:46:18 GMT*
-
-
-## Bernie Sanders
-
-## [Super Exclusive New Balances Are Coming to a City Near You](https://www.highsnobiety.com/p/new-balances-991v2-city-edition/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 10:02:39 GMT*
-
-
-## Bernie Sanders
-
-## [Running Shoes for You to 'Ready, Set, Go' in Style  
-Nigel Sylvester's "Bike Air" Jordan Sneakers Are Back ( Better)](https://www.highsnobiety.com/p/stock-x-running-shoes/
-https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-grey-2024-where-to-buy/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 11:00:00 GMT
-Mon, 05 Aug 2024 10:11:00 GMT*
-
-
-## Bernie Sanders
-
-## [Lacey Table Tennis Shoes? adidas’ New Sneaker Is One-Of-A-Kind](https://www.highsnobiety.com/p/adidas-naked-copenhagen-tischtennis-samba/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 14:24:12 GMT*
-
-
-## Bernie Sanders
-
-## [adidas' Wildly Underrated Hiking Shoe Enters Its Chunky Mule Era](https://www.highsnobiety.com/p/adidas-seeulater-mule-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 15:02:35 GMT*
-
-
-## Bernie Sanders
-
-## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 16:35:34 GMT*
-
-
-## Bernie Sanders
-
-## [ASICS' Leather Dad Shoe Is a New (Balance) Kind of Sneaker](https://www.highsnobiety.com/p/asics-gel-1130-leather-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 18:31:22 GMT*
-
-
-## Bernie Sanders
-
-## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 19:13:37 GMT*
-
-
-## Bernie Sanders
-
 ## [Oui? Oui! Nike's Paris-Themed Forces Are Scarily Good     ](https://www.highsnobiety.com/p/nike-air-force-1-low-paris-sneakers-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -8024,24 +8735,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 05 Aug 2024 09:15:46 GMT*
 
 
-## Bernie Sanders
-
-## [adidas’ Secretly Good Sneaker Pushes the Samba Further Aside](https://www.highsnobiety.com/p/adidas-spezial-sneakers-black-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 09:00:00 GMT*
-
-
-## Big Sean
-
-## [The Celebrity Beauty Boom Isn't Over Yet](https://www.highsnobiety.com/p/celebrity-beauty-brands-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 09:20:00 GMT*
-
-
 ## Big Sean
 
 ## [Y-3’s Wonderfully Flat Sneaker is a Minimalist's Dream](https://www.highsnobiety.com/p/adidas-y3-japan-sneakers-fall-2024/)
@@ -8049,15 +8742,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Mon, 05 Aug 2024 09:46:18 GMT*
-
-
-## Big Sean
-
-## [Super Exclusive New Balances Are Coming to a City Near You](https://www.highsnobiety.com/p/new-balances-991v2-city-edition/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 10:02:39 GMT*
 
 
 ## Big Sean
@@ -8093,24 +8777,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Big Sean
 
-## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 16:35:34 GMT*
-
-
-## Big Sean
-
-## [ASICS' Leather Dad Shoe Is a New (Balance) Kind of Sneaker](https://www.highsnobiety.com/p/asics-gel-1130-leather-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 18:31:22 GMT*
-
-
-## Big Sean
-
 ## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -8120,11 +8786,38 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Big Sean
 
-## [Oui? Oui! Nike's Paris-Themed Forces Are Scarily Good     ](https://www.highsnobiety.com/p/nike-air-force-1-low-paris-sneakers-2024/)
+## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 05 Aug 2024 09:15:46 GMT*
+*Published on: Tue, 06 Aug 2024 08:45:34 GMT*
+
+
+## Big Sean
+
+## [ASICS' Leather Dad Shoe Is a New (Balance) Kind of Sneaker](https://www.highsnobiety.com/p/asics-gel-1130-leather-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:00:22 GMT*
+
+
+## Big Sean
+
+## [Everything SNKRheads Must Know for Nike SNKRS Day 2024](https://www.highsnobiety.com/p/nike-snkrs-day-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:10:02 GMT*
+
+
+## Big Sean
+
+## [Malls May Be Dead But Mall Brands Have Never Been More Alive](https://www.highsnobiety.com/p/mall-brand-renaissance-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:35:33 GMT*
 
 
 ## Big Sean
@@ -8136,13 +8829,22 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 05 Aug 2024 09:00:00 GMT*
 
 
-## BlockBoy JB
+## Big Sean
 
 ## [The Celebrity Beauty Boom Isn't Over Yet](https://www.highsnobiety.com/p/celebrity-beauty-brands-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Mon, 05 Aug 2024 09:20:00 GMT*
+
+
+## Big Sean
+
+## [Oui? Oui! Nike's Paris-Themed Forces Are Scarily Good     ](https://www.highsnobiety.com/p/nike-air-force-1-low-paris-sneakers-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 09:15:46 GMT*
 
 
 ## BlockBoy JB
@@ -8152,15 +8854,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Mon, 05 Aug 2024 09:46:18 GMT*
-
-
-## BlockBoy JB
-
-## [Super Exclusive New Balances Are Coming to a City Near You](https://www.highsnobiety.com/p/new-balances-991v2-city-edition/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 10:02:39 GMT*
 
 
 ## BlockBoy JB
@@ -8196,11 +8889,20 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## BlockBoy JB
 
+## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 19:13:37 GMT*
+
+
+## BlockBoy JB
+
 ## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 05 Aug 2024 16:35:34 GMT*
+*Published on: Tue, 06 Aug 2024 08:45:34 GMT*
 
 
 ## BlockBoy JB
@@ -8209,16 +8911,43 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 05 Aug 2024 18:31:22 GMT*
+*Published on: Tue, 06 Aug 2024 09:00:22 GMT*
 
 
 ## BlockBoy JB
 
-## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
+## [Everything SNKRheads Must Know for Nike SNKRS Day 2024](https://www.highsnobiety.com/p/nike-snkrs-day-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 05 Aug 2024 19:13:37 GMT*
+*Published on: Tue, 06 Aug 2024 09:10:02 GMT*
+
+
+## BlockBoy JB
+
+## [Malls May Be Dead But Mall Brands Have Never Been More Alive](https://www.highsnobiety.com/p/mall-brand-renaissance-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:35:33 GMT*
+
+
+## BlockBoy JB
+
+## [adidas’ Secretly Good Sneaker Pushes the Samba Further Aside](https://www.highsnobiety.com/p/adidas-spezial-sneakers-black-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 09:00:00 GMT*
+
+
+## BlockBoy JB
+
+## [The Celebrity Beauty Boom Isn't Over Yet](https://www.highsnobiety.com/p/celebrity-beauty-brands-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 09:20:00 GMT*
 
 
 ## BlockBoy JB
@@ -8230,7 +8959,92 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 05 Aug 2024 09:15:46 GMT*
 
 
-## BlockBoy JB
+## Biden
+
+## [Y-3’s Wonderfully Flat Sneaker is a Minimalist's Dream](https://www.highsnobiety.com/p/adidas-y3-japan-sneakers-fall-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 09:46:18 GMT*
+
+
+## Biden
+
+## [Running Shoes for You to 'Ready, Set, Go' in Style  
+Nigel Sylvester's "Bike Air" Jordan Sneakers Are Back ( Better)](https://www.highsnobiety.com/p/stock-x-running-shoes/
+https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-grey-2024-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 11:00:00 GMT
+Mon, 05 Aug 2024 10:11:00 GMT*
+
+
+## Biden
+
+## [Lacey Table Tennis Shoes? adidas’ New Sneaker Is One-Of-A-Kind](https://www.highsnobiety.com/p/adidas-naked-copenhagen-tischtennis-samba/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 14:24:12 GMT*
+
+
+## Biden
+
+## [adidas' Wildly Underrated Hiking Shoe Enters Its Chunky Mule Era](https://www.highsnobiety.com/p/adidas-seeulater-mule-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 15:02:35 GMT*
+
+
+## Biden
+
+## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 19:13:37 GMT*
+
+
+## Biden
+
+## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 08:45:34 GMT*
+
+
+## Biden
+
+## [ASICS' Leather Dad Shoe Is a New (Balance) Kind of Sneaker](https://www.highsnobiety.com/p/asics-gel-1130-leather-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:00:22 GMT*
+
+
+## Biden
+
+## [Everything SNKRheads Must Know for Nike SNKRS Day 2024](https://www.highsnobiety.com/p/nike-snkrs-day-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:10:02 GMT*
+
+
+## Biden
+
+## [Malls May Be Dead But Mall Brands Have Never Been More Alive](https://www.highsnobiety.com/p/mall-brand-renaissance-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:35:33 GMT*
+
+
+## Biden
 
 ## [adidas’ Secretly Good Sneaker Pushes the Samba Further Aside](https://www.highsnobiety.com/p/adidas-spezial-sneakers-black-2024/)
 
@@ -8250,82 +9064,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Biden
 
-## [Y-3’s Wonderfully Flat Sneaker is a Minimalist's Dream](https://www.highsnobiety.com/p/adidas-y3-japan-sneakers-fall-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 09:46:18 GMT*
-
-
-## Biden
-
-## [Super Exclusive New Balances Are Coming to a City Near You](https://www.highsnobiety.com/p/new-balances-991v2-city-edition/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 10:02:39 GMT*
-
-
-## Biden
-
-## [Running Shoes for You to 'Ready, Set, Go' in Style  
-Nigel Sylvester's "Bike Air" Jordan Sneakers Are Back ( Better)](https://www.highsnobiety.com/p/stock-x-running-shoes/
-https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-grey-2024-where-to-buy/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 11:00:00 GMT
-Mon, 05 Aug 2024 10:11:00 GMT*
-
-
-## Biden
-
-## [Lacey Table Tennis Shoes? adidas’ New Sneaker Is One-Of-A-Kind](https://www.highsnobiety.com/p/adidas-naked-copenhagen-tischtennis-samba/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 14:24:12 GMT*
-
-
-## Biden
-
-## [adidas' Wildly Underrated Hiking Shoe Enters Its Chunky Mule Era](https://www.highsnobiety.com/p/adidas-seeulater-mule-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 15:02:35 GMT*
-
-
-## Biden
-
-## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 16:35:34 GMT*
-
-
-## Biden
-
-## [ASICS' Leather Dad Shoe Is a New (Balance) Kind of Sneaker](https://www.highsnobiety.com/p/asics-gel-1130-leather-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 18:31:22 GMT*
-
-
-## Biden
-
-## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 19:13:37 GMT*
-
-
-## Biden
-
 ## [Oui? Oui! Nike's Paris-Themed Forces Are Scarily Good     ](https://www.highsnobiety.com/p/nike-air-force-1-low-paris-sneakers-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -8333,24 +9071,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 05 Aug 2024 09:15:46 GMT*
 
 
-## Biden
-
-## [adidas’ Secretly Good Sneaker Pushes the Samba Further Aside](https://www.highsnobiety.com/p/adidas-spezial-sneakers-black-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 09:00:00 GMT*
-
-
-## Bieber
-
-## [The Celebrity Beauty Boom Isn't Over Yet](https://www.highsnobiety.com/p/celebrity-beauty-brands-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 09:20:00 GMT*
-
-
 ## Bieber
 
 ## [Y-3’s Wonderfully Flat Sneaker is a Minimalist's Dream](https://www.highsnobiety.com/p/adidas-y3-japan-sneakers-fall-2024/)
@@ -8358,15 +9078,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Mon, 05 Aug 2024 09:46:18 GMT*
-
-
-## Bieber
-
-## [Super Exclusive New Balances Are Coming to a City Near You](https://www.highsnobiety.com/p/new-balances-991v2-city-edition/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 10:02:39 GMT*
 
 
 ## Bieber
@@ -8402,24 +9113,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Bieber
 
-## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 16:35:34 GMT*
-
-
-## Bieber
-
-## [ASICS' Leather Dad Shoe Is a New (Balance) Kind of Sneaker](https://www.highsnobiety.com/p/asics-gel-1130-leather-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 18:31:22 GMT*
-
-
-## Bieber
-
 ## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -8429,11 +9122,38 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Bieber
 
-## [Oui? Oui! Nike's Paris-Themed Forces Are Scarily Good     ](https://www.highsnobiety.com/p/nike-air-force-1-low-paris-sneakers-2024/)
+## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 05 Aug 2024 09:15:46 GMT*
+*Published on: Tue, 06 Aug 2024 08:45:34 GMT*
+
+
+## Bieber
+
+## [ASICS' Leather Dad Shoe Is a New (Balance) Kind of Sneaker](https://www.highsnobiety.com/p/asics-gel-1130-leather-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:00:22 GMT*
+
+
+## Bieber
+
+## [Everything SNKRheads Must Know for Nike SNKRS Day 2024](https://www.highsnobiety.com/p/nike-snkrs-day-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:10:02 GMT*
+
+
+## Bieber
+
+## [Malls May Be Dead But Mall Brands Have Never Been More Alive](https://www.highsnobiety.com/p/mall-brand-renaissance-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:35:33 GMT*
 
 
 ## Bieber
@@ -8445,13 +9165,22 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 05 Aug 2024 09:00:00 GMT*
 
 
-## Paulina Porizkov
+## Bieber
 
 ## [The Celebrity Beauty Boom Isn't Over Yet](https://www.highsnobiety.com/p/celebrity-beauty-brands-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Mon, 05 Aug 2024 09:20:00 GMT*
+
+
+## Bieber
+
+## [Oui? Oui! Nike's Paris-Themed Forces Are Scarily Good     ](https://www.highsnobiety.com/p/nike-air-force-1-low-paris-sneakers-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 09:15:46 GMT*
 
 
 ## Paulina Porizkov
@@ -8461,15 +9190,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Mon, 05 Aug 2024 09:46:18 GMT*
-
-
-## Paulina Porizkov
-
-## [Super Exclusive New Balances Are Coming to a City Near You](https://www.highsnobiety.com/p/new-balances-991v2-city-edition/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 10:02:39 GMT*
 
 
 ## Paulina Porizkov
@@ -8505,24 +9225,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Paulina Porizkov
 
-## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 16:35:34 GMT*
-
-
-## Paulina Porizkov
-
-## [ASICS' Leather Dad Shoe Is a New (Balance) Kind of Sneaker](https://www.highsnobiety.com/p/asics-gel-1130-leather-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 18:31:22 GMT*
-
-
-## Paulina Porizkov
-
 ## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -8532,11 +9234,38 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Paulina Porizkov
 
-## [Oui? Oui! Nike's Paris-Themed Forces Are Scarily Good     ](https://www.highsnobiety.com/p/nike-air-force-1-low-paris-sneakers-2024/)
+## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 05 Aug 2024 09:15:46 GMT*
+*Published on: Tue, 06 Aug 2024 08:45:34 GMT*
+
+
+## Paulina Porizkov
+
+## [ASICS' Leather Dad Shoe Is a New (Balance) Kind of Sneaker](https://www.highsnobiety.com/p/asics-gel-1130-leather-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:00:22 GMT*
+
+
+## Paulina Porizkov
+
+## [Everything SNKRheads Must Know for Nike SNKRS Day 2024](https://www.highsnobiety.com/p/nike-snkrs-day-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:10:02 GMT*
+
+
+## Paulina Porizkov
+
+## [Malls May Be Dead But Mall Brands Have Never Been More Alive](https://www.highsnobiety.com/p/mall-brand-renaissance-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:35:33 GMT*
 
 
 ## Paulina Porizkov
@@ -8548,13 +9277,22 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 05 Aug 2024 09:00:00 GMT*
 
 
-## Paris Hilton
+## Paulina Porizkov
 
 ## [The Celebrity Beauty Boom Isn't Over Yet](https://www.highsnobiety.com/p/celebrity-beauty-brands-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Mon, 05 Aug 2024 09:20:00 GMT*
+
+
+## Paulina Porizkov
+
+## [Oui? Oui! Nike's Paris-Themed Forces Are Scarily Good     ](https://www.highsnobiety.com/p/nike-air-force-1-low-paris-sneakers-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 09:15:46 GMT*
 
 
 ## Paris Hilton
@@ -8564,15 +9302,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Mon, 05 Aug 2024 09:46:18 GMT*
-
-
-## Paris Hilton
-
-## [Super Exclusive New Balances Are Coming to a City Near You](https://www.highsnobiety.com/p/new-balances-991v2-city-edition/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 10:02:39 GMT*
 
 
 ## Paris Hilton
@@ -8608,24 +9337,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Paris Hilton
 
-## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 16:35:34 GMT*
-
-
-## Paris Hilton
-
-## [ASICS' Leather Dad Shoe Is a New (Balance) Kind of Sneaker](https://www.highsnobiety.com/p/asics-gel-1130-leather-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 18:31:22 GMT*
-
-
-## Paris Hilton
-
 ## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -8635,11 +9346,38 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Paris Hilton
 
-## [Oui? Oui! Nike's Paris-Themed Forces Are Scarily Good     ](https://www.highsnobiety.com/p/nike-air-force-1-low-paris-sneakers-2024/)
+## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 05 Aug 2024 09:15:46 GMT*
+*Published on: Tue, 06 Aug 2024 08:45:34 GMT*
+
+
+## Paris Hilton
+
+## [ASICS' Leather Dad Shoe Is a New (Balance) Kind of Sneaker](https://www.highsnobiety.com/p/asics-gel-1130-leather-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:00:22 GMT*
+
+
+## Paris Hilton
+
+## [Everything SNKRheads Must Know for Nike SNKRS Day 2024](https://www.highsnobiety.com/p/nike-snkrs-day-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:10:02 GMT*
+
+
+## Paris Hilton
+
+## [Malls May Be Dead But Mall Brands Have Never Been More Alive](https://www.highsnobiety.com/p/mall-brand-renaissance-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:35:33 GMT*
 
 
 ## Paris Hilton
@@ -8651,13 +9389,22 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 05 Aug 2024 09:00:00 GMT*
 
 
-## Metro Boomin
+## Paris Hilton
 
 ## [The Celebrity Beauty Boom Isn't Over Yet](https://www.highsnobiety.com/p/celebrity-beauty-brands-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Mon, 05 Aug 2024 09:20:00 GMT*
+
+
+## Paris Hilton
+
+## [Oui? Oui! Nike's Paris-Themed Forces Are Scarily Good     ](https://www.highsnobiety.com/p/nike-air-force-1-low-paris-sneakers-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 09:15:46 GMT*
 
 
 ## Metro Boomin
@@ -8667,15 +9414,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Mon, 05 Aug 2024 09:46:18 GMT*
-
-
-## Metro Boomin
-
-## [Super Exclusive New Balances Are Coming to a City Near You](https://www.highsnobiety.com/p/new-balances-991v2-city-edition/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 10:02:39 GMT*
 
 
 ## Metro Boomin
@@ -8711,24 +9449,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Metro Boomin
 
-## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 16:35:34 GMT*
-
-
-## Metro Boomin
-
-## [ASICS' Leather Dad Shoe Is a New (Balance) Kind of Sneaker](https://www.highsnobiety.com/p/asics-gel-1130-leather-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 18:31:22 GMT*
-
-
-## Metro Boomin
-
 ## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -8738,11 +9458,38 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Metro Boomin
 
-## [Oui? Oui! Nike's Paris-Themed Forces Are Scarily Good     ](https://www.highsnobiety.com/p/nike-air-force-1-low-paris-sneakers-2024/)
+## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 05 Aug 2024 09:15:46 GMT*
+*Published on: Tue, 06 Aug 2024 08:45:34 GMT*
+
+
+## Metro Boomin
+
+## [ASICS' Leather Dad Shoe Is a New (Balance) Kind of Sneaker](https://www.highsnobiety.com/p/asics-gel-1130-leather-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:00:22 GMT*
+
+
+## Metro Boomin
+
+## [Everything SNKRheads Must Know for Nike SNKRS Day 2024](https://www.highsnobiety.com/p/nike-snkrs-day-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:10:02 GMT*
+
+
+## Metro Boomin
+
+## [Malls May Be Dead But Mall Brands Have Never Been More Alive](https://www.highsnobiety.com/p/mall-brand-renaissance-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:35:33 GMT*
 
 
 ## Metro Boomin
@@ -8754,13 +9501,22 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 05 Aug 2024 09:00:00 GMT*
 
 
-## Meghan Markle
+## Metro Boomin
 
 ## [The Celebrity Beauty Boom Isn't Over Yet](https://www.highsnobiety.com/p/celebrity-beauty-brands-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Mon, 05 Aug 2024 09:20:00 GMT*
+
+
+## Metro Boomin
+
+## [Oui? Oui! Nike's Paris-Themed Forces Are Scarily Good     ](https://www.highsnobiety.com/p/nike-air-force-1-low-paris-sneakers-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 09:15:46 GMT*
 
 
 ## Meghan Markle
@@ -8770,15 +9526,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Mon, 05 Aug 2024 09:46:18 GMT*
-
-
-## Meghan Markle
-
-## [Super Exclusive New Balances Are Coming to a City Near You](https://www.highsnobiety.com/p/new-balances-991v2-city-edition/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 10:02:39 GMT*
 
 
 ## Meghan Markle
@@ -8814,24 +9561,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Meghan Markle
 
-## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 16:35:34 GMT*
-
-
-## Meghan Markle
-
-## [ASICS' Leather Dad Shoe Is a New (Balance) Kind of Sneaker](https://www.highsnobiety.com/p/asics-gel-1130-leather-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 18:31:22 GMT*
-
-
-## Meghan Markle
-
 ## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -8841,11 +9570,38 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Meghan Markle
 
-## [Oui? Oui! Nike's Paris-Themed Forces Are Scarily Good     ](https://www.highsnobiety.com/p/nike-air-force-1-low-paris-sneakers-2024/)
+## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 05 Aug 2024 09:15:46 GMT*
+*Published on: Tue, 06 Aug 2024 08:45:34 GMT*
+
+
+## Meghan Markle
+
+## [ASICS' Leather Dad Shoe Is a New (Balance) Kind of Sneaker](https://www.highsnobiety.com/p/asics-gel-1130-leather-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:00:22 GMT*
+
+
+## Meghan Markle
+
+## [Everything SNKRheads Must Know for Nike SNKRS Day 2024](https://www.highsnobiety.com/p/nike-snkrs-day-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:10:02 GMT*
+
+
+## Meghan Markle
+
+## [Malls May Be Dead But Mall Brands Have Never Been More Alive](https://www.highsnobiety.com/p/mall-brand-renaissance-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:35:33 GMT*
 
 
 ## Meghan Markle
@@ -8857,13 +9613,22 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 05 Aug 2024 09:00:00 GMT*
 
 
-## Megan Thee Stallion
+## Meghan Markle
 
 ## [The Celebrity Beauty Boom Isn't Over Yet](https://www.highsnobiety.com/p/celebrity-beauty-brands-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Mon, 05 Aug 2024 09:20:00 GMT*
+
+
+## Meghan Markle
+
+## [Oui? Oui! Nike's Paris-Themed Forces Are Scarily Good     ](https://www.highsnobiety.com/p/nike-air-force-1-low-paris-sneakers-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 09:15:46 GMT*
 
 
 ## Megan Thee Stallion
@@ -8873,15 +9638,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Mon, 05 Aug 2024 09:46:18 GMT*
-
-
-## Megan Thee Stallion
-
-## [Super Exclusive New Balances Are Coming to a City Near You](https://www.highsnobiety.com/p/new-balances-991v2-city-edition/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 10:02:39 GMT*
 
 
 ## Megan Thee Stallion
@@ -8917,24 +9673,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Megan Thee Stallion
 
-## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 16:35:34 GMT*
-
-
-## Megan Thee Stallion
-
-## [ASICS' Leather Dad Shoe Is a New (Balance) Kind of Sneaker](https://www.highsnobiety.com/p/asics-gel-1130-leather-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 18:31:22 GMT*
-
-
-## Megan Thee Stallion
-
 ## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -8944,11 +9682,38 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Megan Thee Stallion
 
-## [Oui? Oui! Nike's Paris-Themed Forces Are Scarily Good     ](https://www.highsnobiety.com/p/nike-air-force-1-low-paris-sneakers-2024/)
+## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 05 Aug 2024 09:15:46 GMT*
+*Published on: Tue, 06 Aug 2024 08:45:34 GMT*
+
+
+## Megan Thee Stallion
+
+## [ASICS' Leather Dad Shoe Is a New (Balance) Kind of Sneaker](https://www.highsnobiety.com/p/asics-gel-1130-leather-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:00:22 GMT*
+
+
+## Megan Thee Stallion
+
+## [Everything SNKRheads Must Know for Nike SNKRS Day 2024](https://www.highsnobiety.com/p/nike-snkrs-day-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:10:02 GMT*
+
+
+## Megan Thee Stallion
+
+## [Malls May Be Dead But Mall Brands Have Never Been More Alive](https://www.highsnobiety.com/p/mall-brand-renaissance-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:35:33 GMT*
 
 
 ## Megan Thee Stallion
@@ -8960,13 +9725,22 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 05 Aug 2024 09:00:00 GMT*
 
 
-## Maya Rudolph
+## Megan Thee Stallion
 
 ## [The Celebrity Beauty Boom Isn't Over Yet](https://www.highsnobiety.com/p/celebrity-beauty-brands-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Mon, 05 Aug 2024 09:20:00 GMT*
+
+
+## Megan Thee Stallion
+
+## [Oui? Oui! Nike's Paris-Themed Forces Are Scarily Good     ](https://www.highsnobiety.com/p/nike-air-force-1-low-paris-sneakers-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 09:15:46 GMT*
 
 
 ## Maya Rudolph
@@ -8976,15 +9750,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Mon, 05 Aug 2024 09:46:18 GMT*
-
-
-## Maya Rudolph
-
-## [Super Exclusive New Balances Are Coming to a City Near You](https://www.highsnobiety.com/p/new-balances-991v2-city-edition/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 10:02:39 GMT*
 
 
 ## Maya Rudolph
@@ -9020,24 +9785,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Maya Rudolph
 
-## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 16:35:34 GMT*
-
-
-## Maya Rudolph
-
-## [ASICS' Leather Dad Shoe Is a New (Balance) Kind of Sneaker](https://www.highsnobiety.com/p/asics-gel-1130-leather-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 18:31:22 GMT*
-
-
-## Maya Rudolph
-
 ## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -9047,11 +9794,38 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Maya Rudolph
 
-## [Oui? Oui! Nike's Paris-Themed Forces Are Scarily Good     ](https://www.highsnobiety.com/p/nike-air-force-1-low-paris-sneakers-2024/)
+## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 05 Aug 2024 09:15:46 GMT*
+*Published on: Tue, 06 Aug 2024 08:45:34 GMT*
+
+
+## Maya Rudolph
+
+## [ASICS' Leather Dad Shoe Is a New (Balance) Kind of Sneaker](https://www.highsnobiety.com/p/asics-gel-1130-leather-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:00:22 GMT*
+
+
+## Maya Rudolph
+
+## [Everything SNKRheads Must Know for Nike SNKRS Day 2024](https://www.highsnobiety.com/p/nike-snkrs-day-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:10:02 GMT*
+
+
+## Maya Rudolph
+
+## [Malls May Be Dead But Mall Brands Have Never Been More Alive](https://www.highsnobiety.com/p/mall-brand-renaissance-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:35:33 GMT*
 
 
 ## Maya Rudolph
@@ -9063,13 +9837,22 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 05 Aug 2024 09:00:00 GMT*
 
 
-## Olivia Rodrigo
+## Maya Rudolph
 
 ## [The Celebrity Beauty Boom Isn't Over Yet](https://www.highsnobiety.com/p/celebrity-beauty-brands-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Mon, 05 Aug 2024 09:20:00 GMT*
+
+
+## Maya Rudolph
+
+## [Oui? Oui! Nike's Paris-Themed Forces Are Scarily Good     ](https://www.highsnobiety.com/p/nike-air-force-1-low-paris-sneakers-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 09:15:46 GMT*
 
 
 ## Olivia Rodrigo
@@ -9079,15 +9862,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Mon, 05 Aug 2024 09:46:18 GMT*
-
-
-## Olivia Rodrigo
-
-## [Super Exclusive New Balances Are Coming to a City Near You](https://www.highsnobiety.com/p/new-balances-991v2-city-edition/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 10:02:39 GMT*
 
 
 ## Olivia Rodrigo
@@ -9123,24 +9897,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Olivia Rodrigo
 
-## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 16:35:34 GMT*
-
-
-## Olivia Rodrigo
-
-## [ASICS' Leather Dad Shoe Is a New (Balance) Kind of Sneaker](https://www.highsnobiety.com/p/asics-gel-1130-leather-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 18:31:22 GMT*
-
-
-## Olivia Rodrigo
-
 ## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -9150,11 +9906,38 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Olivia Rodrigo
 
-## [Oui? Oui! Nike's Paris-Themed Forces Are Scarily Good     ](https://www.highsnobiety.com/p/nike-air-force-1-low-paris-sneakers-2024/)
+## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 05 Aug 2024 09:15:46 GMT*
+*Published on: Tue, 06 Aug 2024 08:45:34 GMT*
+
+
+## Olivia Rodrigo
+
+## [ASICS' Leather Dad Shoe Is a New (Balance) Kind of Sneaker](https://www.highsnobiety.com/p/asics-gel-1130-leather-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:00:22 GMT*
+
+
+## Olivia Rodrigo
+
+## [Everything SNKRheads Must Know for Nike SNKRS Day 2024](https://www.highsnobiety.com/p/nike-snkrs-day-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:10:02 GMT*
+
+
+## Olivia Rodrigo
+
+## [Malls May Be Dead But Mall Brands Have Never Been More Alive](https://www.highsnobiety.com/p/mall-brand-renaissance-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:35:33 GMT*
 
 
 ## Olivia Rodrigo
@@ -9166,13 +9949,22 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 05 Aug 2024 09:00:00 GMT*
 
 
-## Obama
+## Olivia Rodrigo
 
 ## [The Celebrity Beauty Boom Isn't Over Yet](https://www.highsnobiety.com/p/celebrity-beauty-brands-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Mon, 05 Aug 2024 09:20:00 GMT*
+
+
+## Olivia Rodrigo
+
+## [Oui? Oui! Nike's Paris-Themed Forces Are Scarily Good     ](https://www.highsnobiety.com/p/nike-air-force-1-low-paris-sneakers-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 09:15:46 GMT*
 
 
 ## Obama
@@ -9182,15 +9974,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Mon, 05 Aug 2024 09:46:18 GMT*
-
-
-## Obama
-
-## [Super Exclusive New Balances Are Coming to a City Near You](https://www.highsnobiety.com/p/new-balances-991v2-city-edition/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 10:02:39 GMT*
 
 
 ## Obama
@@ -9226,24 +10009,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Obama
 
-## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 16:35:34 GMT*
-
-
-## Obama
-
-## [ASICS' Leather Dad Shoe Is a New (Balance) Kind of Sneaker](https://www.highsnobiety.com/p/asics-gel-1130-leather-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 18:31:22 GMT*
-
-
-## Obama
-
 ## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -9253,11 +10018,38 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Obama
 
-## [Oui? Oui! Nike's Paris-Themed Forces Are Scarily Good     ](https://www.highsnobiety.com/p/nike-air-force-1-low-paris-sneakers-2024/)
+## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 05 Aug 2024 09:15:46 GMT*
+*Published on: Tue, 06 Aug 2024 08:45:34 GMT*
+
+
+## Obama
+
+## [ASICS' Leather Dad Shoe Is a New (Balance) Kind of Sneaker](https://www.highsnobiety.com/p/asics-gel-1130-leather-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:00:22 GMT*
+
+
+## Obama
+
+## [Everything SNKRheads Must Know for Nike SNKRS Day 2024](https://www.highsnobiety.com/p/nike-snkrs-day-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:10:02 GMT*
+
+
+## Obama
+
+## [Malls May Be Dead But Mall Brands Have Never Been More Alive](https://www.highsnobiety.com/p/mall-brand-renaissance-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:35:33 GMT*
 
 
 ## Obama
@@ -9269,13 +10061,22 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 05 Aug 2024 09:00:00 GMT*
 
 
-## Nicki Minaj
+## Obama
 
 ## [The Celebrity Beauty Boom Isn't Over Yet](https://www.highsnobiety.com/p/celebrity-beauty-brands-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Mon, 05 Aug 2024 09:20:00 GMT*
+
+
+## Obama
+
+## [Oui? Oui! Nike's Paris-Themed Forces Are Scarily Good     ](https://www.highsnobiety.com/p/nike-air-force-1-low-paris-sneakers-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 09:15:46 GMT*
 
 
 ## Nicki Minaj
@@ -9285,15 +10086,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Mon, 05 Aug 2024 09:46:18 GMT*
-
-
-## Nicki Minaj
-
-## [Super Exclusive New Balances Are Coming to a City Near You](https://www.highsnobiety.com/p/new-balances-991v2-city-edition/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 10:02:39 GMT*
 
 
 ## Nicki Minaj
@@ -9329,24 +10121,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Nicki Minaj
 
-## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 16:35:34 GMT*
-
-
-## Nicki Minaj
-
-## [ASICS' Leather Dad Shoe Is a New (Balance) Kind of Sneaker](https://www.highsnobiety.com/p/asics-gel-1130-leather-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 18:31:22 GMT*
-
-
-## Nicki Minaj
-
 ## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -9356,11 +10130,38 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Nicki Minaj
 
-## [Oui? Oui! Nike's Paris-Themed Forces Are Scarily Good     ](https://www.highsnobiety.com/p/nike-air-force-1-low-paris-sneakers-2024/)
+## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 05 Aug 2024 09:15:46 GMT*
+*Published on: Tue, 06 Aug 2024 08:45:34 GMT*
+
+
+## Nicki Minaj
+
+## [ASICS' Leather Dad Shoe Is a New (Balance) Kind of Sneaker](https://www.highsnobiety.com/p/asics-gel-1130-leather-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:00:22 GMT*
+
+
+## Nicki Minaj
+
+## [Everything SNKRheads Must Know for Nike SNKRS Day 2024](https://www.highsnobiety.com/p/nike-snkrs-day-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:10:02 GMT*
+
+
+## Nicki Minaj
+
+## [Malls May Be Dead But Mall Brands Have Never Been More Alive](https://www.highsnobiety.com/p/mall-brand-renaissance-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:35:33 GMT*
 
 
 ## Nicki Minaj
@@ -9372,13 +10173,22 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 05 Aug 2024 09:00:00 GMT*
 
 
-## MrBeast
+## Nicki Minaj
 
 ## [The Celebrity Beauty Boom Isn't Over Yet](https://www.highsnobiety.com/p/celebrity-beauty-brands-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Mon, 05 Aug 2024 09:20:00 GMT*
+
+
+## Nicki Minaj
+
+## [Oui? Oui! Nike's Paris-Themed Forces Are Scarily Good     ](https://www.highsnobiety.com/p/nike-air-force-1-low-paris-sneakers-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 09:15:46 GMT*
 
 
 ## MrBeast
@@ -9388,15 +10198,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Mon, 05 Aug 2024 09:46:18 GMT*
-
-
-## MrBeast
-
-## [Super Exclusive New Balances Are Coming to a City Near You](https://www.highsnobiety.com/p/new-balances-991v2-city-edition/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 10:02:39 GMT*
 
 
 ## MrBeast
@@ -9432,24 +10233,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## MrBeast
 
-## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 16:35:34 GMT*
-
-
-## MrBeast
-
-## [ASICS' Leather Dad Shoe Is a New (Balance) Kind of Sneaker](https://www.highsnobiety.com/p/asics-gel-1130-leather-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 05 Aug 2024 18:31:22 GMT*
-
-
-## MrBeast
-
 ## [Nike's Stylish Y2K Dad Shoe Is Ready for Its Vomero Moment](https://www.highsnobiety.com/p/nike-p-6000-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -9459,11 +10242,38 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## MrBeast
 
-## [Oui? Oui! Nike's Paris-Themed Forces Are Scarily Good     ](https://www.highsnobiety.com/p/nike-air-force-1-low-paris-sneakers-2024/)
+## [Turns Out, Venom Is a Sneakerhead](https://www.highsnobiety.com/p/tom-hardy-venom-off-white-jordan-sneakers-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 05 Aug 2024 09:15:46 GMT*
+*Published on: Tue, 06 Aug 2024 08:45:34 GMT*
+
+
+## MrBeast
+
+## [ASICS' Leather Dad Shoe Is a New (Balance) Kind of Sneaker](https://www.highsnobiety.com/p/asics-gel-1130-leather-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:00:22 GMT*
+
+
+## MrBeast
+
+## [Everything SNKRheads Must Know for Nike SNKRS Day 2024](https://www.highsnobiety.com/p/nike-snkrs-day-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:10:02 GMT*
+
+
+## MrBeast
+
+## [Malls May Be Dead But Mall Brands Have Never Been More Alive](https://www.highsnobiety.com/p/mall-brand-renaissance-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 06 Aug 2024 09:35:33 GMT*
 
 
 ## MrBeast
@@ -9473,5 +10283,23 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Mon, 05 Aug 2024 09:00:00 GMT*
+
+
+## MrBeast
+
+## [The Celebrity Beauty Boom Isn't Over Yet](https://www.highsnobiety.com/p/celebrity-beauty-brands-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 09:20:00 GMT*
+
+
+## MrBeast
+
+## [Oui? Oui! Nike's Paris-Themed Forces Are Scarily Good     ](https://www.highsnobiety.com/p/nike-air-force-1-low-paris-sneakers-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 05 Aug 2024 09:15:46 GMT*
 
 
