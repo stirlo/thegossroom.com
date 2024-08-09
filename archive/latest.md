@@ -10,7 +10,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Tim Cook
 
-## [Travis Scott Is the Face ( Eyes) of Oakley's Very Real Fashion Renaissance](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
+## [Travis Scott's Oakley Love Is Loud — Is Anyone Listening?](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -136,7 +136,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Taylor Swift
 
-## [Travis Scott Is the Face ( Eyes) of Oakley's Very Real Fashion Renaissance](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
+## [Travis Scott's Oakley Love Is Loud — Is Anyone Listening?](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -262,7 +262,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Tom Brady
 
-## [Travis Scott Is the Face ( Eyes) of Oakley's Very Real Fashion Renaissance](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
+## [Travis Scott's Oakley Love Is Loud — Is Anyone Listening?](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -388,7 +388,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Tina Fey
 
-## [Travis Scott Is the Face ( Eyes) of Oakley's Very Real Fashion Renaissance](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
+## [Travis Scott's Oakley Love Is Loud — Is Anyone Listening?](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -514,7 +514,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Steven Yuen
 
-## [Travis Scott Is the Face ( Eyes) of Oakley's Very Real Fashion Renaissance](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
+## [Travis Scott's Oakley Love Is Loud — Is Anyone Listening?](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -640,7 +640,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Sommer Ray
 
-## [Travis Scott Is the Face ( Eyes) of Oakley's Very Real Fashion Renaissance](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
+## [Travis Scott's Oakley Love Is Loud — Is Anyone Listening?](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -766,7 +766,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Sza
 
-## [Travis Scott Is the Face ( Eyes) of Oakley's Very Real Fashion Renaissance](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
+## [Travis Scott's Oakley Love Is Loud — Is Anyone Listening?](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -892,7 +892,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Sydney Sweeney
 
-## [Travis Scott Is the Face ( Eyes) of Oakley's Very Real Fashion Renaissance](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
+## [Travis Scott's Oakley Love Is Loud — Is Anyone Listening?](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -1018,7 +1018,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Walton Goggins
 
-## [Travis Scott Is the Face ( Eyes) of Oakley's Very Real Fashion Renaissance](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
+## [Travis Scott's Oakley Love Is Loud — Is Anyone Listening?](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -1144,7 +1144,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Tom Holland
 
-## [Travis Scott Is the Face ( Eyes) of Oakley's Very Real Fashion Renaissance](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
+## [Travis Scott's Oakley Love Is Loud — Is Anyone Listening?](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -1270,7 +1270,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Gucci Mane
 
-## [Travis Scott Is the Face ( Eyes) of Oakley's Very Real Fashion Renaissance](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
+## [Travis Scott's Oakley Love Is Loud — Is Anyone Listening?](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -1396,7 +1396,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Harry Styles
 
-## [Travis Scott Is the Face ( Eyes) of Oakley's Very Real Fashion Renaissance](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
+## [Travis Scott's Oakley Love Is Loud — Is Anyone Listening?](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -1522,7 +1522,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Jake Paul
 
-## [Travis Scott Is the Face ( Eyes) of Oakley's Very Real Fashion Renaissance](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
+## [Travis Scott's Oakley Love Is Loud — Is Anyone Listening?](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -1648,7 +1648,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Jameela Jamil
 
-## [Travis Scott Is the Face ( Eyes) of Oakley's Very Real Fashion Renaissance](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
+## [Travis Scott's Oakley Love Is Loud — Is Anyone Listening?](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -1774,7 +1774,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Elon Musk
 
-## [Travis Scott Is the Face ( Eyes) of Oakley's Very Real Fashion Renaissance](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
+## [Travis Scott's Oakley Love Is Loud — Is Anyone Listening?](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -1900,7 +1900,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Gabrielle Union
 
-## [Travis Scott Is the Face ( Eyes) of Oakley's Very Real Fashion Renaissance](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
+## [Travis Scott's Oakley Love Is Loud — Is Anyone Listening?](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -2026,7 +2026,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Giancarlo Esposito
 
-## [Travis Scott Is the Face ( Eyes) of Oakley's Very Real Fashion Renaissance](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
+## [Travis Scott's Oakley Love Is Loud — Is Anyone Listening?](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -2152,7 +2152,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Gillian Jacobs
 
-## [Travis Scott Is the Face ( Eyes) of Oakley's Very Real Fashion Renaissance](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
+## [Travis Scott's Oakley Love Is Loud — Is Anyone Listening?](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -2278,7 +2278,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Jason Mantzoukas
 
-## [Travis Scott Is the Face ( Eyes) of Oakley's Very Real Fashion Renaissance](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
+## [Travis Scott's Oakley Love Is Loud — Is Anyone Listening?](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -2404,7 +2404,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## JB Smoove
 
-## [Travis Scott Is the Face ( Eyes) of Oakley's Very Real Fashion Renaissance](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
+## [Travis Scott's Oakley Love Is Loud — Is Anyone Listening?](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -2530,7 +2530,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Madison Pettis
 
-## [Travis Scott Is the Face ( Eyes) of Oakley's Very Real Fashion Renaissance](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
+## [Travis Scott's Oakley Love Is Loud — Is Anyone Listening?](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -2656,7 +2656,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Austin Butler
 
-## [Travis Scott Is the Face ( Eyes) of Oakley's Very Real Fashion Renaissance](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
+## [Travis Scott's Oakley Love Is Loud — Is Anyone Listening?](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -2782,7 +2782,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Mark Zuckerberg
 
-## [Travis Scott Is the Face ( Eyes) of Oakley's Very Real Fashion Renaissance](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
+## [Travis Scott's Oakley Love Is Loud — Is Anyone Listening?](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -2908,7 +2908,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Ariana Grande
 
-## [Travis Scott Is the Face ( Eyes) of Oakley's Very Real Fashion Renaissance](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
+## [Travis Scott's Oakley Love Is Loud — Is Anyone Listening?](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -3034,7 +3034,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Livvy Dunne
 
-## [Travis Scott Is the Face ( Eyes) of Oakley's Very Real Fashion Renaissance](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
+## [Travis Scott's Oakley Love Is Loud — Is Anyone Listening?](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -3160,7 +3160,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Ali Wong
 
-## [Travis Scott Is the Face ( Eyes) of Oakley's Very Real Fashion Renaissance](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
+## [Travis Scott's Oakley Love Is Loud — Is Anyone Listening?](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -3286,7 +3286,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Lizzo
 
-## [Travis Scott Is the Face ( Eyes) of Oakley's Very Real Fashion Renaissance](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
+## [Travis Scott's Oakley Love Is Loud — Is Anyone Listening?](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -3412,7 +3412,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Alison Brie
 
-## [Travis Scott Is the Face ( Eyes) of Oakley's Very Real Fashion Renaissance](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
+## [Travis Scott's Oakley Love Is Loud — Is Anyone Listening?](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -3538,7 +3538,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Lil Wayne
 
-## [Travis Scott Is the Face ( Eyes) of Oakley's Very Real Fashion Renaissance](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
+## [Travis Scott's Oakley Love Is Loud — Is Anyone Listening?](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -3664,7 +3664,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Adele
 
-## [Travis Scott Is the Face ( Eyes) of Oakley's Very Real Fashion Renaissance](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
+## [Travis Scott's Oakley Love Is Loud — Is Anyone Listening?](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -3790,7 +3790,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Lindsay Lohan
 
-## [Travis Scott Is the Face ( Eyes) of Oakley's Very Real Fashion Renaissance](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
+## [Travis Scott's Oakley Love Is Loud — Is Anyone Listening?](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -3916,7 +3916,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Addison Rae
 
-## [Travis Scott Is the Face ( Eyes) of Oakley's Very Real Fashion Renaissance](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
+## [Travis Scott's Oakley Love Is Loud — Is Anyone Listening?](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -4042,7 +4042,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Latto
 
-## [Travis Scott Is the Face ( Eyes) of Oakley's Very Real Fashion Renaissance](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
+## [Travis Scott's Oakley Love Is Loud — Is Anyone Listening?](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -4168,7 +4168,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Aaron Paul
 
-## [Travis Scott Is the Face ( Eyes) of Oakley's Very Real Fashion Renaissance](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
+## [Travis Scott's Oakley Love Is Loud — Is Anyone Listening?](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -4294,7 +4294,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## LeBron James
 
-## [Travis Scott Is the Face ( Eyes) of Oakley's Very Real Fashion Renaissance](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
+## [Travis Scott's Oakley Love Is Loud — Is Anyone Listening?](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -4420,7 +4420,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## 50 Cent
 
-## [Travis Scott Is the Face ( Eyes) of Oakley's Very Real Fashion Renaissance](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
+## [Travis Scott's Oakley Love Is Loud — Is Anyone Listening?](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -4546,7 +4546,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Kesha
 
-## [Travis Scott Is the Face ( Eyes) of Oakley's Very Real Fashion Renaissance](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
+## [Travis Scott's Oakley Love Is Loud — Is Anyone Listening?](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -4672,7 +4672,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## 21 Savage
 
-## [Travis Scott Is the Face ( Eyes) of Oakley's Very Real Fashion Renaissance](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
+## [Travis Scott's Oakley Love Is Loud — Is Anyone Listening?](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -4798,7 +4798,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Larry David
 
-## [Travis Scott Is the Face ( Eyes) of Oakley's Very Real Fashion Renaissance](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
+## [Travis Scott's Oakley Love Is Loud — Is Anyone Listening?](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -4924,7 +4924,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Seth Rogan
 
-## [Travis Scott Is the Face ( Eyes) of Oakley's Very Real Fashion Renaissance](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
+## [Travis Scott's Oakley Love Is Loud — Is Anyone Listening?](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -5050,7 +5050,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Simone Biles
 
-## [Travis Scott Is the Face ( Eyes) of Oakley's Very Real Fashion Renaissance](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
+## [Travis Scott's Oakley Love Is Loud — Is Anyone Listening?](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -5176,7 +5176,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Pete Davidson
 
-## [Travis Scott Is the Face ( Eyes) of Oakley's Very Real Fashion Renaissance](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
+## [Travis Scott's Oakley Love Is Loud — Is Anyone Listening?](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -5302,7 +5302,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Prince Harry
 
-## [Travis Scott Is the Face ( Eyes) of Oakley's Very Real Fashion Renaissance](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
+## [Travis Scott's Oakley Love Is Loud — Is Anyone Listening?](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -5428,7 +5428,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Princess of Wales
 
-## [Travis Scott Is the Face ( Eyes) of Oakley's Very Real Fashion Renaissance](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
+## [Travis Scott's Oakley Love Is Loud — Is Anyone Listening?](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -5554,7 +5554,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Rachel McAdams
 
-## [Travis Scott Is the Face ( Eyes) of Oakley's Very Real Fashion Renaissance](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
+## [Travis Scott's Oakley Love Is Loud — Is Anyone Listening?](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -5680,7 +5680,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Reneé Rapp
 
-## [Travis Scott Is the Face ( Eyes) of Oakley's Very Real Fashion Renaissance](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
+## [Travis Scott's Oakley Love Is Loud — Is Anyone Listening?](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -5806,7 +5806,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Rick Ross
 
-## [Travis Scott Is the Face ( Eyes) of Oakley's Very Real Fashion Renaissance](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
+## [Travis Scott's Oakley Love Is Loud — Is Anyone Listening?](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -5932,7 +5932,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Sam Ashgari
 
-## [Travis Scott Is the Face ( Eyes) of Oakley's Very Real Fashion Renaissance](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
+## [Travis Scott's Oakley Love Is Loud — Is Anyone Listening?](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -6058,7 +6058,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Sandra Oh
 
-## [Travis Scott Is the Face ( Eyes) of Oakley's Very Real Fashion Renaissance](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
+## [Travis Scott's Oakley Love Is Loud — Is Anyone Listening?](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -6184,7 +6184,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Donald Trump
 
-## [Travis Scott Is the Face ( Eyes) of Oakley's Very Real Fashion Renaissance](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
+## [Travis Scott's Oakley Love Is Loud — Is Anyone Listening?](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -6310,7 +6310,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Diddy
 
-## [Travis Scott Is the Face ( Eyes) of Oakley's Very Real Fashion Renaissance](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
+## [Travis Scott's Oakley Love Is Loud — Is Anyone Listening?](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -6436,7 +6436,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## City Girls
 
-## [Travis Scott Is the Face ( Eyes) of Oakley's Very Real Fashion Renaissance](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
+## [Travis Scott's Oakley Love Is Loud — Is Anyone Listening?](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -6562,7 +6562,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Chloe Bailey
 
-## [Travis Scott Is the Face ( Eyes) of Oakley's Very Real Fashion Renaissance](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
+## [Travis Scott's Oakley Love Is Loud — Is Anyone Listening?](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -6688,7 +6688,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Charli D Amelio
 
-## [Travis Scott Is the Face ( Eyes) of Oakley's Very Real Fashion Renaissance](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
+## [Travis Scott's Oakley Love Is Loud — Is Anyone Listening?](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -6814,7 +6814,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Cardi B
 
-## [Travis Scott Is the Face ( Eyes) of Oakley's Very Real Fashion Renaissance](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
+## [Travis Scott's Oakley Love Is Loud — Is Anyone Listening?](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -6940,7 +6940,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Bryan Cranston
 
-## [Travis Scott Is the Face ( Eyes) of Oakley's Very Real Fashion Renaissance](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
+## [Travis Scott's Oakley Love Is Loud — Is Anyone Listening?](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -7066,7 +7066,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Brielle Biermann
 
-## [Travis Scott Is the Face ( Eyes) of Oakley's Very Real Fashion Renaissance](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
+## [Travis Scott's Oakley Love Is Loud — Is Anyone Listening?](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -7192,7 +7192,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Dua Lipa
 
-## [Travis Scott Is the Face ( Eyes) of Oakley's Very Real Fashion Renaissance](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
+## [Travis Scott's Oakley Love Is Loud — Is Anyone Listening?](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -7318,7 +7318,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Drake
 
-## [Travis Scott Is the Face ( Eyes) of Oakley's Very Real Fashion Renaissance](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
+## [Travis Scott's Oakley Love Is Loud — Is Anyone Listening?](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -7444,7 +7444,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Jenner
 
-## [Travis Scott Is the Face ( Eyes) of Oakley's Very Real Fashion Renaissance](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
+## [Travis Scott's Oakley Love Is Loud — Is Anyone Listening?](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -7570,7 +7570,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## J. Cole
 
-## [Travis Scott Is the Face ( Eyes) of Oakley's Very Real Fashion Renaissance](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
+## [Travis Scott's Oakley Love Is Loud — Is Anyone Listening?](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -7696,7 +7696,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Jerrod Carmichael
 
-## [Travis Scott Is the Face ( Eyes) of Oakley's Very Real Fashion Renaissance](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
+## [Travis Scott's Oakley Love Is Loud — Is Anyone Listening?](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -7822,7 +7822,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Jennifer Lawrence
 
-## [Travis Scott Is the Face ( Eyes) of Oakley's Very Real Fashion Renaissance](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
+## [Travis Scott's Oakley Love Is Loud — Is Anyone Listening?](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -7948,7 +7948,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Joe Biden
 
-## [Travis Scott Is the Face ( Eyes) of Oakley's Very Real Fashion Renaissance](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
+## [Travis Scott's Oakley Love Is Loud — Is Anyone Listening?](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -8074,7 +8074,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## J.K. Simmons
 
-## [Travis Scott Is the Face ( Eyes) of Oakley's Very Real Fashion Renaissance](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
+## [Travis Scott's Oakley Love Is Loud — Is Anyone Listening?](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -8200,7 +8200,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Kamala Harris
 
-## [Travis Scott Is the Face ( Eyes) of Oakley's Very Real Fashion Renaissance](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
+## [Travis Scott's Oakley Love Is Loud — Is Anyone Listening?](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -8326,7 +8326,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## John C Reilly
 
-## [Travis Scott Is the Face ( Eyes) of Oakley's Very Real Fashion Renaissance](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
+## [Travis Scott's Oakley Love Is Loud — Is Anyone Listening?](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -8452,7 +8452,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Kardashian
 
-## [Travis Scott Is the Face ( Eyes) of Oakley's Very Real Fashion Renaissance](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
+## [Travis Scott's Oakley Love Is Loud — Is Anyone Listening?](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -8578,7 +8578,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Kanye
 
-## [Travis Scott Is the Face ( Eyes) of Oakley's Very Real Fashion Renaissance](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
+## [Travis Scott's Oakley Love Is Loud — Is Anyone Listening?](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -8704,7 +8704,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Zendaya
 
-## [Travis Scott Is the Face ( Eyes) of Oakley's Very Real Fashion Renaissance](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
+## [Travis Scott's Oakley Love Is Loud — Is Anyone Listening?](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -8830,7 +8830,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Will Ferrell
 
-## [Travis Scott Is the Face ( Eyes) of Oakley's Very Real Fashion Renaissance](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
+## [Travis Scott's Oakley Love Is Loud — Is Anyone Listening?](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -8956,7 +8956,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Zazie Beetz
 
-## [Travis Scott Is the Face ( Eyes) of Oakley's Very Real Fashion Renaissance](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
+## [Travis Scott's Oakley Love Is Loud — Is Anyone Listening?](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -9082,7 +9082,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Bob Odenkirk
 
-## [Travis Scott Is the Face ( Eyes) of Oakley's Very Real Fashion Renaissance](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
+## [Travis Scott's Oakley Love Is Loud — Is Anyone Listening?](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -9208,7 +9208,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Brad Pitt
 
-## [Travis Scott Is the Face ( Eyes) of Oakley's Very Real Fashion Renaissance](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
+## [Travis Scott's Oakley Love Is Loud — Is Anyone Listening?](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -9334,7 +9334,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Beyoncé
 
-## [Travis Scott Is the Face ( Eyes) of Oakley's Very Real Fashion Renaissance](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
+## [Travis Scott's Oakley Love Is Loud — Is Anyone Listening?](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -9460,7 +9460,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Bia
 
-## [Travis Scott Is the Face ( Eyes) of Oakley's Very Real Fashion Renaissance](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
+## [Travis Scott's Oakley Love Is Loud — Is Anyone Listening?](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -9586,7 +9586,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Avantika
 
-## [Travis Scott Is the Face ( Eyes) of Oakley's Very Real Fashion Renaissance](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
+## [Travis Scott's Oakley Love Is Loud — Is Anyone Listening?](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -9712,7 +9712,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Bernie Sanders
 
-## [Travis Scott Is the Face ( Eyes) of Oakley's Very Real Fashion Renaissance](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
+## [Travis Scott's Oakley Love Is Loud — Is Anyone Listening?](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -9838,7 +9838,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Big Sean
 
-## [Travis Scott Is the Face ( Eyes) of Oakley's Very Real Fashion Renaissance](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
+## [Travis Scott's Oakley Love Is Loud — Is Anyone Listening?](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -9964,7 +9964,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## BlockBoy JB
 
-## [Travis Scott Is the Face ( Eyes) of Oakley's Very Real Fashion Renaissance](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
+## [Travis Scott's Oakley Love Is Loud — Is Anyone Listening?](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -10090,7 +10090,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Biden
 
-## [Travis Scott Is the Face ( Eyes) of Oakley's Very Real Fashion Renaissance](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
+## [Travis Scott's Oakley Love Is Loud — Is Anyone Listening?](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -10216,7 +10216,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Bieber
 
-## [Travis Scott Is the Face ( Eyes) of Oakley's Very Real Fashion Renaissance](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
+## [Travis Scott's Oakley Love Is Loud — Is Anyone Listening?](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -10342,7 +10342,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Paulina Porizkov
 
-## [Travis Scott Is the Face ( Eyes) of Oakley's Very Real Fashion Renaissance](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
+## [Travis Scott's Oakley Love Is Loud — Is Anyone Listening?](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -10468,7 +10468,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Paris Hilton
 
-## [Travis Scott Is the Face ( Eyes) of Oakley's Very Real Fashion Renaissance](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
+## [Travis Scott's Oakley Love Is Loud — Is Anyone Listening?](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -10594,7 +10594,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Metro Boomin
 
-## [Travis Scott Is the Face ( Eyes) of Oakley's Very Real Fashion Renaissance](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
+## [Travis Scott's Oakley Love Is Loud — Is Anyone Listening?](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -10720,7 +10720,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Meghan Markle
 
-## [Travis Scott Is the Face ( Eyes) of Oakley's Very Real Fashion Renaissance](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
+## [Travis Scott's Oakley Love Is Loud — Is Anyone Listening?](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -10846,7 +10846,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Megan Thee Stallion
 
-## [Travis Scott Is the Face ( Eyes) of Oakley's Very Real Fashion Renaissance](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
+## [Travis Scott's Oakley Love Is Loud — Is Anyone Listening?](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -10972,7 +10972,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Maya Rudolph
 
-## [Travis Scott Is the Face ( Eyes) of Oakley's Very Real Fashion Renaissance](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
+## [Travis Scott's Oakley Love Is Loud — Is Anyone Listening?](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -11098,7 +11098,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Olivia Rodrigo
 
-## [Travis Scott Is the Face ( Eyes) of Oakley's Very Real Fashion Renaissance](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
+## [Travis Scott's Oakley Love Is Loud — Is Anyone Listening?](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -11224,7 +11224,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Obama
 
-## [Travis Scott Is the Face ( Eyes) of Oakley's Very Real Fashion Renaissance](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
+## [Travis Scott's Oakley Love Is Loud — Is Anyone Listening?](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -11350,7 +11350,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Nicki Minaj
 
-## [Travis Scott Is the Face ( Eyes) of Oakley's Very Real Fashion Renaissance](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
+## [Travis Scott's Oakley Love Is Loud — Is Anyone Listening?](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -11476,7 +11476,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## MrBeast
 
-## [Travis Scott Is the Face ( Eyes) of Oakley's Very Real Fashion Renaissance](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
+## [Travis Scott's Oakley Love Is Loud — Is Anyone Listening?](https://www.highsnobiety.com/p/travis-scott-oakley-fashion-comeback/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
