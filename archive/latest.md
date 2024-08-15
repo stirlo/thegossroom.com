@@ -1,6 +1,15 @@
 # Latest Stories
 ## Tim Cook
 
+## [Crocs' Prettiest Clog Is the Best of Two "It" Shoes](https://www.highsnobiety.com/p/crocs-mary-jane-clogs-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 13 Aug 2024 18:24:00 GMT*
+
+
+## Tim Cook
+
 ## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -55,6 +64,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Taylor Swift
 
+## [Crocs' Prettiest Clog Is the Best of Two "It" Shoes](https://www.highsnobiety.com/p/crocs-mary-jane-clogs-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 13 Aug 2024 18:24:00 GMT*
+
+
+## Taylor Swift
+
 ## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -109,6 +127,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Tom Brady
 
+## [Crocs' Prettiest Clog Is the Best of Two "It" Shoes](https://www.highsnobiety.com/p/crocs-mary-jane-clogs-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 13 Aug 2024 18:24:00 GMT*
+
+
+## Tom Brady
+
 ## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -163,6 +190,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Tina Fey
 
+## [Crocs' Prettiest Clog Is the Best of Two "It" Shoes](https://www.highsnobiety.com/p/crocs-mary-jane-clogs-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 13 Aug 2024 18:24:00 GMT*
+
+
+## Tina Fey
+
 ## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -217,6 +253,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Steven Yuen
 
+## [Crocs' Prettiest Clog Is the Best of Two "It" Shoes](https://www.highsnobiety.com/p/crocs-mary-jane-clogs-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 13 Aug 2024 18:24:00 GMT*
+
+
+## Steven Yuen
+
 ## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -271,6 +316,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Sommer Ray
 
+## [Crocs' Prettiest Clog Is the Best of Two "It" Shoes](https://www.highsnobiety.com/p/crocs-mary-jane-clogs-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 13 Aug 2024 18:24:00 GMT*
+
+
+## Sommer Ray
+
 ## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -325,6 +379,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Sza
 
+## [Crocs' Prettiest Clog Is the Best of Two "It" Shoes](https://www.highsnobiety.com/p/crocs-mary-jane-clogs-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 13 Aug 2024 18:24:00 GMT*
+
+
+## Sza
+
 ## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -379,6 +442,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Sydney Sweeney
 
+## [Crocs' Prettiest Clog Is the Best of Two "It" Shoes](https://www.highsnobiety.com/p/crocs-mary-jane-clogs-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 13 Aug 2024 18:24:00 GMT*
+
+
+## Sydney Sweeney
+
 ## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -433,6 +505,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Walton Goggins
 
+## [Crocs' Prettiest Clog Is the Best of Two "It" Shoes](https://www.highsnobiety.com/p/crocs-mary-jane-clogs-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 13 Aug 2024 18:24:00 GMT*
+
+
+## Walton Goggins
+
 ## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -487,6 +568,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Tom Holland
 
+## [Crocs' Prettiest Clog Is the Best of Two "It" Shoes](https://www.highsnobiety.com/p/crocs-mary-jane-clogs-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 13 Aug 2024 18:24:00 GMT*
+
+
+## Tom Holland
+
 ## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -541,6 +631,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Gucci Mane
 
+## [Crocs' Prettiest Clog Is the Best of Two "It" Shoes](https://www.highsnobiety.com/p/crocs-mary-jane-clogs-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 13 Aug 2024 18:24:00 GMT*
+
+
+## Gucci Mane
+
 ## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -595,6 +694,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Harry Styles
 
+## [Crocs' Prettiest Clog Is the Best of Two "It" Shoes](https://www.highsnobiety.com/p/crocs-mary-jane-clogs-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 13 Aug 2024 18:24:00 GMT*
+
+
+## Harry Styles
+
 ## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -649,6 +757,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Jake Paul
 
+## [Crocs' Prettiest Clog Is the Best of Two "It" Shoes](https://www.highsnobiety.com/p/crocs-mary-jane-clogs-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 13 Aug 2024 18:24:00 GMT*
+
+
+## Jake Paul
+
 ## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -703,6 +820,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Jameela Jamil
 
+## [Crocs' Prettiest Clog Is the Best of Two "It" Shoes](https://www.highsnobiety.com/p/crocs-mary-jane-clogs-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 13 Aug 2024 18:24:00 GMT*
+
+
+## Jameela Jamil
+
 ## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -757,6 +883,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Elon Musk
 
+## [Crocs' Prettiest Clog Is the Best of Two "It" Shoes](https://www.highsnobiety.com/p/crocs-mary-jane-clogs-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 13 Aug 2024 18:24:00 GMT*
+
+
+## Elon Musk
+
 ## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -811,6 +946,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Gabrielle Union
 
+## [Crocs' Prettiest Clog Is the Best of Two "It" Shoes](https://www.highsnobiety.com/p/crocs-mary-jane-clogs-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 13 Aug 2024 18:24:00 GMT*
+
+
+## Gabrielle Union
+
 ## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -865,6 +1009,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Giancarlo Esposito
 
+## [Crocs' Prettiest Clog Is the Best of Two "It" Shoes](https://www.highsnobiety.com/p/crocs-mary-jane-clogs-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 13 Aug 2024 18:24:00 GMT*
+
+
+## Giancarlo Esposito
+
 ## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -919,6 +1072,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Gillian Jacobs
 
+## [Crocs' Prettiest Clog Is the Best of Two "It" Shoes](https://www.highsnobiety.com/p/crocs-mary-jane-clogs-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 13 Aug 2024 18:24:00 GMT*
+
+
+## Gillian Jacobs
+
 ## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -973,6 +1135,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Jason Mantzoukas
 
+## [Crocs' Prettiest Clog Is the Best of Two "It" Shoes](https://www.highsnobiety.com/p/crocs-mary-jane-clogs-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 13 Aug 2024 18:24:00 GMT*
+
+
+## Jason Mantzoukas
+
 ## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1027,6 +1198,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## JB Smoove
 
+## [Crocs' Prettiest Clog Is the Best of Two "It" Shoes](https://www.highsnobiety.com/p/crocs-mary-jane-clogs-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 13 Aug 2024 18:24:00 GMT*
+
+
+## JB Smoove
+
 ## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1081,6 +1261,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Madison Pettis
 
+## [Crocs' Prettiest Clog Is the Best of Two "It" Shoes](https://www.highsnobiety.com/p/crocs-mary-jane-clogs-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 13 Aug 2024 18:24:00 GMT*
+
+
+## Madison Pettis
+
 ## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1135,6 +1324,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Austin Butler
 
+## [Crocs' Prettiest Clog Is the Best of Two "It" Shoes](https://www.highsnobiety.com/p/crocs-mary-jane-clogs-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 13 Aug 2024 18:24:00 GMT*
+
+
+## Austin Butler
+
 ## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1189,6 +1387,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Mark Zuckerberg
 
+## [Crocs' Prettiest Clog Is the Best of Two "It" Shoes](https://www.highsnobiety.com/p/crocs-mary-jane-clogs-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 13 Aug 2024 18:24:00 GMT*
+
+
+## Mark Zuckerberg
+
 ## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1243,6 +1450,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Ariana Grande
 
+## [Crocs' Prettiest Clog Is the Best of Two "It" Shoes](https://www.highsnobiety.com/p/crocs-mary-jane-clogs-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 13 Aug 2024 18:24:00 GMT*
+
+
+## Ariana Grande
+
 ## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1297,6 +1513,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Livvy Dunne
 
+## [Crocs' Prettiest Clog Is the Best of Two "It" Shoes](https://www.highsnobiety.com/p/crocs-mary-jane-clogs-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 13 Aug 2024 18:24:00 GMT*
+
+
+## Livvy Dunne
+
 ## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1351,6 +1576,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Ali Wong
 
+## [Crocs' Prettiest Clog Is the Best of Two "It" Shoes](https://www.highsnobiety.com/p/crocs-mary-jane-clogs-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 13 Aug 2024 18:24:00 GMT*
+
+
+## Ali Wong
+
 ## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1405,6 +1639,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Lizzo
 
+## [Crocs' Prettiest Clog Is the Best of Two "It" Shoes](https://www.highsnobiety.com/p/crocs-mary-jane-clogs-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 13 Aug 2024 18:24:00 GMT*
+
+
+## Lizzo
+
 ## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1459,6 +1702,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Alison Brie
 
+## [Crocs' Prettiest Clog Is the Best of Two "It" Shoes](https://www.highsnobiety.com/p/crocs-mary-jane-clogs-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 13 Aug 2024 18:24:00 GMT*
+
+
+## Alison Brie
+
 ## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1513,6 +1765,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Lil Wayne
 
+## [Crocs' Prettiest Clog Is the Best of Two "It" Shoes](https://www.highsnobiety.com/p/crocs-mary-jane-clogs-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 13 Aug 2024 18:24:00 GMT*
+
+
+## Lil Wayne
+
 ## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1567,6 +1828,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Adele
 
+## [Crocs' Prettiest Clog Is the Best of Two "It" Shoes](https://www.highsnobiety.com/p/crocs-mary-jane-clogs-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 13 Aug 2024 18:24:00 GMT*
+
+
+## Adele
+
 ## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1621,6 +1891,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Lindsay Lohan
 
+## [Crocs' Prettiest Clog Is the Best of Two "It" Shoes](https://www.highsnobiety.com/p/crocs-mary-jane-clogs-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 13 Aug 2024 18:24:00 GMT*
+
+
+## Lindsay Lohan
+
 ## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1675,6 +1954,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Addison Rae
 
+## [Crocs' Prettiest Clog Is the Best of Two "It" Shoes](https://www.highsnobiety.com/p/crocs-mary-jane-clogs-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 13 Aug 2024 18:24:00 GMT*
+
+
+## Addison Rae
+
 ## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1729,6 +2017,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Latto
 
+## [Crocs' Prettiest Clog Is the Best of Two "It" Shoes](https://www.highsnobiety.com/p/crocs-mary-jane-clogs-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 13 Aug 2024 18:24:00 GMT*
+
+
+## Latto
+
 ## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1783,6 +2080,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Aaron Paul
 
+## [Crocs' Prettiest Clog Is the Best of Two "It" Shoes](https://www.highsnobiety.com/p/crocs-mary-jane-clogs-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 13 Aug 2024 18:24:00 GMT*
+
+
+## Aaron Paul
+
 ## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1837,6 +2143,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## LeBron James
 
+## [Crocs' Prettiest Clog Is the Best of Two "It" Shoes](https://www.highsnobiety.com/p/crocs-mary-jane-clogs-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 13 Aug 2024 18:24:00 GMT*
+
+
+## LeBron James
+
 ## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1891,6 +2206,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## 50 Cent
 
+## [Crocs' Prettiest Clog Is the Best of Two "It" Shoes](https://www.highsnobiety.com/p/crocs-mary-jane-clogs-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 13 Aug 2024 18:24:00 GMT*
+
+
+## 50 Cent
+
 ## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1945,6 +2269,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Kesha
 
+## [Crocs' Prettiest Clog Is the Best of Two "It" Shoes](https://www.highsnobiety.com/p/crocs-mary-jane-clogs-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 13 Aug 2024 18:24:00 GMT*
+
+
+## Kesha
+
 ## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1999,6 +2332,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## 21 Savage
 
+## [Crocs' Prettiest Clog Is the Best of Two "It" Shoes](https://www.highsnobiety.com/p/crocs-mary-jane-clogs-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 13 Aug 2024 18:24:00 GMT*
+
+
+## 21 Savage
+
 ## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2053,6 +2395,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Larry David
 
+## [Crocs' Prettiest Clog Is the Best of Two "It" Shoes](https://www.highsnobiety.com/p/crocs-mary-jane-clogs-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 13 Aug 2024 18:24:00 GMT*
+
+
+## Larry David
+
 ## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2107,6 +2458,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Seth Rogan
 
+## [Crocs' Prettiest Clog Is the Best of Two "It" Shoes](https://www.highsnobiety.com/p/crocs-mary-jane-clogs-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 13 Aug 2024 18:24:00 GMT*
+
+
+## Seth Rogan
+
 ## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2161,6 +2521,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Simone Biles
 
+## [Crocs' Prettiest Clog Is the Best of Two "It" Shoes](https://www.highsnobiety.com/p/crocs-mary-jane-clogs-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 13 Aug 2024 18:24:00 GMT*
+
+
+## Simone Biles
+
 ## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2215,6 +2584,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Pete Davidson
 
+## [Crocs' Prettiest Clog Is the Best of Two "It" Shoes](https://www.highsnobiety.com/p/crocs-mary-jane-clogs-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 13 Aug 2024 18:24:00 GMT*
+
+
+## Pete Davidson
+
 ## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2269,6 +2647,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Prince Harry
 
+## [Crocs' Prettiest Clog Is the Best of Two "It" Shoes](https://www.highsnobiety.com/p/crocs-mary-jane-clogs-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 13 Aug 2024 18:24:00 GMT*
+
+
+## Prince Harry
+
 ## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2323,6 +2710,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Princess of Wales
 
+## [Crocs' Prettiest Clog Is the Best of Two "It" Shoes](https://www.highsnobiety.com/p/crocs-mary-jane-clogs-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 13 Aug 2024 18:24:00 GMT*
+
+
+## Princess of Wales
+
 ## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2377,6 +2773,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Rachel McAdams
 
+## [Crocs' Prettiest Clog Is the Best of Two "It" Shoes](https://www.highsnobiety.com/p/crocs-mary-jane-clogs-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 13 Aug 2024 18:24:00 GMT*
+
+
+## Rachel McAdams
+
 ## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2431,6 +2836,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Reneé Rapp
 
+## [Crocs' Prettiest Clog Is the Best of Two "It" Shoes](https://www.highsnobiety.com/p/crocs-mary-jane-clogs-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 13 Aug 2024 18:24:00 GMT*
+
+
+## Reneé Rapp
+
 ## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2485,6 +2899,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Rick Ross
 
+## [Crocs' Prettiest Clog Is the Best of Two "It" Shoes](https://www.highsnobiety.com/p/crocs-mary-jane-clogs-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 13 Aug 2024 18:24:00 GMT*
+
+
+## Rick Ross
+
 ## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2539,6 +2962,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Sam Ashgari
 
+## [Crocs' Prettiest Clog Is the Best of Two "It" Shoes](https://www.highsnobiety.com/p/crocs-mary-jane-clogs-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 13 Aug 2024 18:24:00 GMT*
+
+
+## Sam Ashgari
+
 ## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2593,6 +3025,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Sandra Oh
 
+## [Crocs' Prettiest Clog Is the Best of Two "It" Shoes](https://www.highsnobiety.com/p/crocs-mary-jane-clogs-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 13 Aug 2024 18:24:00 GMT*
+
+
+## Sandra Oh
+
 ## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2647,6 +3088,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Donald Trump
 
+## [Crocs' Prettiest Clog Is the Best of Two "It" Shoes](https://www.highsnobiety.com/p/crocs-mary-jane-clogs-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 13 Aug 2024 18:24:00 GMT*
+
+
+## Donald Trump
+
 ## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2701,6 +3151,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Diddy
 
+## [Crocs' Prettiest Clog Is the Best of Two "It" Shoes](https://www.highsnobiety.com/p/crocs-mary-jane-clogs-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 13 Aug 2024 18:24:00 GMT*
+
+
+## Diddy
+
 ## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2755,6 +3214,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## City Girls
 
+## [Crocs' Prettiest Clog Is the Best of Two "It" Shoes](https://www.highsnobiety.com/p/crocs-mary-jane-clogs-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 13 Aug 2024 18:24:00 GMT*
+
+
+## City Girls
+
 ## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2809,6 +3277,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Chloe Bailey
 
+## [Crocs' Prettiest Clog Is the Best of Two "It" Shoes](https://www.highsnobiety.com/p/crocs-mary-jane-clogs-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 13 Aug 2024 18:24:00 GMT*
+
+
+## Chloe Bailey
+
 ## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2863,6 +3340,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Charli D Amelio
 
+## [Crocs' Prettiest Clog Is the Best of Two "It" Shoes](https://www.highsnobiety.com/p/crocs-mary-jane-clogs-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 13 Aug 2024 18:24:00 GMT*
+
+
+## Charli D Amelio
+
 ## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2917,6 +3403,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Cardi B
 
+## [Crocs' Prettiest Clog Is the Best of Two "It" Shoes](https://www.highsnobiety.com/p/crocs-mary-jane-clogs-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 13 Aug 2024 18:24:00 GMT*
+
+
+## Cardi B
+
 ## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2971,6 +3466,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Bryan Cranston
 
+## [Crocs' Prettiest Clog Is the Best of Two "It" Shoes](https://www.highsnobiety.com/p/crocs-mary-jane-clogs-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 13 Aug 2024 18:24:00 GMT*
+
+
+## Bryan Cranston
+
 ## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3025,6 +3529,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Brielle Biermann
 
+## [Crocs' Prettiest Clog Is the Best of Two "It" Shoes](https://www.highsnobiety.com/p/crocs-mary-jane-clogs-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 13 Aug 2024 18:24:00 GMT*
+
+
+## Brielle Biermann
+
 ## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3079,6 +3592,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Dua Lipa
 
+## [Crocs' Prettiest Clog Is the Best of Two "It" Shoes](https://www.highsnobiety.com/p/crocs-mary-jane-clogs-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 13 Aug 2024 18:24:00 GMT*
+
+
+## Dua Lipa
+
 ## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3133,6 +3655,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Drake
 
+## [Crocs' Prettiest Clog Is the Best of Two "It" Shoes](https://www.highsnobiety.com/p/crocs-mary-jane-clogs-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 13 Aug 2024 18:24:00 GMT*
+
+
+## Drake
+
 ## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3187,6 +3718,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Jenner
 
+## [Crocs' Prettiest Clog Is the Best of Two "It" Shoes](https://www.highsnobiety.com/p/crocs-mary-jane-clogs-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 13 Aug 2024 18:24:00 GMT*
+
+
+## Jenner
+
 ## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3241,6 +3781,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## J. Cole
 
+## [Crocs' Prettiest Clog Is the Best of Two "It" Shoes](https://www.highsnobiety.com/p/crocs-mary-jane-clogs-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 13 Aug 2024 18:24:00 GMT*
+
+
+## J. Cole
+
 ## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3295,6 +3844,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Jerrod Carmichael
 
+## [Crocs' Prettiest Clog Is the Best of Two "It" Shoes](https://www.highsnobiety.com/p/crocs-mary-jane-clogs-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 13 Aug 2024 18:24:00 GMT*
+
+
+## Jerrod Carmichael
+
 ## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3349,6 +3907,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Jennifer Lawrence
 
+## [Crocs' Prettiest Clog Is the Best of Two "It" Shoes](https://www.highsnobiety.com/p/crocs-mary-jane-clogs-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 13 Aug 2024 18:24:00 GMT*
+
+
+## Jennifer Lawrence
+
 ## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3403,6 +3970,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Joe Biden
 
+## [Crocs' Prettiest Clog Is the Best of Two "It" Shoes](https://www.highsnobiety.com/p/crocs-mary-jane-clogs-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 13 Aug 2024 18:24:00 GMT*
+
+
+## Joe Biden
+
 ## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3457,6 +4033,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## J.K. Simmons
 
+## [Crocs' Prettiest Clog Is the Best of Two "It" Shoes](https://www.highsnobiety.com/p/crocs-mary-jane-clogs-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 13 Aug 2024 18:24:00 GMT*
+
+
+## J.K. Simmons
+
 ## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3511,6 +4096,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Kamala Harris
 
+## [Crocs' Prettiest Clog Is the Best of Two "It" Shoes](https://www.highsnobiety.com/p/crocs-mary-jane-clogs-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 13 Aug 2024 18:24:00 GMT*
+
+
+## Kamala Harris
+
 ## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3565,6 +4159,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## John C Reilly
 
+## [Crocs' Prettiest Clog Is the Best of Two "It" Shoes](https://www.highsnobiety.com/p/crocs-mary-jane-clogs-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 13 Aug 2024 18:24:00 GMT*
+
+
+## John C Reilly
+
 ## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3619,6 +4222,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Kardashian
 
+## [Crocs' Prettiest Clog Is the Best of Two "It" Shoes](https://www.highsnobiety.com/p/crocs-mary-jane-clogs-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 13 Aug 2024 18:24:00 GMT*
+
+
+## Kardashian
+
 ## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3673,6 +4285,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Kanye
 
+## [Crocs' Prettiest Clog Is the Best of Two "It" Shoes](https://www.highsnobiety.com/p/crocs-mary-jane-clogs-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 13 Aug 2024 18:24:00 GMT*
+
+
+## Kanye
+
 ## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3727,6 +4348,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Zendaya
 
+## [Crocs' Prettiest Clog Is the Best of Two "It" Shoes](https://www.highsnobiety.com/p/crocs-mary-jane-clogs-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 13 Aug 2024 18:24:00 GMT*
+
+
+## Zendaya
+
 ## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3781,6 +4411,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Will Ferrell
 
+## [Crocs' Prettiest Clog Is the Best of Two "It" Shoes](https://www.highsnobiety.com/p/crocs-mary-jane-clogs-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 13 Aug 2024 18:24:00 GMT*
+
+
+## Will Ferrell
+
 ## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3835,6 +4474,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Zazie Beetz
 
+## [Crocs' Prettiest Clog Is the Best of Two "It" Shoes](https://www.highsnobiety.com/p/crocs-mary-jane-clogs-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 13 Aug 2024 18:24:00 GMT*
+
+
+## Zazie Beetz
+
 ## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3889,6 +4537,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Bob Odenkirk
 
+## [Crocs' Prettiest Clog Is the Best of Two "It" Shoes](https://www.highsnobiety.com/p/crocs-mary-jane-clogs-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 13 Aug 2024 18:24:00 GMT*
+
+
+## Bob Odenkirk
+
 ## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3943,6 +4600,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Brad Pitt
 
+## [Crocs' Prettiest Clog Is the Best of Two "It" Shoes](https://www.highsnobiety.com/p/crocs-mary-jane-clogs-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 13 Aug 2024 18:24:00 GMT*
+
+
+## Brad Pitt
+
 ## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3997,6 +4663,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Beyoncé
 
+## [Crocs' Prettiest Clog Is the Best of Two "It" Shoes](https://www.highsnobiety.com/p/crocs-mary-jane-clogs-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 13 Aug 2024 18:24:00 GMT*
+
+
+## Beyoncé
+
 ## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -4051,6 +4726,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Bia
 
+## [Crocs' Prettiest Clog Is the Best of Two "It" Shoes](https://www.highsnobiety.com/p/crocs-mary-jane-clogs-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 13 Aug 2024 18:24:00 GMT*
+
+
+## Bia
+
 ## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -4105,6 +4789,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Avantika
 
+## [Crocs' Prettiest Clog Is the Best of Two "It" Shoes](https://www.highsnobiety.com/p/crocs-mary-jane-clogs-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 13 Aug 2024 18:24:00 GMT*
+
+
+## Avantika
+
 ## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -4159,6 +4852,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Bernie Sanders
 
+## [Crocs' Prettiest Clog Is the Best of Two "It" Shoes](https://www.highsnobiety.com/p/crocs-mary-jane-clogs-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 13 Aug 2024 18:24:00 GMT*
+
+
+## Bernie Sanders
+
 ## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -4213,6 +4915,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Big Sean
 
+## [Crocs' Prettiest Clog Is the Best of Two "It" Shoes](https://www.highsnobiety.com/p/crocs-mary-jane-clogs-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 13 Aug 2024 18:24:00 GMT*
+
+
+## Big Sean
+
 ## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -4267,6 +4978,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## BlockBoy JB
 
+## [Crocs' Prettiest Clog Is the Best of Two "It" Shoes](https://www.highsnobiety.com/p/crocs-mary-jane-clogs-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 13 Aug 2024 18:24:00 GMT*
+
+
+## BlockBoy JB
+
 ## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -4321,6 +5041,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Biden
 
+## [Crocs' Prettiest Clog Is the Best of Two "It" Shoes](https://www.highsnobiety.com/p/crocs-mary-jane-clogs-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 13 Aug 2024 18:24:00 GMT*
+
+
+## Biden
+
 ## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -4375,6 +5104,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Bieber
 
+## [Crocs' Prettiest Clog Is the Best of Two "It" Shoes](https://www.highsnobiety.com/p/crocs-mary-jane-clogs-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 13 Aug 2024 18:24:00 GMT*
+
+
+## Bieber
+
 ## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -4429,6 +5167,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Paulina Porizkov
 
+## [Crocs' Prettiest Clog Is the Best of Two "It" Shoes](https://www.highsnobiety.com/p/crocs-mary-jane-clogs-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 13 Aug 2024 18:24:00 GMT*
+
+
+## Paulina Porizkov
+
 ## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -4483,6 +5230,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Paris Hilton
 
+## [Crocs' Prettiest Clog Is the Best of Two "It" Shoes](https://www.highsnobiety.com/p/crocs-mary-jane-clogs-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 13 Aug 2024 18:24:00 GMT*
+
+
+## Paris Hilton
+
 ## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -4537,6 +5293,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Metro Boomin
 
+## [Crocs' Prettiest Clog Is the Best of Two "It" Shoes](https://www.highsnobiety.com/p/crocs-mary-jane-clogs-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 13 Aug 2024 18:24:00 GMT*
+
+
+## Metro Boomin
+
 ## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -4591,6 +5356,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Meghan Markle
 
+## [Crocs' Prettiest Clog Is the Best of Two "It" Shoes](https://www.highsnobiety.com/p/crocs-mary-jane-clogs-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 13 Aug 2024 18:24:00 GMT*
+
+
+## Meghan Markle
+
 ## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -4645,6 +5419,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Megan Thee Stallion
 
+## [Crocs' Prettiest Clog Is the Best of Two "It" Shoes](https://www.highsnobiety.com/p/crocs-mary-jane-clogs-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 13 Aug 2024 18:24:00 GMT*
+
+
+## Megan Thee Stallion
+
 ## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -4699,6 +5482,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Maya Rudolph
 
+## [Crocs' Prettiest Clog Is the Best of Two "It" Shoes](https://www.highsnobiety.com/p/crocs-mary-jane-clogs-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 13 Aug 2024 18:24:00 GMT*
+
+
+## Maya Rudolph
+
 ## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -4753,6 +5545,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Olivia Rodrigo
 
+## [Crocs' Prettiest Clog Is the Best of Two "It" Shoes](https://www.highsnobiety.com/p/crocs-mary-jane-clogs-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 13 Aug 2024 18:24:00 GMT*
+
+
+## Olivia Rodrigo
+
 ## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -4807,6 +5608,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Obama
 
+## [Crocs' Prettiest Clog Is the Best of Two "It" Shoes](https://www.highsnobiety.com/p/crocs-mary-jane-clogs-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 13 Aug 2024 18:24:00 GMT*
+
+
+## Obama
+
 ## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -4861,6 +5671,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Nicki Minaj
 
+## [Crocs' Prettiest Clog Is the Best of Two "It" Shoes](https://www.highsnobiety.com/p/crocs-mary-jane-clogs-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 13 Aug 2024 18:24:00 GMT*
+
+
+## Nicki Minaj
+
 ## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -4911,6 +5730,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Wed, 14 Aug 2024 10:29:01 GMT*
+
+
+## MrBeast
+
+## [Crocs' Prettiest Clog Is the Best of Two "It" Shoes](https://www.highsnobiety.com/p/crocs-mary-jane-clogs-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 13 Aug 2024 18:24:00 GMT*
 
 
 ## MrBeast
