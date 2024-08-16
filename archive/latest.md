@@ -1,15 +1,6 @@
 # Latest Stories
 ## Tim Cook
 
-## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 15 Aug 2024 08:30:13 GMT*
-
-
-## Tim Cook
-
 ## [Crocs' Sneakers Just Get Better  Better ](https://www.highsnobiety.com/p/crocs-echo-surge-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -59,16 +50,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 15 Aug 2024 13:27:34 GMT*
-
-
-## Taylor Swift
-
-## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 15 Aug 2024 08:30:13 GMT*
+*Published on: Fri, 16 Aug 2024 09:17:34 GMT*
 
 
 ## Taylor Swift
@@ -122,16 +104,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 15 Aug 2024 13:27:34 GMT*
-
-
-## Tom Brady
-
-## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 15 Aug 2024 08:30:13 GMT*
+*Published on: Fri, 16 Aug 2024 09:17:34 GMT*
 
 
 ## Tom Brady
@@ -185,16 +158,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 15 Aug 2024 13:27:34 GMT*
-
-
-## Tina Fey
-
-## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 15 Aug 2024 08:30:13 GMT*
+*Published on: Fri, 16 Aug 2024 09:17:34 GMT*
 
 
 ## Tina Fey
@@ -248,16 +212,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 15 Aug 2024 13:27:34 GMT*
-
-
-## Steven Yuen
-
-## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 15 Aug 2024 08:30:13 GMT*
+*Published on: Fri, 16 Aug 2024 09:17:34 GMT*
 
 
 ## Steven Yuen
@@ -311,16 +266,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 15 Aug 2024 13:27:34 GMT*
-
-
-## Sommer Ray
-
-## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 15 Aug 2024 08:30:13 GMT*
+*Published on: Fri, 16 Aug 2024 09:17:34 GMT*
 
 
 ## Sommer Ray
@@ -374,16 +320,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 15 Aug 2024 13:27:34 GMT*
-
-
-## Sza
-
-## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 15 Aug 2024 08:30:13 GMT*
+*Published on: Fri, 16 Aug 2024 09:17:34 GMT*
 
 
 ## Sza
@@ -437,16 +374,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 15 Aug 2024 13:27:34 GMT*
-
-
-## Sydney Sweeney
-
-## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 15 Aug 2024 08:30:13 GMT*
+*Published on: Fri, 16 Aug 2024 09:17:34 GMT*
 
 
 ## Sydney Sweeney
@@ -500,16 +428,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 15 Aug 2024 13:27:34 GMT*
-
-
-## Walton Goggins
-
-## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 15 Aug 2024 08:30:13 GMT*
+*Published on: Fri, 16 Aug 2024 09:17:34 GMT*
 
 
 ## Walton Goggins
@@ -563,16 +482,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 15 Aug 2024 13:27:34 GMT*
-
-
-## Tom Holland
-
-## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 15 Aug 2024 08:30:13 GMT*
+*Published on: Fri, 16 Aug 2024 09:17:34 GMT*
 
 
 ## Tom Holland
@@ -626,16 +536,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 15 Aug 2024 13:27:34 GMT*
-
-
-## Gucci Mane
-
-## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 15 Aug 2024 08:30:13 GMT*
+*Published on: Fri, 16 Aug 2024 09:17:34 GMT*
 
 
 ## Gucci Mane
@@ -689,16 +590,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 15 Aug 2024 13:27:34 GMT*
-
-
-## Harry Styles
-
-## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 15 Aug 2024 08:30:13 GMT*
+*Published on: Fri, 16 Aug 2024 09:17:34 GMT*
 
 
 ## Harry Styles
@@ -752,16 +644,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 15 Aug 2024 13:27:34 GMT*
-
-
-## Jake Paul
-
-## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 15 Aug 2024 08:30:13 GMT*
+*Published on: Fri, 16 Aug 2024 09:17:34 GMT*
 
 
 ## Jake Paul
@@ -815,16 +698,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 15 Aug 2024 13:27:34 GMT*
-
-
-## Jameela Jamil
-
-## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 15 Aug 2024 08:30:13 GMT*
+*Published on: Fri, 16 Aug 2024 09:17:34 GMT*
 
 
 ## Jameela Jamil
@@ -878,16 +752,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 15 Aug 2024 13:27:34 GMT*
-
-
-## Elon Musk
-
-## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 15 Aug 2024 08:30:13 GMT*
+*Published on: Fri, 16 Aug 2024 09:17:34 GMT*
 
 
 ## Elon Musk
@@ -941,16 +806,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 15 Aug 2024 13:27:34 GMT*
-
-
-## Gabrielle Union
-
-## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 15 Aug 2024 08:30:13 GMT*
+*Published on: Fri, 16 Aug 2024 09:17:34 GMT*
 
 
 ## Gabrielle Union
@@ -1004,16 +860,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 15 Aug 2024 13:27:34 GMT*
-
-
-## Giancarlo Esposito
-
-## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 15 Aug 2024 08:30:13 GMT*
+*Published on: Fri, 16 Aug 2024 09:17:34 GMT*
 
 
 ## Giancarlo Esposito
@@ -1067,16 +914,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 15 Aug 2024 13:27:34 GMT*
-
-
-## Gillian Jacobs
-
-## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 15 Aug 2024 08:30:13 GMT*
+*Published on: Fri, 16 Aug 2024 09:17:34 GMT*
 
 
 ## Gillian Jacobs
@@ -1130,16 +968,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 15 Aug 2024 13:27:34 GMT*
-
-
-## Jason Mantzoukas
-
-## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 15 Aug 2024 08:30:13 GMT*
+*Published on: Fri, 16 Aug 2024 09:17:34 GMT*
 
 
 ## Jason Mantzoukas
@@ -1193,16 +1022,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 15 Aug 2024 13:27:34 GMT*
-
-
-## JB Smoove
-
-## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 15 Aug 2024 08:30:13 GMT*
+*Published on: Fri, 16 Aug 2024 09:17:34 GMT*
 
 
 ## JB Smoove
@@ -1256,16 +1076,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 15 Aug 2024 13:27:34 GMT*
-
-
-## Madison Pettis
-
-## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 15 Aug 2024 08:30:13 GMT*
+*Published on: Fri, 16 Aug 2024 09:17:34 GMT*
 
 
 ## Madison Pettis
@@ -1319,16 +1130,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 15 Aug 2024 13:27:34 GMT*
-
-
-## Austin Butler
-
-## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 15 Aug 2024 08:30:13 GMT*
+*Published on: Fri, 16 Aug 2024 09:17:34 GMT*
 
 
 ## Austin Butler
@@ -1382,16 +1184,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 15 Aug 2024 13:27:34 GMT*
-
-
-## Mark Zuckerberg
-
-## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 15 Aug 2024 08:30:13 GMT*
+*Published on: Fri, 16 Aug 2024 09:17:34 GMT*
 
 
 ## Mark Zuckerberg
@@ -1445,16 +1238,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 15 Aug 2024 13:27:34 GMT*
-
-
-## Ariana Grande
-
-## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 15 Aug 2024 08:30:13 GMT*
+*Published on: Fri, 16 Aug 2024 09:17:34 GMT*
 
 
 ## Ariana Grande
@@ -1508,16 +1292,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 15 Aug 2024 13:27:34 GMT*
-
-
-## Livvy Dunne
-
-## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 15 Aug 2024 08:30:13 GMT*
+*Published on: Fri, 16 Aug 2024 09:17:34 GMT*
 
 
 ## Livvy Dunne
@@ -1571,16 +1346,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 15 Aug 2024 13:27:34 GMT*
-
-
-## Ali Wong
-
-## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 15 Aug 2024 08:30:13 GMT*
+*Published on: Fri, 16 Aug 2024 09:17:34 GMT*
 
 
 ## Ali Wong
@@ -1634,16 +1400,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 15 Aug 2024 13:27:34 GMT*
-
-
-## Lizzo
-
-## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 15 Aug 2024 08:30:13 GMT*
+*Published on: Fri, 16 Aug 2024 09:17:34 GMT*
 
 
 ## Lizzo
@@ -1697,16 +1454,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 15 Aug 2024 13:27:34 GMT*
-
-
-## Alison Brie
-
-## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 15 Aug 2024 08:30:13 GMT*
+*Published on: Fri, 16 Aug 2024 09:17:34 GMT*
 
 
 ## Alison Brie
@@ -1760,16 +1508,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 15 Aug 2024 13:27:34 GMT*
-
-
-## Lil Wayne
-
-## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 15 Aug 2024 08:30:13 GMT*
+*Published on: Fri, 16 Aug 2024 09:17:34 GMT*
 
 
 ## Lil Wayne
@@ -1823,16 +1562,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 15 Aug 2024 13:27:34 GMT*
-
-
-## Adele
-
-## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 15 Aug 2024 08:30:13 GMT*
+*Published on: Fri, 16 Aug 2024 09:17:34 GMT*
 
 
 ## Adele
@@ -1886,16 +1616,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 15 Aug 2024 13:27:34 GMT*
-
-
-## Lindsay Lohan
-
-## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 15 Aug 2024 08:30:13 GMT*
+*Published on: Fri, 16 Aug 2024 09:17:34 GMT*
 
 
 ## Lindsay Lohan
@@ -1949,16 +1670,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 15 Aug 2024 13:27:34 GMT*
-
-
-## Addison Rae
-
-## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 15 Aug 2024 08:30:13 GMT*
+*Published on: Fri, 16 Aug 2024 09:17:34 GMT*
 
 
 ## Addison Rae
@@ -2012,16 +1724,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 15 Aug 2024 13:27:34 GMT*
-
-
-## Latto
-
-## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 15 Aug 2024 08:30:13 GMT*
+*Published on: Fri, 16 Aug 2024 09:17:34 GMT*
 
 
 ## Latto
@@ -2075,16 +1778,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 15 Aug 2024 13:27:34 GMT*
-
-
-## Aaron Paul
-
-## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 15 Aug 2024 08:30:13 GMT*
+*Published on: Fri, 16 Aug 2024 09:17:34 GMT*
 
 
 ## Aaron Paul
@@ -2138,16 +1832,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 15 Aug 2024 13:27:34 GMT*
-
-
-## LeBron James
-
-## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 15 Aug 2024 08:30:13 GMT*
+*Published on: Fri, 16 Aug 2024 09:17:34 GMT*
 
 
 ## LeBron James
@@ -2201,16 +1886,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 15 Aug 2024 13:27:34 GMT*
-
-
-## 50 Cent
-
-## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 15 Aug 2024 08:30:13 GMT*
+*Published on: Fri, 16 Aug 2024 09:17:34 GMT*
 
 
 ## 50 Cent
@@ -2264,16 +1940,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 15 Aug 2024 13:27:34 GMT*
-
-
-## Kesha
-
-## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 15 Aug 2024 08:30:13 GMT*
+*Published on: Fri, 16 Aug 2024 09:17:34 GMT*
 
 
 ## Kesha
@@ -2327,16 +1994,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 15 Aug 2024 13:27:34 GMT*
-
-
-## 21 Savage
-
-## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 15 Aug 2024 08:30:13 GMT*
+*Published on: Fri, 16 Aug 2024 09:17:34 GMT*
 
 
 ## 21 Savage
@@ -2390,16 +2048,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 15 Aug 2024 13:27:34 GMT*
-
-
-## Larry David
-
-## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 15 Aug 2024 08:30:13 GMT*
+*Published on: Fri, 16 Aug 2024 09:17:34 GMT*
 
 
 ## Larry David
@@ -2453,16 +2102,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 15 Aug 2024 13:27:34 GMT*
-
-
-## Seth Rogan
-
-## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 15 Aug 2024 08:30:13 GMT*
+*Published on: Fri, 16 Aug 2024 09:17:34 GMT*
 
 
 ## Seth Rogan
@@ -2516,16 +2156,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 15 Aug 2024 13:27:34 GMT*
-
-
-## Simone Biles
-
-## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 15 Aug 2024 08:30:13 GMT*
+*Published on: Fri, 16 Aug 2024 09:17:34 GMT*
 
 
 ## Simone Biles
@@ -2579,16 +2210,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 15 Aug 2024 13:27:34 GMT*
-
-
-## Pete Davidson
-
-## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 15 Aug 2024 08:30:13 GMT*
+*Published on: Fri, 16 Aug 2024 09:17:34 GMT*
 
 
 ## Pete Davidson
@@ -2642,16 +2264,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 15 Aug 2024 13:27:34 GMT*
-
-
-## Prince Harry
-
-## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 15 Aug 2024 08:30:13 GMT*
+*Published on: Fri, 16 Aug 2024 09:17:34 GMT*
 
 
 ## Prince Harry
@@ -2705,16 +2318,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 15 Aug 2024 13:27:34 GMT*
-
-
-## Princess of Wales
-
-## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 15 Aug 2024 08:30:13 GMT*
+*Published on: Fri, 16 Aug 2024 09:17:34 GMT*
 
 
 ## Princess of Wales
@@ -2768,16 +2372,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 15 Aug 2024 13:27:34 GMT*
-
-
-## Rachel McAdams
-
-## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 15 Aug 2024 08:30:13 GMT*
+*Published on: Fri, 16 Aug 2024 09:17:34 GMT*
 
 
 ## Rachel McAdams
@@ -2831,16 +2426,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 15 Aug 2024 13:27:34 GMT*
-
-
-## Reneé Rapp
-
-## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 15 Aug 2024 08:30:13 GMT*
+*Published on: Fri, 16 Aug 2024 09:17:34 GMT*
 
 
 ## Reneé Rapp
@@ -2894,16 +2480,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 15 Aug 2024 13:27:34 GMT*
-
-
-## Rick Ross
-
-## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 15 Aug 2024 08:30:13 GMT*
+*Published on: Fri, 16 Aug 2024 09:17:34 GMT*
 
 
 ## Rick Ross
@@ -2957,16 +2534,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 15 Aug 2024 13:27:34 GMT*
-
-
-## Sam Ashgari
-
-## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 15 Aug 2024 08:30:13 GMT*
+*Published on: Fri, 16 Aug 2024 09:17:34 GMT*
 
 
 ## Sam Ashgari
@@ -3020,16 +2588,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 15 Aug 2024 13:27:34 GMT*
-
-
-## Sandra Oh
-
-## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 15 Aug 2024 08:30:13 GMT*
+*Published on: Fri, 16 Aug 2024 09:17:34 GMT*
 
 
 ## Sandra Oh
@@ -3083,16 +2642,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 15 Aug 2024 13:27:34 GMT*
-
-
-## Donald Trump
-
-## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 15 Aug 2024 08:30:13 GMT*
+*Published on: Fri, 16 Aug 2024 09:17:34 GMT*
 
 
 ## Donald Trump
@@ -3146,16 +2696,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 15 Aug 2024 13:27:34 GMT*
-
-
-## Diddy
-
-## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 15 Aug 2024 08:30:13 GMT*
+*Published on: Fri, 16 Aug 2024 09:17:34 GMT*
 
 
 ## Diddy
@@ -3209,16 +2750,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 15 Aug 2024 13:27:34 GMT*
-
-
-## City Girls
-
-## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 15 Aug 2024 08:30:13 GMT*
+*Published on: Fri, 16 Aug 2024 09:17:34 GMT*
 
 
 ## City Girls
@@ -3272,16 +2804,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 15 Aug 2024 13:27:34 GMT*
-
-
-## Chloe Bailey
-
-## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 15 Aug 2024 08:30:13 GMT*
+*Published on: Fri, 16 Aug 2024 09:17:34 GMT*
 
 
 ## Chloe Bailey
@@ -3335,16 +2858,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 15 Aug 2024 13:27:34 GMT*
-
-
-## Charli D Amelio
-
-## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 15 Aug 2024 08:30:13 GMT*
+*Published on: Fri, 16 Aug 2024 09:17:34 GMT*
 
 
 ## Charli D Amelio
@@ -3398,16 +2912,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 15 Aug 2024 13:27:34 GMT*
-
-
-## Cardi B
-
-## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 15 Aug 2024 08:30:13 GMT*
+*Published on: Fri, 16 Aug 2024 09:17:34 GMT*
 
 
 ## Cardi B
@@ -3461,16 +2966,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 15 Aug 2024 13:27:34 GMT*
-
-
-## Bryan Cranston
-
-## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 15 Aug 2024 08:30:13 GMT*
+*Published on: Fri, 16 Aug 2024 09:17:34 GMT*
 
 
 ## Bryan Cranston
@@ -3524,16 +3020,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 15 Aug 2024 13:27:34 GMT*
-
-
-## Brielle Biermann
-
-## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 15 Aug 2024 08:30:13 GMT*
+*Published on: Fri, 16 Aug 2024 09:17:34 GMT*
 
 
 ## Brielle Biermann
@@ -3587,16 +3074,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 15 Aug 2024 13:27:34 GMT*
-
-
-## Dua Lipa
-
-## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 15 Aug 2024 08:30:13 GMT*
+*Published on: Fri, 16 Aug 2024 09:17:34 GMT*
 
 
 ## Dua Lipa
@@ -3650,16 +3128,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 15 Aug 2024 13:27:34 GMT*
-
-
-## Drake
-
-## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 15 Aug 2024 08:30:13 GMT*
+*Published on: Fri, 16 Aug 2024 09:17:34 GMT*
 
 
 ## Drake
@@ -3713,16 +3182,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 15 Aug 2024 13:27:34 GMT*
-
-
-## Jenner
-
-## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 15 Aug 2024 08:30:13 GMT*
+*Published on: Fri, 16 Aug 2024 09:17:34 GMT*
 
 
 ## Jenner
@@ -3776,16 +3236,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 15 Aug 2024 13:27:34 GMT*
-
-
-## J. Cole
-
-## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 15 Aug 2024 08:30:13 GMT*
+*Published on: Fri, 16 Aug 2024 09:17:34 GMT*
 
 
 ## J. Cole
@@ -3839,16 +3290,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 15 Aug 2024 13:27:34 GMT*
-
-
-## Jerrod Carmichael
-
-## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 15 Aug 2024 08:30:13 GMT*
+*Published on: Fri, 16 Aug 2024 09:17:34 GMT*
 
 
 ## Jerrod Carmichael
@@ -3902,16 +3344,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 15 Aug 2024 13:27:34 GMT*
-
-
-## Jennifer Lawrence
-
-## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 15 Aug 2024 08:30:13 GMT*
+*Published on: Fri, 16 Aug 2024 09:17:34 GMT*
 
 
 ## Jennifer Lawrence
@@ -3965,16 +3398,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 15 Aug 2024 13:27:34 GMT*
-
-
-## Joe Biden
-
-## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 15 Aug 2024 08:30:13 GMT*
+*Published on: Fri, 16 Aug 2024 09:17:34 GMT*
 
 
 ## Joe Biden
@@ -4028,16 +3452,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 15 Aug 2024 13:27:34 GMT*
-
-
-## J.K. Simmons
-
-## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 15 Aug 2024 08:30:13 GMT*
+*Published on: Fri, 16 Aug 2024 09:17:34 GMT*
 
 
 ## J.K. Simmons
@@ -4091,16 +3506,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 15 Aug 2024 13:27:34 GMT*
-
-
-## Kamala Harris
-
-## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 15 Aug 2024 08:30:13 GMT*
+*Published on: Fri, 16 Aug 2024 09:17:34 GMT*
 
 
 ## Kamala Harris
@@ -4154,16 +3560,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 15 Aug 2024 13:27:34 GMT*
-
-
-## John C Reilly
-
-## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 15 Aug 2024 08:30:13 GMT*
+*Published on: Fri, 16 Aug 2024 09:17:34 GMT*
 
 
 ## John C Reilly
@@ -4217,16 +3614,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 15 Aug 2024 13:27:34 GMT*
-
-
-## Kardashian
-
-## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 15 Aug 2024 08:30:13 GMT*
+*Published on: Fri, 16 Aug 2024 09:17:34 GMT*
 
 
 ## Kardashian
@@ -4280,16 +3668,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 15 Aug 2024 13:27:34 GMT*
-
-
-## Kanye
-
-## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 15 Aug 2024 08:30:13 GMT*
+*Published on: Fri, 16 Aug 2024 09:17:34 GMT*
 
 
 ## Kanye
@@ -4343,16 +3722,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 15 Aug 2024 13:27:34 GMT*
-
-
-## Zendaya
-
-## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 15 Aug 2024 08:30:13 GMT*
+*Published on: Fri, 16 Aug 2024 09:17:34 GMT*
 
 
 ## Zendaya
@@ -4406,16 +3776,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 15 Aug 2024 13:27:34 GMT*
-
-
-## Will Ferrell
-
-## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 15 Aug 2024 08:30:13 GMT*
+*Published on: Fri, 16 Aug 2024 09:17:34 GMT*
 
 
 ## Will Ferrell
@@ -4469,16 +3830,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 15 Aug 2024 13:27:34 GMT*
-
-
-## Zazie Beetz
-
-## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 15 Aug 2024 08:30:13 GMT*
+*Published on: Fri, 16 Aug 2024 09:17:34 GMT*
 
 
 ## Zazie Beetz
@@ -4532,16 +3884,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 15 Aug 2024 13:27:34 GMT*
-
-
-## Bob Odenkirk
-
-## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 15 Aug 2024 08:30:13 GMT*
+*Published on: Fri, 16 Aug 2024 09:17:34 GMT*
 
 
 ## Bob Odenkirk
@@ -4595,16 +3938,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 15 Aug 2024 13:27:34 GMT*
-
-
-## Brad Pitt
-
-## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 15 Aug 2024 08:30:13 GMT*
+*Published on: Fri, 16 Aug 2024 09:17:34 GMT*
 
 
 ## Brad Pitt
@@ -4658,16 +3992,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 15 Aug 2024 13:27:34 GMT*
-
-
-## Beyoncé
-
-## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 15 Aug 2024 08:30:13 GMT*
+*Published on: Fri, 16 Aug 2024 09:17:34 GMT*
 
 
 ## Beyoncé
@@ -4721,16 +4046,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 15 Aug 2024 13:27:34 GMT*
-
-
-## Bia
-
-## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 15 Aug 2024 08:30:13 GMT*
+*Published on: Fri, 16 Aug 2024 09:17:34 GMT*
 
 
 ## Bia
@@ -4784,16 +4100,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 15 Aug 2024 13:27:34 GMT*
-
-
-## Avantika
-
-## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 15 Aug 2024 08:30:13 GMT*
+*Published on: Fri, 16 Aug 2024 09:17:34 GMT*
 
 
 ## Avantika
@@ -4847,16 +4154,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 15 Aug 2024 13:27:34 GMT*
-
-
-## Bernie Sanders
-
-## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 15 Aug 2024 08:30:13 GMT*
+*Published on: Fri, 16 Aug 2024 09:17:34 GMT*
 
 
 ## Bernie Sanders
@@ -4910,16 +4208,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 15 Aug 2024 13:27:34 GMT*
-
-
-## Big Sean
-
-## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 15 Aug 2024 08:30:13 GMT*
+*Published on: Fri, 16 Aug 2024 09:17:34 GMT*
 
 
 ## Big Sean
@@ -4973,16 +4262,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 15 Aug 2024 13:27:34 GMT*
-
-
-## BlockBoy JB
-
-## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 15 Aug 2024 08:30:13 GMT*
+*Published on: Fri, 16 Aug 2024 09:17:34 GMT*
 
 
 ## BlockBoy JB
@@ -5036,16 +4316,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 15 Aug 2024 13:27:34 GMT*
-
-
-## Biden
-
-## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 15 Aug 2024 08:30:13 GMT*
+*Published on: Fri, 16 Aug 2024 09:17:34 GMT*
 
 
 ## Biden
@@ -5099,16 +4370,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 15 Aug 2024 13:27:34 GMT*
-
-
-## Bieber
-
-## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 15 Aug 2024 08:30:13 GMT*
+*Published on: Fri, 16 Aug 2024 09:17:34 GMT*
 
 
 ## Bieber
@@ -5162,16 +4424,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 15 Aug 2024 13:27:34 GMT*
-
-
-## Paulina Porizkov
-
-## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 15 Aug 2024 08:30:13 GMT*
+*Published on: Fri, 16 Aug 2024 09:17:34 GMT*
 
 
 ## Paulina Porizkov
@@ -5225,16 +4478,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 15 Aug 2024 13:27:34 GMT*
-
-
-## Paris Hilton
-
-## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 15 Aug 2024 08:30:13 GMT*
+*Published on: Fri, 16 Aug 2024 09:17:34 GMT*
 
 
 ## Paris Hilton
@@ -5288,16 +4532,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 15 Aug 2024 13:27:34 GMT*
-
-
-## Metro Boomin
-
-## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 15 Aug 2024 08:30:13 GMT*
+*Published on: Fri, 16 Aug 2024 09:17:34 GMT*
 
 
 ## Metro Boomin
@@ -5351,16 +4586,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 15 Aug 2024 13:27:34 GMT*
-
-
-## Meghan Markle
-
-## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 15 Aug 2024 08:30:13 GMT*
+*Published on: Fri, 16 Aug 2024 09:17:34 GMT*
 
 
 ## Meghan Markle
@@ -5414,16 +4640,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 15 Aug 2024 13:27:34 GMT*
-
-
-## Megan Thee Stallion
-
-## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 15 Aug 2024 08:30:13 GMT*
+*Published on: Fri, 16 Aug 2024 09:17:34 GMT*
 
 
 ## Megan Thee Stallion
@@ -5477,16 +4694,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 15 Aug 2024 13:27:34 GMT*
-
-
-## Maya Rudolph
-
-## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 15 Aug 2024 08:30:13 GMT*
+*Published on: Fri, 16 Aug 2024 09:17:34 GMT*
 
 
 ## Maya Rudolph
@@ -5540,16 +4748,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 15 Aug 2024 13:27:34 GMT*
-
-
-## Olivia Rodrigo
-
-## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 15 Aug 2024 08:30:13 GMT*
+*Published on: Fri, 16 Aug 2024 09:17:34 GMT*
 
 
 ## Olivia Rodrigo
@@ -5603,16 +4802,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 15 Aug 2024 13:27:34 GMT*
-
-
-## Obama
-
-## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 15 Aug 2024 08:30:13 GMT*
+*Published on: Fri, 16 Aug 2024 09:17:34 GMT*
 
 
 ## Obama
@@ -5666,16 +4856,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 15 Aug 2024 13:27:34 GMT*
-
-
-## Nicki Minaj
-
-## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 15 Aug 2024 08:30:13 GMT*
+*Published on: Fri, 16 Aug 2024 09:17:34 GMT*
 
 
 ## Nicki Minaj
@@ -5729,16 +4910,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 15 Aug 2024 13:27:34 GMT*
-
-
-## MrBeast
-
-## [Salomon’s Next Big Shoe Just Got Sleeker](https://www.highsnobiety.com/p/salomon-speedcross-advanced/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 15 Aug 2024 08:30:13 GMT*
+*Published on: Fri, 16 Aug 2024 09:17:34 GMT*
 
 
 ## MrBeast
@@ -5792,6 +4964,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 15 Aug 2024 13:27:34 GMT*
+*Published on: Fri, 16 Aug 2024 09:17:34 GMT*
 
 
