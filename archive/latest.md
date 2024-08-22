@@ -118,15 +118,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Tim Cook
 
-## [Are High-Heeled Sneakers Fashion's Next Ugly 'It' Shoe?](https://www.highsnobiety.com/p/high-heel-sneakers-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 20 Aug 2024 17:16:02 GMT*
-
-
-## Tim Cook
-
 ## [Nike's Dadcore Running Shoe Just Got More Stunning](https://www.highsnobiety.com/p/nike-zoom-vomero-5-burgundy-crush-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -262,15 +253,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Taylor Swift
 
-## [Are High-Heeled Sneakers Fashion's Next Ugly 'It' Shoe?](https://www.highsnobiety.com/p/high-heel-sneakers-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 20 Aug 2024 17:16:02 GMT*
-
-
-## Taylor Swift
-
 ## [Nike's Dadcore Running Shoe Just Got More Stunning](https://www.highsnobiety.com/p/nike-zoom-vomero-5-burgundy-crush-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -406,15 +388,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Tom Brady
 
-## [Are High-Heeled Sneakers Fashion's Next Ugly 'It' Shoe?](https://www.highsnobiety.com/p/high-heel-sneakers-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 20 Aug 2024 17:16:02 GMT*
-
-
-## Tom Brady
-
 ## [Nike's Dadcore Running Shoe Just Got More Stunning](https://www.highsnobiety.com/p/nike-zoom-vomero-5-burgundy-crush-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -550,15 +523,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Tina Fey
 
-## [Are High-Heeled Sneakers Fashion's Next Ugly 'It' Shoe?](https://www.highsnobiety.com/p/high-heel-sneakers-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 20 Aug 2024 17:16:02 GMT*
-
-
-## Tina Fey
-
 ## [Nike's Dadcore Running Shoe Just Got More Stunning](https://www.highsnobiety.com/p/nike-zoom-vomero-5-burgundy-crush-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -694,15 +658,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Steven Yuen
 
-## [Are High-Heeled Sneakers Fashion's Next Ugly 'It' Shoe?](https://www.highsnobiety.com/p/high-heel-sneakers-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 20 Aug 2024 17:16:02 GMT*
-
-
-## Steven Yuen
-
 ## [Nike's Dadcore Running Shoe Just Got More Stunning](https://www.highsnobiety.com/p/nike-zoom-vomero-5-burgundy-crush-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -838,15 +793,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Sommer Ray
 
-## [Are High-Heeled Sneakers Fashion's Next Ugly 'It' Shoe?](https://www.highsnobiety.com/p/high-heel-sneakers-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 20 Aug 2024 17:16:02 GMT*
-
-
-## Sommer Ray
-
 ## [Nike's Dadcore Running Shoe Just Got More Stunning](https://www.highsnobiety.com/p/nike-zoom-vomero-5-burgundy-crush-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -982,15 +928,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Sza
 
-## [Are High-Heeled Sneakers Fashion's Next Ugly 'It' Shoe?](https://www.highsnobiety.com/p/high-heel-sneakers-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 20 Aug 2024 17:16:02 GMT*
-
-
-## Sza
-
 ## [Nike's Dadcore Running Shoe Just Got More Stunning](https://www.highsnobiety.com/p/nike-zoom-vomero-5-burgundy-crush-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1126,15 +1063,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Sydney Sweeney
 
-## [Are High-Heeled Sneakers Fashion's Next Ugly 'It' Shoe?](https://www.highsnobiety.com/p/high-heel-sneakers-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 20 Aug 2024 17:16:02 GMT*
-
-
-## Sydney Sweeney
-
 ## [Nike's Dadcore Running Shoe Just Got More Stunning](https://www.highsnobiety.com/p/nike-zoom-vomero-5-burgundy-crush-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1270,15 +1198,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Walton Goggins
 
-## [Are High-Heeled Sneakers Fashion's Next Ugly 'It' Shoe?](https://www.highsnobiety.com/p/high-heel-sneakers-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 20 Aug 2024 17:16:02 GMT*
-
-
-## Walton Goggins
-
 ## [Nike's Dadcore Running Shoe Just Got More Stunning](https://www.highsnobiety.com/p/nike-zoom-vomero-5-burgundy-crush-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1414,15 +1333,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Tom Holland
 
-## [Are High-Heeled Sneakers Fashion's Next Ugly 'It' Shoe?](https://www.highsnobiety.com/p/high-heel-sneakers-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 20 Aug 2024 17:16:02 GMT*
-
-
-## Tom Holland
-
 ## [Nike's Dadcore Running Shoe Just Got More Stunning](https://www.highsnobiety.com/p/nike-zoom-vomero-5-burgundy-crush-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1558,15 +1468,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Gucci Mane
 
-## [Are High-Heeled Sneakers Fashion's Next Ugly 'It' Shoe?](https://www.highsnobiety.com/p/high-heel-sneakers-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 20 Aug 2024 17:16:02 GMT*
-
-
-## Gucci Mane
-
 ## [Nike's Dadcore Running Shoe Just Got More Stunning](https://www.highsnobiety.com/p/nike-zoom-vomero-5-burgundy-crush-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1702,15 +1603,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Harry Styles
 
-## [Are High-Heeled Sneakers Fashion's Next Ugly 'It' Shoe?](https://www.highsnobiety.com/p/high-heel-sneakers-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 20 Aug 2024 17:16:02 GMT*
-
-
-## Harry Styles
-
 ## [Nike's Dadcore Running Shoe Just Got More Stunning](https://www.highsnobiety.com/p/nike-zoom-vomero-5-burgundy-crush-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1846,15 +1738,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Jake Paul
 
-## [Are High-Heeled Sneakers Fashion's Next Ugly 'It' Shoe?](https://www.highsnobiety.com/p/high-heel-sneakers-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 20 Aug 2024 17:16:02 GMT*
-
-
-## Jake Paul
-
 ## [Nike's Dadcore Running Shoe Just Got More Stunning](https://www.highsnobiety.com/p/nike-zoom-vomero-5-burgundy-crush-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1990,15 +1873,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Jameela Jamil
 
-## [Are High-Heeled Sneakers Fashion's Next Ugly 'It' Shoe?](https://www.highsnobiety.com/p/high-heel-sneakers-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 20 Aug 2024 17:16:02 GMT*
-
-
-## Jameela Jamil
-
 ## [Nike's Dadcore Running Shoe Just Got More Stunning](https://www.highsnobiety.com/p/nike-zoom-vomero-5-burgundy-crush-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2134,15 +2008,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Elon Musk
 
-## [Are High-Heeled Sneakers Fashion's Next Ugly 'It' Shoe?](https://www.highsnobiety.com/p/high-heel-sneakers-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 20 Aug 2024 17:16:02 GMT*
-
-
-## Elon Musk
-
 ## [Nike's Dadcore Running Shoe Just Got More Stunning](https://www.highsnobiety.com/p/nike-zoom-vomero-5-burgundy-crush-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2278,15 +2143,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Gabrielle Union
 
-## [Are High-Heeled Sneakers Fashion's Next Ugly 'It' Shoe?](https://www.highsnobiety.com/p/high-heel-sneakers-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 20 Aug 2024 17:16:02 GMT*
-
-
-## Gabrielle Union
-
 ## [Nike's Dadcore Running Shoe Just Got More Stunning](https://www.highsnobiety.com/p/nike-zoom-vomero-5-burgundy-crush-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2422,15 +2278,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Giancarlo Esposito
 
-## [Are High-Heeled Sneakers Fashion's Next Ugly 'It' Shoe?](https://www.highsnobiety.com/p/high-heel-sneakers-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 20 Aug 2024 17:16:02 GMT*
-
-
-## Giancarlo Esposito
-
 ## [Nike's Dadcore Running Shoe Just Got More Stunning](https://www.highsnobiety.com/p/nike-zoom-vomero-5-burgundy-crush-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2566,15 +2413,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Gillian Jacobs
 
-## [Are High-Heeled Sneakers Fashion's Next Ugly 'It' Shoe?](https://www.highsnobiety.com/p/high-heel-sneakers-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 20 Aug 2024 17:16:02 GMT*
-
-
-## Gillian Jacobs
-
 ## [Nike's Dadcore Running Shoe Just Got More Stunning](https://www.highsnobiety.com/p/nike-zoom-vomero-5-burgundy-crush-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2710,15 +2548,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Jason Mantzoukas
 
-## [Are High-Heeled Sneakers Fashion's Next Ugly 'It' Shoe?](https://www.highsnobiety.com/p/high-heel-sneakers-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 20 Aug 2024 17:16:02 GMT*
-
-
-## Jason Mantzoukas
-
 ## [Nike's Dadcore Running Shoe Just Got More Stunning](https://www.highsnobiety.com/p/nike-zoom-vomero-5-burgundy-crush-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2854,15 +2683,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## JB Smoove
 
-## [Are High-Heeled Sneakers Fashion's Next Ugly 'It' Shoe?](https://www.highsnobiety.com/p/high-heel-sneakers-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 20 Aug 2024 17:16:02 GMT*
-
-
-## JB Smoove
-
 ## [Nike's Dadcore Running Shoe Just Got More Stunning](https://www.highsnobiety.com/p/nike-zoom-vomero-5-burgundy-crush-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2998,15 +2818,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Madison Pettis
 
-## [Are High-Heeled Sneakers Fashion's Next Ugly 'It' Shoe?](https://www.highsnobiety.com/p/high-heel-sneakers-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 20 Aug 2024 17:16:02 GMT*
-
-
-## Madison Pettis
-
 ## [Nike's Dadcore Running Shoe Just Got More Stunning](https://www.highsnobiety.com/p/nike-zoom-vomero-5-burgundy-crush-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3142,15 +2953,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Austin Butler
 
-## [Are High-Heeled Sneakers Fashion's Next Ugly 'It' Shoe?](https://www.highsnobiety.com/p/high-heel-sneakers-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 20 Aug 2024 17:16:02 GMT*
-
-
-## Austin Butler
-
 ## [Nike's Dadcore Running Shoe Just Got More Stunning](https://www.highsnobiety.com/p/nike-zoom-vomero-5-burgundy-crush-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3286,15 +3088,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Mark Zuckerberg
 
-## [Are High-Heeled Sneakers Fashion's Next Ugly 'It' Shoe?](https://www.highsnobiety.com/p/high-heel-sneakers-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 20 Aug 2024 17:16:02 GMT*
-
-
-## Mark Zuckerberg
-
 ## [Nike's Dadcore Running Shoe Just Got More Stunning](https://www.highsnobiety.com/p/nike-zoom-vomero-5-burgundy-crush-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3430,15 +3223,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Ariana Grande
 
-## [Are High-Heeled Sneakers Fashion's Next Ugly 'It' Shoe?](https://www.highsnobiety.com/p/high-heel-sneakers-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 20 Aug 2024 17:16:02 GMT*
-
-
-## Ariana Grande
-
 ## [Nike's Dadcore Running Shoe Just Got More Stunning](https://www.highsnobiety.com/p/nike-zoom-vomero-5-burgundy-crush-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3574,15 +3358,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Livvy Dunne
 
-## [Are High-Heeled Sneakers Fashion's Next Ugly 'It' Shoe?](https://www.highsnobiety.com/p/high-heel-sneakers-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 20 Aug 2024 17:16:02 GMT*
-
-
-## Livvy Dunne
-
 ## [Nike's Dadcore Running Shoe Just Got More Stunning](https://www.highsnobiety.com/p/nike-zoom-vomero-5-burgundy-crush-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3718,15 +3493,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Ali Wong
 
-## [Are High-Heeled Sneakers Fashion's Next Ugly 'It' Shoe?](https://www.highsnobiety.com/p/high-heel-sneakers-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 20 Aug 2024 17:16:02 GMT*
-
-
-## Ali Wong
-
 ## [Nike's Dadcore Running Shoe Just Got More Stunning](https://www.highsnobiety.com/p/nike-zoom-vomero-5-burgundy-crush-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3862,15 +3628,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Lizzo
 
-## [Are High-Heeled Sneakers Fashion's Next Ugly 'It' Shoe?](https://www.highsnobiety.com/p/high-heel-sneakers-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 20 Aug 2024 17:16:02 GMT*
-
-
-## Lizzo
-
 ## [Nike's Dadcore Running Shoe Just Got More Stunning](https://www.highsnobiety.com/p/nike-zoom-vomero-5-burgundy-crush-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -4006,15 +3763,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Alison Brie
 
-## [Are High-Heeled Sneakers Fashion's Next Ugly 'It' Shoe?](https://www.highsnobiety.com/p/high-heel-sneakers-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 20 Aug 2024 17:16:02 GMT*
-
-
-## Alison Brie
-
 ## [Nike's Dadcore Running Shoe Just Got More Stunning](https://www.highsnobiety.com/p/nike-zoom-vomero-5-burgundy-crush-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -4150,15 +3898,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Lil Wayne
 
-## [Are High-Heeled Sneakers Fashion's Next Ugly 'It' Shoe?](https://www.highsnobiety.com/p/high-heel-sneakers-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 20 Aug 2024 17:16:02 GMT*
-
-
-## Lil Wayne
-
 ## [Nike's Dadcore Running Shoe Just Got More Stunning](https://www.highsnobiety.com/p/nike-zoom-vomero-5-burgundy-crush-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -4294,15 +4033,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Adele
 
-## [Are High-Heeled Sneakers Fashion's Next Ugly 'It' Shoe?](https://www.highsnobiety.com/p/high-heel-sneakers-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 20 Aug 2024 17:16:02 GMT*
-
-
-## Adele
-
 ## [Nike's Dadcore Running Shoe Just Got More Stunning](https://www.highsnobiety.com/p/nike-zoom-vomero-5-burgundy-crush-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -4438,15 +4168,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Lindsay Lohan
 
-## [Are High-Heeled Sneakers Fashion's Next Ugly 'It' Shoe?](https://www.highsnobiety.com/p/high-heel-sneakers-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 20 Aug 2024 17:16:02 GMT*
-
-
-## Lindsay Lohan
-
 ## [Nike's Dadcore Running Shoe Just Got More Stunning](https://www.highsnobiety.com/p/nike-zoom-vomero-5-burgundy-crush-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -4582,15 +4303,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Addison Rae
 
-## [Are High-Heeled Sneakers Fashion's Next Ugly 'It' Shoe?](https://www.highsnobiety.com/p/high-heel-sneakers-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 20 Aug 2024 17:16:02 GMT*
-
-
-## Addison Rae
-
 ## [Nike's Dadcore Running Shoe Just Got More Stunning](https://www.highsnobiety.com/p/nike-zoom-vomero-5-burgundy-crush-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -4726,15 +4438,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Latto
 
-## [Are High-Heeled Sneakers Fashion's Next Ugly 'It' Shoe?](https://www.highsnobiety.com/p/high-heel-sneakers-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 20 Aug 2024 17:16:02 GMT*
-
-
-## Latto
-
 ## [Nike's Dadcore Running Shoe Just Got More Stunning](https://www.highsnobiety.com/p/nike-zoom-vomero-5-burgundy-crush-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -4870,15 +4573,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Aaron Paul
 
-## [Are High-Heeled Sneakers Fashion's Next Ugly 'It' Shoe?](https://www.highsnobiety.com/p/high-heel-sneakers-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 20 Aug 2024 17:16:02 GMT*
-
-
-## Aaron Paul
-
 ## [Nike's Dadcore Running Shoe Just Got More Stunning](https://www.highsnobiety.com/p/nike-zoom-vomero-5-burgundy-crush-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -5014,15 +4708,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## LeBron James
 
-## [Are High-Heeled Sneakers Fashion's Next Ugly 'It' Shoe?](https://www.highsnobiety.com/p/high-heel-sneakers-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 20 Aug 2024 17:16:02 GMT*
-
-
-## LeBron James
-
 ## [Nike's Dadcore Running Shoe Just Got More Stunning](https://www.highsnobiety.com/p/nike-zoom-vomero-5-burgundy-crush-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -5158,15 +4843,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## 50 Cent
 
-## [Are High-Heeled Sneakers Fashion's Next Ugly 'It' Shoe?](https://www.highsnobiety.com/p/high-heel-sneakers-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 20 Aug 2024 17:16:02 GMT*
-
-
-## 50 Cent
-
 ## [Nike's Dadcore Running Shoe Just Got More Stunning](https://www.highsnobiety.com/p/nike-zoom-vomero-5-burgundy-crush-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -5302,15 +4978,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Kesha
 
-## [Are High-Heeled Sneakers Fashion's Next Ugly 'It' Shoe?](https://www.highsnobiety.com/p/high-heel-sneakers-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 20 Aug 2024 17:16:02 GMT*
-
-
-## Kesha
-
 ## [Nike's Dadcore Running Shoe Just Got More Stunning](https://www.highsnobiety.com/p/nike-zoom-vomero-5-burgundy-crush-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -5446,15 +5113,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## 21 Savage
 
-## [Are High-Heeled Sneakers Fashion's Next Ugly 'It' Shoe?](https://www.highsnobiety.com/p/high-heel-sneakers-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 20 Aug 2024 17:16:02 GMT*
-
-
-## 21 Savage
-
 ## [Nike's Dadcore Running Shoe Just Got More Stunning](https://www.highsnobiety.com/p/nike-zoom-vomero-5-burgundy-crush-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -5590,15 +5248,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Larry David
 
-## [Are High-Heeled Sneakers Fashion's Next Ugly 'It' Shoe?](https://www.highsnobiety.com/p/high-heel-sneakers-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 20 Aug 2024 17:16:02 GMT*
-
-
-## Larry David
-
 ## [Nike's Dadcore Running Shoe Just Got More Stunning](https://www.highsnobiety.com/p/nike-zoom-vomero-5-burgundy-crush-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -5734,15 +5383,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Seth Rogan
 
-## [Are High-Heeled Sneakers Fashion's Next Ugly 'It' Shoe?](https://www.highsnobiety.com/p/high-heel-sneakers-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 20 Aug 2024 17:16:02 GMT*
-
-
-## Seth Rogan
-
 ## [Nike's Dadcore Running Shoe Just Got More Stunning](https://www.highsnobiety.com/p/nike-zoom-vomero-5-burgundy-crush-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -5878,15 +5518,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Simone Biles
 
-## [Are High-Heeled Sneakers Fashion's Next Ugly 'It' Shoe?](https://www.highsnobiety.com/p/high-heel-sneakers-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 20 Aug 2024 17:16:02 GMT*
-
-
-## Simone Biles
-
 ## [Nike's Dadcore Running Shoe Just Got More Stunning](https://www.highsnobiety.com/p/nike-zoom-vomero-5-burgundy-crush-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -6022,15 +5653,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Pete Davidson
 
-## [Are High-Heeled Sneakers Fashion's Next Ugly 'It' Shoe?](https://www.highsnobiety.com/p/high-heel-sneakers-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 20 Aug 2024 17:16:02 GMT*
-
-
-## Pete Davidson
-
 ## [Nike's Dadcore Running Shoe Just Got More Stunning](https://www.highsnobiety.com/p/nike-zoom-vomero-5-burgundy-crush-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -6166,15 +5788,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Prince Harry
 
-## [Are High-Heeled Sneakers Fashion's Next Ugly 'It' Shoe?](https://www.highsnobiety.com/p/high-heel-sneakers-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 20 Aug 2024 17:16:02 GMT*
-
-
-## Prince Harry
-
 ## [Nike's Dadcore Running Shoe Just Got More Stunning](https://www.highsnobiety.com/p/nike-zoom-vomero-5-burgundy-crush-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -6310,15 +5923,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Princess of Wales
 
-## [Are High-Heeled Sneakers Fashion's Next Ugly 'It' Shoe?](https://www.highsnobiety.com/p/high-heel-sneakers-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 20 Aug 2024 17:16:02 GMT*
-
-
-## Princess of Wales
-
 ## [Nike's Dadcore Running Shoe Just Got More Stunning](https://www.highsnobiety.com/p/nike-zoom-vomero-5-burgundy-crush-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -6454,15 +6058,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Rachel McAdams
 
-## [Are High-Heeled Sneakers Fashion's Next Ugly 'It' Shoe?](https://www.highsnobiety.com/p/high-heel-sneakers-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 20 Aug 2024 17:16:02 GMT*
-
-
-## Rachel McAdams
-
 ## [Nike's Dadcore Running Shoe Just Got More Stunning](https://www.highsnobiety.com/p/nike-zoom-vomero-5-burgundy-crush-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -6598,15 +6193,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Reneé Rapp
 
-## [Are High-Heeled Sneakers Fashion's Next Ugly 'It' Shoe?](https://www.highsnobiety.com/p/high-heel-sneakers-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 20 Aug 2024 17:16:02 GMT*
-
-
-## Reneé Rapp
-
 ## [Nike's Dadcore Running Shoe Just Got More Stunning](https://www.highsnobiety.com/p/nike-zoom-vomero-5-burgundy-crush-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -6742,15 +6328,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Rick Ross
 
-## [Are High-Heeled Sneakers Fashion's Next Ugly 'It' Shoe?](https://www.highsnobiety.com/p/high-heel-sneakers-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 20 Aug 2024 17:16:02 GMT*
-
-
-## Rick Ross
-
 ## [Nike's Dadcore Running Shoe Just Got More Stunning](https://www.highsnobiety.com/p/nike-zoom-vomero-5-burgundy-crush-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -6886,15 +6463,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Sam Ashgari
 
-## [Are High-Heeled Sneakers Fashion's Next Ugly 'It' Shoe?](https://www.highsnobiety.com/p/high-heel-sneakers-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 20 Aug 2024 17:16:02 GMT*
-
-
-## Sam Ashgari
-
 ## [Nike's Dadcore Running Shoe Just Got More Stunning](https://www.highsnobiety.com/p/nike-zoom-vomero-5-burgundy-crush-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -7030,15 +6598,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Sandra Oh
 
-## [Are High-Heeled Sneakers Fashion's Next Ugly 'It' Shoe?](https://www.highsnobiety.com/p/high-heel-sneakers-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 20 Aug 2024 17:16:02 GMT*
-
-
-## Sandra Oh
-
 ## [Nike's Dadcore Running Shoe Just Got More Stunning](https://www.highsnobiety.com/p/nike-zoom-vomero-5-burgundy-crush-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -7174,15 +6733,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Donald Trump
 
-## [Are High-Heeled Sneakers Fashion's Next Ugly 'It' Shoe?](https://www.highsnobiety.com/p/high-heel-sneakers-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 20 Aug 2024 17:16:02 GMT*
-
-
-## Donald Trump
-
 ## [Nike's Dadcore Running Shoe Just Got More Stunning](https://www.highsnobiety.com/p/nike-zoom-vomero-5-burgundy-crush-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -7318,15 +6868,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Diddy
 
-## [Are High-Heeled Sneakers Fashion's Next Ugly 'It' Shoe?](https://www.highsnobiety.com/p/high-heel-sneakers-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 20 Aug 2024 17:16:02 GMT*
-
-
-## Diddy
-
 ## [Nike's Dadcore Running Shoe Just Got More Stunning](https://www.highsnobiety.com/p/nike-zoom-vomero-5-burgundy-crush-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -7462,15 +7003,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## City Girls
 
-## [Are High-Heeled Sneakers Fashion's Next Ugly 'It' Shoe?](https://www.highsnobiety.com/p/high-heel-sneakers-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 20 Aug 2024 17:16:02 GMT*
-
-
-## City Girls
-
 ## [Nike's Dadcore Running Shoe Just Got More Stunning](https://www.highsnobiety.com/p/nike-zoom-vomero-5-burgundy-crush-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -7606,15 +7138,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Chloe Bailey
 
-## [Are High-Heeled Sneakers Fashion's Next Ugly 'It' Shoe?](https://www.highsnobiety.com/p/high-heel-sneakers-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 20 Aug 2024 17:16:02 GMT*
-
-
-## Chloe Bailey
-
 ## [Nike's Dadcore Running Shoe Just Got More Stunning](https://www.highsnobiety.com/p/nike-zoom-vomero-5-burgundy-crush-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -7750,15 +7273,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Charli D Amelio
 
-## [Are High-Heeled Sneakers Fashion's Next Ugly 'It' Shoe?](https://www.highsnobiety.com/p/high-heel-sneakers-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 20 Aug 2024 17:16:02 GMT*
-
-
-## Charli D Amelio
-
 ## [Nike's Dadcore Running Shoe Just Got More Stunning](https://www.highsnobiety.com/p/nike-zoom-vomero-5-burgundy-crush-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -7894,15 +7408,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Cardi B
 
-## [Are High-Heeled Sneakers Fashion's Next Ugly 'It' Shoe?](https://www.highsnobiety.com/p/high-heel-sneakers-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 20 Aug 2024 17:16:02 GMT*
-
-
-## Cardi B
-
 ## [Nike's Dadcore Running Shoe Just Got More Stunning](https://www.highsnobiety.com/p/nike-zoom-vomero-5-burgundy-crush-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -8038,15 +7543,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Bryan Cranston
 
-## [Are High-Heeled Sneakers Fashion's Next Ugly 'It' Shoe?](https://www.highsnobiety.com/p/high-heel-sneakers-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 20 Aug 2024 17:16:02 GMT*
-
-
-## Bryan Cranston
-
 ## [Nike's Dadcore Running Shoe Just Got More Stunning](https://www.highsnobiety.com/p/nike-zoom-vomero-5-burgundy-crush-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -8182,15 +7678,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Brielle Biermann
 
-## [Are High-Heeled Sneakers Fashion's Next Ugly 'It' Shoe?](https://www.highsnobiety.com/p/high-heel-sneakers-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 20 Aug 2024 17:16:02 GMT*
-
-
-## Brielle Biermann
-
 ## [Nike's Dadcore Running Shoe Just Got More Stunning](https://www.highsnobiety.com/p/nike-zoom-vomero-5-burgundy-crush-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -8326,15 +7813,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Dua Lipa
 
-## [Are High-Heeled Sneakers Fashion's Next Ugly 'It' Shoe?](https://www.highsnobiety.com/p/high-heel-sneakers-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 20 Aug 2024 17:16:02 GMT*
-
-
-## Dua Lipa
-
 ## [Nike's Dadcore Running Shoe Just Got More Stunning](https://www.highsnobiety.com/p/nike-zoom-vomero-5-burgundy-crush-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -8470,15 +7948,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Drake
 
-## [Are High-Heeled Sneakers Fashion's Next Ugly 'It' Shoe?](https://www.highsnobiety.com/p/high-heel-sneakers-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 20 Aug 2024 17:16:02 GMT*
-
-
-## Drake
-
 ## [Nike's Dadcore Running Shoe Just Got More Stunning](https://www.highsnobiety.com/p/nike-zoom-vomero-5-burgundy-crush-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -8614,15 +8083,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Jenner
 
-## [Are High-Heeled Sneakers Fashion's Next Ugly 'It' Shoe?](https://www.highsnobiety.com/p/high-heel-sneakers-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 20 Aug 2024 17:16:02 GMT*
-
-
-## Jenner
-
 ## [Nike's Dadcore Running Shoe Just Got More Stunning](https://www.highsnobiety.com/p/nike-zoom-vomero-5-burgundy-crush-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -8758,15 +8218,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## J. Cole
 
-## [Are High-Heeled Sneakers Fashion's Next Ugly 'It' Shoe?](https://www.highsnobiety.com/p/high-heel-sneakers-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 20 Aug 2024 17:16:02 GMT*
-
-
-## J. Cole
-
 ## [Nike's Dadcore Running Shoe Just Got More Stunning](https://www.highsnobiety.com/p/nike-zoom-vomero-5-burgundy-crush-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -8902,15 +8353,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Jerrod Carmichael
 
-## [Are High-Heeled Sneakers Fashion's Next Ugly 'It' Shoe?](https://www.highsnobiety.com/p/high-heel-sneakers-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 20 Aug 2024 17:16:02 GMT*
-
-
-## Jerrod Carmichael
-
 ## [Nike's Dadcore Running Shoe Just Got More Stunning](https://www.highsnobiety.com/p/nike-zoom-vomero-5-burgundy-crush-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -9046,15 +8488,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Jennifer Lawrence
 
-## [Are High-Heeled Sneakers Fashion's Next Ugly 'It' Shoe?](https://www.highsnobiety.com/p/high-heel-sneakers-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 20 Aug 2024 17:16:02 GMT*
-
-
-## Jennifer Lawrence
-
 ## [Nike's Dadcore Running Shoe Just Got More Stunning](https://www.highsnobiety.com/p/nike-zoom-vomero-5-burgundy-crush-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -9190,15 +8623,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Joe Biden
 
-## [Are High-Heeled Sneakers Fashion's Next Ugly 'It' Shoe?](https://www.highsnobiety.com/p/high-heel-sneakers-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 20 Aug 2024 17:16:02 GMT*
-
-
-## Joe Biden
-
 ## [Nike's Dadcore Running Shoe Just Got More Stunning](https://www.highsnobiety.com/p/nike-zoom-vomero-5-burgundy-crush-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -9334,15 +8758,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## J.K. Simmons
 
-## [Are High-Heeled Sneakers Fashion's Next Ugly 'It' Shoe?](https://www.highsnobiety.com/p/high-heel-sneakers-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 20 Aug 2024 17:16:02 GMT*
-
-
-## J.K. Simmons
-
 ## [Nike's Dadcore Running Shoe Just Got More Stunning](https://www.highsnobiety.com/p/nike-zoom-vomero-5-burgundy-crush-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -9478,15 +8893,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Kamala Harris
 
-## [Are High-Heeled Sneakers Fashion's Next Ugly 'It' Shoe?](https://www.highsnobiety.com/p/high-heel-sneakers-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 20 Aug 2024 17:16:02 GMT*
-
-
-## Kamala Harris
-
 ## [Nike's Dadcore Running Shoe Just Got More Stunning](https://www.highsnobiety.com/p/nike-zoom-vomero-5-burgundy-crush-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -9622,15 +9028,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## John C Reilly
 
-## [Are High-Heeled Sneakers Fashion's Next Ugly 'It' Shoe?](https://www.highsnobiety.com/p/high-heel-sneakers-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 20 Aug 2024 17:16:02 GMT*
-
-
-## John C Reilly
-
 ## [Nike's Dadcore Running Shoe Just Got More Stunning](https://www.highsnobiety.com/p/nike-zoom-vomero-5-burgundy-crush-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -9766,15 +9163,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Kardashian
 
-## [Are High-Heeled Sneakers Fashion's Next Ugly 'It' Shoe?](https://www.highsnobiety.com/p/high-heel-sneakers-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 20 Aug 2024 17:16:02 GMT*
-
-
-## Kardashian
-
 ## [Nike's Dadcore Running Shoe Just Got More Stunning](https://www.highsnobiety.com/p/nike-zoom-vomero-5-burgundy-crush-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -9910,15 +9298,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Kanye
 
-## [Are High-Heeled Sneakers Fashion's Next Ugly 'It' Shoe?](https://www.highsnobiety.com/p/high-heel-sneakers-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 20 Aug 2024 17:16:02 GMT*
-
-
-## Kanye
-
 ## [Nike's Dadcore Running Shoe Just Got More Stunning](https://www.highsnobiety.com/p/nike-zoom-vomero-5-burgundy-crush-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -10054,15 +9433,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Zendaya
 
-## [Are High-Heeled Sneakers Fashion's Next Ugly 'It' Shoe?](https://www.highsnobiety.com/p/high-heel-sneakers-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 20 Aug 2024 17:16:02 GMT*
-
-
-## Zendaya
-
 ## [Nike's Dadcore Running Shoe Just Got More Stunning](https://www.highsnobiety.com/p/nike-zoom-vomero-5-burgundy-crush-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -10198,15 +9568,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Will Ferrell
 
-## [Are High-Heeled Sneakers Fashion's Next Ugly 'It' Shoe?](https://www.highsnobiety.com/p/high-heel-sneakers-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 20 Aug 2024 17:16:02 GMT*
-
-
-## Will Ferrell
-
 ## [Nike's Dadcore Running Shoe Just Got More Stunning](https://www.highsnobiety.com/p/nike-zoom-vomero-5-burgundy-crush-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -10342,15 +9703,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Zazie Beetz
 
-## [Are High-Heeled Sneakers Fashion's Next Ugly 'It' Shoe?](https://www.highsnobiety.com/p/high-heel-sneakers-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 20 Aug 2024 17:16:02 GMT*
-
-
-## Zazie Beetz
-
 ## [Nike's Dadcore Running Shoe Just Got More Stunning](https://www.highsnobiety.com/p/nike-zoom-vomero-5-burgundy-crush-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -10486,15 +9838,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Bob Odenkirk
 
-## [Are High-Heeled Sneakers Fashion's Next Ugly 'It' Shoe?](https://www.highsnobiety.com/p/high-heel-sneakers-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 20 Aug 2024 17:16:02 GMT*
-
-
-## Bob Odenkirk
-
 ## [Nike's Dadcore Running Shoe Just Got More Stunning](https://www.highsnobiety.com/p/nike-zoom-vomero-5-burgundy-crush-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -10630,15 +9973,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Brad Pitt
 
-## [Are High-Heeled Sneakers Fashion's Next Ugly 'It' Shoe?](https://www.highsnobiety.com/p/high-heel-sneakers-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 20 Aug 2024 17:16:02 GMT*
-
-
-## Brad Pitt
-
 ## [Nike's Dadcore Running Shoe Just Got More Stunning](https://www.highsnobiety.com/p/nike-zoom-vomero-5-burgundy-crush-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -10774,15 +10108,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Beyoncé
 
-## [Are High-Heeled Sneakers Fashion's Next Ugly 'It' Shoe?](https://www.highsnobiety.com/p/high-heel-sneakers-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 20 Aug 2024 17:16:02 GMT*
-
-
-## Beyoncé
-
 ## [Nike's Dadcore Running Shoe Just Got More Stunning](https://www.highsnobiety.com/p/nike-zoom-vomero-5-burgundy-crush-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -10918,15 +10243,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Bia
 
-## [Are High-Heeled Sneakers Fashion's Next Ugly 'It' Shoe?](https://www.highsnobiety.com/p/high-heel-sneakers-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 20 Aug 2024 17:16:02 GMT*
-
-
-## Bia
-
 ## [Nike's Dadcore Running Shoe Just Got More Stunning](https://www.highsnobiety.com/p/nike-zoom-vomero-5-burgundy-crush-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -11062,15 +10378,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Avantika
 
-## [Are High-Heeled Sneakers Fashion's Next Ugly 'It' Shoe?](https://www.highsnobiety.com/p/high-heel-sneakers-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 20 Aug 2024 17:16:02 GMT*
-
-
-## Avantika
-
 ## [Nike's Dadcore Running Shoe Just Got More Stunning](https://www.highsnobiety.com/p/nike-zoom-vomero-5-burgundy-crush-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -11206,15 +10513,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Bernie Sanders
 
-## [Are High-Heeled Sneakers Fashion's Next Ugly 'It' Shoe?](https://www.highsnobiety.com/p/high-heel-sneakers-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 20 Aug 2024 17:16:02 GMT*
-
-
-## Bernie Sanders
-
 ## [Nike's Dadcore Running Shoe Just Got More Stunning](https://www.highsnobiety.com/p/nike-zoom-vomero-5-burgundy-crush-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -11350,15 +10648,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Big Sean
 
-## [Are High-Heeled Sneakers Fashion's Next Ugly 'It' Shoe?](https://www.highsnobiety.com/p/high-heel-sneakers-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 20 Aug 2024 17:16:02 GMT*
-
-
-## Big Sean
-
 ## [Nike's Dadcore Running Shoe Just Got More Stunning](https://www.highsnobiety.com/p/nike-zoom-vomero-5-burgundy-crush-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -11494,15 +10783,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## BlockBoy JB
 
-## [Are High-Heeled Sneakers Fashion's Next Ugly 'It' Shoe?](https://www.highsnobiety.com/p/high-heel-sneakers-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 20 Aug 2024 17:16:02 GMT*
-
-
-## BlockBoy JB
-
 ## [Nike's Dadcore Running Shoe Just Got More Stunning](https://www.highsnobiety.com/p/nike-zoom-vomero-5-burgundy-crush-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -11638,15 +10918,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Biden
 
-## [Are High-Heeled Sneakers Fashion's Next Ugly 'It' Shoe?](https://www.highsnobiety.com/p/high-heel-sneakers-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 20 Aug 2024 17:16:02 GMT*
-
-
-## Biden
-
 ## [Nike's Dadcore Running Shoe Just Got More Stunning](https://www.highsnobiety.com/p/nike-zoom-vomero-5-burgundy-crush-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -11782,15 +11053,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Bieber
 
-## [Are High-Heeled Sneakers Fashion's Next Ugly 'It' Shoe?](https://www.highsnobiety.com/p/high-heel-sneakers-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 20 Aug 2024 17:16:02 GMT*
-
-
-## Bieber
-
 ## [Nike's Dadcore Running Shoe Just Got More Stunning](https://www.highsnobiety.com/p/nike-zoom-vomero-5-burgundy-crush-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -11926,15 +11188,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Paulina Porizkov
 
-## [Are High-Heeled Sneakers Fashion's Next Ugly 'It' Shoe?](https://www.highsnobiety.com/p/high-heel-sneakers-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 20 Aug 2024 17:16:02 GMT*
-
-
-## Paulina Porizkov
-
 ## [Nike's Dadcore Running Shoe Just Got More Stunning](https://www.highsnobiety.com/p/nike-zoom-vomero-5-burgundy-crush-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -12070,15 +11323,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Paris Hilton
 
-## [Are High-Heeled Sneakers Fashion's Next Ugly 'It' Shoe?](https://www.highsnobiety.com/p/high-heel-sneakers-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 20 Aug 2024 17:16:02 GMT*
-
-
-## Paris Hilton
-
 ## [Nike's Dadcore Running Shoe Just Got More Stunning](https://www.highsnobiety.com/p/nike-zoom-vomero-5-burgundy-crush-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -12214,15 +11458,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Metro Boomin
 
-## [Are High-Heeled Sneakers Fashion's Next Ugly 'It' Shoe?](https://www.highsnobiety.com/p/high-heel-sneakers-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 20 Aug 2024 17:16:02 GMT*
-
-
-## Metro Boomin
-
 ## [Nike's Dadcore Running Shoe Just Got More Stunning](https://www.highsnobiety.com/p/nike-zoom-vomero-5-burgundy-crush-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -12358,15 +11593,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Meghan Markle
 
-## [Are High-Heeled Sneakers Fashion's Next Ugly 'It' Shoe?](https://www.highsnobiety.com/p/high-heel-sneakers-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 20 Aug 2024 17:16:02 GMT*
-
-
-## Meghan Markle
-
 ## [Nike's Dadcore Running Shoe Just Got More Stunning](https://www.highsnobiety.com/p/nike-zoom-vomero-5-burgundy-crush-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -12502,15 +11728,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Megan Thee Stallion
 
-## [Are High-Heeled Sneakers Fashion's Next Ugly 'It' Shoe?](https://www.highsnobiety.com/p/high-heel-sneakers-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 20 Aug 2024 17:16:02 GMT*
-
-
-## Megan Thee Stallion
-
 ## [Nike's Dadcore Running Shoe Just Got More Stunning](https://www.highsnobiety.com/p/nike-zoom-vomero-5-burgundy-crush-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -12646,15 +11863,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Maya Rudolph
 
-## [Are High-Heeled Sneakers Fashion's Next Ugly 'It' Shoe?](https://www.highsnobiety.com/p/high-heel-sneakers-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 20 Aug 2024 17:16:02 GMT*
-
-
-## Maya Rudolph
-
 ## [Nike's Dadcore Running Shoe Just Got More Stunning](https://www.highsnobiety.com/p/nike-zoom-vomero-5-burgundy-crush-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -12790,15 +11998,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Olivia Rodrigo
 
-## [Are High-Heeled Sneakers Fashion's Next Ugly 'It' Shoe?](https://www.highsnobiety.com/p/high-heel-sneakers-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 20 Aug 2024 17:16:02 GMT*
-
-
-## Olivia Rodrigo
-
 ## [Nike's Dadcore Running Shoe Just Got More Stunning](https://www.highsnobiety.com/p/nike-zoom-vomero-5-burgundy-crush-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -12934,15 +12133,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Obama
 
-## [Are High-Heeled Sneakers Fashion's Next Ugly 'It' Shoe?](https://www.highsnobiety.com/p/high-heel-sneakers-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 20 Aug 2024 17:16:02 GMT*
-
-
-## Obama
-
 ## [Nike's Dadcore Running Shoe Just Got More Stunning](https://www.highsnobiety.com/p/nike-zoom-vomero-5-burgundy-crush-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -13078,15 +12268,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Nicki Minaj
 
-## [Are High-Heeled Sneakers Fashion's Next Ugly 'It' Shoe?](https://www.highsnobiety.com/p/high-heel-sneakers-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 20 Aug 2024 17:16:02 GMT*
-
-
-## Nicki Minaj
-
 ## [Nike's Dadcore Running Shoe Just Got More Stunning](https://www.highsnobiety.com/p/nike-zoom-vomero-5-burgundy-crush-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -13218,15 +12399,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Wed, 21 Aug 2024 09:35:46 GMT*
-
-
-## MrBeast
-
-## [Are High-Heeled Sneakers Fashion's Next Ugly 'It' Shoe?](https://www.highsnobiety.com/p/high-heel-sneakers-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 20 Aug 2024 17:16:02 GMT*
 
 
 ## MrBeast
