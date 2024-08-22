@@ -91,6 +91,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Tim Cook
 
+## [Well-Heeled Baddies Found Their New Ultra-Luxury Super Stomper](https://www.highsnobiety.com/p/margiela-suede-anatomic-boot-trend/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Wed, 21 Aug 2024 17:04:57 GMT*
+
+
+## Tim Cook
+
 ## [Costco Muscles in on HOKA's Action With $32 Dad Shoes](https://www.highsnobiety.com/p/costco-hoka-dad-shoe/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -199,6 +208,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Taylor Swift
 
+## [Well-Heeled Baddies Found Their New Ultra-Luxury Super Stomper](https://www.highsnobiety.com/p/margiela-suede-anatomic-boot-trend/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Wed, 21 Aug 2024 17:04:57 GMT*
+
+
+## Taylor Swift
+
 ## [Costco Muscles in on HOKA's Action With $32 Dad Shoes](https://www.highsnobiety.com/p/costco-hoka-dad-shoe/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -307,6 +325,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Tom Brady
 
+## [Well-Heeled Baddies Found Their New Ultra-Luxury Super Stomper](https://www.highsnobiety.com/p/margiela-suede-anatomic-boot-trend/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Wed, 21 Aug 2024 17:04:57 GMT*
+
+
+## Tom Brady
+
 ## [Costco Muscles in on HOKA's Action With $32 Dad Shoes](https://www.highsnobiety.com/p/costco-hoka-dad-shoe/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -415,6 +442,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Tina Fey
 
+## [Well-Heeled Baddies Found Their New Ultra-Luxury Super Stomper](https://www.highsnobiety.com/p/margiela-suede-anatomic-boot-trend/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Wed, 21 Aug 2024 17:04:57 GMT*
+
+
+## Tina Fey
+
 ## [Costco Muscles in on HOKA's Action With $32 Dad Shoes](https://www.highsnobiety.com/p/costco-hoka-dad-shoe/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -523,6 +559,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Steven Yuen
 
+## [Well-Heeled Baddies Found Their New Ultra-Luxury Super Stomper](https://www.highsnobiety.com/p/margiela-suede-anatomic-boot-trend/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Wed, 21 Aug 2024 17:04:57 GMT*
+
+
+## Steven Yuen
+
 ## [Costco Muscles in on HOKA's Action With $32 Dad Shoes](https://www.highsnobiety.com/p/costco-hoka-dad-shoe/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -631,6 +676,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Sommer Ray
 
+## [Well-Heeled Baddies Found Their New Ultra-Luxury Super Stomper](https://www.highsnobiety.com/p/margiela-suede-anatomic-boot-trend/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Wed, 21 Aug 2024 17:04:57 GMT*
+
+
+## Sommer Ray
+
 ## [Costco Muscles in on HOKA's Action With $32 Dad Shoes](https://www.highsnobiety.com/p/costco-hoka-dad-shoe/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -739,6 +793,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Sza
 
+## [Well-Heeled Baddies Found Their New Ultra-Luxury Super Stomper](https://www.highsnobiety.com/p/margiela-suede-anatomic-boot-trend/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Wed, 21 Aug 2024 17:04:57 GMT*
+
+
+## Sza
+
 ## [Costco Muscles in on HOKA's Action With $32 Dad Shoes](https://www.highsnobiety.com/p/costco-hoka-dad-shoe/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -847,6 +910,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Sydney Sweeney
 
+## [Well-Heeled Baddies Found Their New Ultra-Luxury Super Stomper](https://www.highsnobiety.com/p/margiela-suede-anatomic-boot-trend/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Wed, 21 Aug 2024 17:04:57 GMT*
+
+
+## Sydney Sweeney
+
 ## [Costco Muscles in on HOKA's Action With $32 Dad Shoes](https://www.highsnobiety.com/p/costco-hoka-dad-shoe/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -955,6 +1027,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Walton Goggins
 
+## [Well-Heeled Baddies Found Their New Ultra-Luxury Super Stomper](https://www.highsnobiety.com/p/margiela-suede-anatomic-boot-trend/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Wed, 21 Aug 2024 17:04:57 GMT*
+
+
+## Walton Goggins
+
 ## [Costco Muscles in on HOKA's Action With $32 Dad Shoes](https://www.highsnobiety.com/p/costco-hoka-dad-shoe/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1063,6 +1144,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Tom Holland
 
+## [Well-Heeled Baddies Found Their New Ultra-Luxury Super Stomper](https://www.highsnobiety.com/p/margiela-suede-anatomic-boot-trend/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Wed, 21 Aug 2024 17:04:57 GMT*
+
+
+## Tom Holland
+
 ## [Costco Muscles in on HOKA's Action With $32 Dad Shoes](https://www.highsnobiety.com/p/costco-hoka-dad-shoe/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1171,6 +1261,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Gucci Mane
 
+## [Well-Heeled Baddies Found Their New Ultra-Luxury Super Stomper](https://www.highsnobiety.com/p/margiela-suede-anatomic-boot-trend/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Wed, 21 Aug 2024 17:04:57 GMT*
+
+
+## Gucci Mane
+
 ## [Costco Muscles in on HOKA's Action With $32 Dad Shoes](https://www.highsnobiety.com/p/costco-hoka-dad-shoe/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1279,6 +1378,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Harry Styles
 
+## [Well-Heeled Baddies Found Their New Ultra-Luxury Super Stomper](https://www.highsnobiety.com/p/margiela-suede-anatomic-boot-trend/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Wed, 21 Aug 2024 17:04:57 GMT*
+
+
+## Harry Styles
+
 ## [Costco Muscles in on HOKA's Action With $32 Dad Shoes](https://www.highsnobiety.com/p/costco-hoka-dad-shoe/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1387,6 +1495,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Jake Paul
 
+## [Well-Heeled Baddies Found Their New Ultra-Luxury Super Stomper](https://www.highsnobiety.com/p/margiela-suede-anatomic-boot-trend/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Wed, 21 Aug 2024 17:04:57 GMT*
+
+
+## Jake Paul
+
 ## [Costco Muscles in on HOKA's Action With $32 Dad Shoes](https://www.highsnobiety.com/p/costco-hoka-dad-shoe/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1495,6 +1612,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Jameela Jamil
 
+## [Well-Heeled Baddies Found Their New Ultra-Luxury Super Stomper](https://www.highsnobiety.com/p/margiela-suede-anatomic-boot-trend/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Wed, 21 Aug 2024 17:04:57 GMT*
+
+
+## Jameela Jamil
+
 ## [Costco Muscles in on HOKA's Action With $32 Dad Shoes](https://www.highsnobiety.com/p/costco-hoka-dad-shoe/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1603,6 +1729,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Elon Musk
 
+## [Well-Heeled Baddies Found Their New Ultra-Luxury Super Stomper](https://www.highsnobiety.com/p/margiela-suede-anatomic-boot-trend/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Wed, 21 Aug 2024 17:04:57 GMT*
+
+
+## Elon Musk
+
 ## [Costco Muscles in on HOKA's Action With $32 Dad Shoes](https://www.highsnobiety.com/p/costco-hoka-dad-shoe/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1711,6 +1846,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Gabrielle Union
 
+## [Well-Heeled Baddies Found Their New Ultra-Luxury Super Stomper](https://www.highsnobiety.com/p/margiela-suede-anatomic-boot-trend/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Wed, 21 Aug 2024 17:04:57 GMT*
+
+
+## Gabrielle Union
+
 ## [Costco Muscles in on HOKA's Action With $32 Dad Shoes](https://www.highsnobiety.com/p/costco-hoka-dad-shoe/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1819,6 +1963,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Giancarlo Esposito
 
+## [Well-Heeled Baddies Found Their New Ultra-Luxury Super Stomper](https://www.highsnobiety.com/p/margiela-suede-anatomic-boot-trend/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Wed, 21 Aug 2024 17:04:57 GMT*
+
+
+## Giancarlo Esposito
+
 ## [Costco Muscles in on HOKA's Action With $32 Dad Shoes](https://www.highsnobiety.com/p/costco-hoka-dad-shoe/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1927,6 +2080,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Gillian Jacobs
 
+## [Well-Heeled Baddies Found Their New Ultra-Luxury Super Stomper](https://www.highsnobiety.com/p/margiela-suede-anatomic-boot-trend/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Wed, 21 Aug 2024 17:04:57 GMT*
+
+
+## Gillian Jacobs
+
 ## [Costco Muscles in on HOKA's Action With $32 Dad Shoes](https://www.highsnobiety.com/p/costco-hoka-dad-shoe/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2035,6 +2197,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Jason Mantzoukas
 
+## [Well-Heeled Baddies Found Their New Ultra-Luxury Super Stomper](https://www.highsnobiety.com/p/margiela-suede-anatomic-boot-trend/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Wed, 21 Aug 2024 17:04:57 GMT*
+
+
+## Jason Mantzoukas
+
 ## [Costco Muscles in on HOKA's Action With $32 Dad Shoes](https://www.highsnobiety.com/p/costco-hoka-dad-shoe/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2143,6 +2314,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## JB Smoove
 
+## [Well-Heeled Baddies Found Their New Ultra-Luxury Super Stomper](https://www.highsnobiety.com/p/margiela-suede-anatomic-boot-trend/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Wed, 21 Aug 2024 17:04:57 GMT*
+
+
+## JB Smoove
+
 ## [Costco Muscles in on HOKA's Action With $32 Dad Shoes](https://www.highsnobiety.com/p/costco-hoka-dad-shoe/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2251,6 +2431,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Madison Pettis
 
+## [Well-Heeled Baddies Found Their New Ultra-Luxury Super Stomper](https://www.highsnobiety.com/p/margiela-suede-anatomic-boot-trend/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Wed, 21 Aug 2024 17:04:57 GMT*
+
+
+## Madison Pettis
+
 ## [Costco Muscles in on HOKA's Action With $32 Dad Shoes](https://www.highsnobiety.com/p/costco-hoka-dad-shoe/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2359,6 +2548,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Austin Butler
 
+## [Well-Heeled Baddies Found Their New Ultra-Luxury Super Stomper](https://www.highsnobiety.com/p/margiela-suede-anatomic-boot-trend/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Wed, 21 Aug 2024 17:04:57 GMT*
+
+
+## Austin Butler
+
 ## [Costco Muscles in on HOKA's Action With $32 Dad Shoes](https://www.highsnobiety.com/p/costco-hoka-dad-shoe/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2467,6 +2665,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Mark Zuckerberg
 
+## [Well-Heeled Baddies Found Their New Ultra-Luxury Super Stomper](https://www.highsnobiety.com/p/margiela-suede-anatomic-boot-trend/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Wed, 21 Aug 2024 17:04:57 GMT*
+
+
+## Mark Zuckerberg
+
 ## [Costco Muscles in on HOKA's Action With $32 Dad Shoes](https://www.highsnobiety.com/p/costco-hoka-dad-shoe/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2575,6 +2782,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Ariana Grande
 
+## [Well-Heeled Baddies Found Their New Ultra-Luxury Super Stomper](https://www.highsnobiety.com/p/margiela-suede-anatomic-boot-trend/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Wed, 21 Aug 2024 17:04:57 GMT*
+
+
+## Ariana Grande
+
 ## [Costco Muscles in on HOKA's Action With $32 Dad Shoes](https://www.highsnobiety.com/p/costco-hoka-dad-shoe/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2683,6 +2899,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Livvy Dunne
 
+## [Well-Heeled Baddies Found Their New Ultra-Luxury Super Stomper](https://www.highsnobiety.com/p/margiela-suede-anatomic-boot-trend/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Wed, 21 Aug 2024 17:04:57 GMT*
+
+
+## Livvy Dunne
+
 ## [Costco Muscles in on HOKA's Action With $32 Dad Shoes](https://www.highsnobiety.com/p/costco-hoka-dad-shoe/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2791,6 +3016,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Ali Wong
 
+## [Well-Heeled Baddies Found Their New Ultra-Luxury Super Stomper](https://www.highsnobiety.com/p/margiela-suede-anatomic-boot-trend/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Wed, 21 Aug 2024 17:04:57 GMT*
+
+
+## Ali Wong
+
 ## [Costco Muscles in on HOKA's Action With $32 Dad Shoes](https://www.highsnobiety.com/p/costco-hoka-dad-shoe/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2899,6 +3133,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Lizzo
 
+## [Well-Heeled Baddies Found Their New Ultra-Luxury Super Stomper](https://www.highsnobiety.com/p/margiela-suede-anatomic-boot-trend/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Wed, 21 Aug 2024 17:04:57 GMT*
+
+
+## Lizzo
+
 ## [Costco Muscles in on HOKA's Action With $32 Dad Shoes](https://www.highsnobiety.com/p/costco-hoka-dad-shoe/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3007,6 +3250,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Alison Brie
 
+## [Well-Heeled Baddies Found Their New Ultra-Luxury Super Stomper](https://www.highsnobiety.com/p/margiela-suede-anatomic-boot-trend/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Wed, 21 Aug 2024 17:04:57 GMT*
+
+
+## Alison Brie
+
 ## [Costco Muscles in on HOKA's Action With $32 Dad Shoes](https://www.highsnobiety.com/p/costco-hoka-dad-shoe/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3115,6 +3367,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Lil Wayne
 
+## [Well-Heeled Baddies Found Their New Ultra-Luxury Super Stomper](https://www.highsnobiety.com/p/margiela-suede-anatomic-boot-trend/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Wed, 21 Aug 2024 17:04:57 GMT*
+
+
+## Lil Wayne
+
 ## [Costco Muscles in on HOKA's Action With $32 Dad Shoes](https://www.highsnobiety.com/p/costco-hoka-dad-shoe/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3223,6 +3484,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Adele
 
+## [Well-Heeled Baddies Found Their New Ultra-Luxury Super Stomper](https://www.highsnobiety.com/p/margiela-suede-anatomic-boot-trend/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Wed, 21 Aug 2024 17:04:57 GMT*
+
+
+## Adele
+
 ## [Costco Muscles in on HOKA's Action With $32 Dad Shoes](https://www.highsnobiety.com/p/costco-hoka-dad-shoe/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3331,6 +3601,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Lindsay Lohan
 
+## [Well-Heeled Baddies Found Their New Ultra-Luxury Super Stomper](https://www.highsnobiety.com/p/margiela-suede-anatomic-boot-trend/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Wed, 21 Aug 2024 17:04:57 GMT*
+
+
+## Lindsay Lohan
+
 ## [Costco Muscles in on HOKA's Action With $32 Dad Shoes](https://www.highsnobiety.com/p/costco-hoka-dad-shoe/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3439,6 +3718,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Addison Rae
 
+## [Well-Heeled Baddies Found Their New Ultra-Luxury Super Stomper](https://www.highsnobiety.com/p/margiela-suede-anatomic-boot-trend/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Wed, 21 Aug 2024 17:04:57 GMT*
+
+
+## Addison Rae
+
 ## [Costco Muscles in on HOKA's Action With $32 Dad Shoes](https://www.highsnobiety.com/p/costco-hoka-dad-shoe/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3547,6 +3835,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Latto
 
+## [Well-Heeled Baddies Found Their New Ultra-Luxury Super Stomper](https://www.highsnobiety.com/p/margiela-suede-anatomic-boot-trend/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Wed, 21 Aug 2024 17:04:57 GMT*
+
+
+## Latto
+
 ## [Costco Muscles in on HOKA's Action With $32 Dad Shoes](https://www.highsnobiety.com/p/costco-hoka-dad-shoe/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3655,6 +3952,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Aaron Paul
 
+## [Well-Heeled Baddies Found Their New Ultra-Luxury Super Stomper](https://www.highsnobiety.com/p/margiela-suede-anatomic-boot-trend/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Wed, 21 Aug 2024 17:04:57 GMT*
+
+
+## Aaron Paul
+
 ## [Costco Muscles in on HOKA's Action With $32 Dad Shoes](https://www.highsnobiety.com/p/costco-hoka-dad-shoe/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3763,6 +4069,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## LeBron James
 
+## [Well-Heeled Baddies Found Their New Ultra-Luxury Super Stomper](https://www.highsnobiety.com/p/margiela-suede-anatomic-boot-trend/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Wed, 21 Aug 2024 17:04:57 GMT*
+
+
+## LeBron James
+
 ## [Costco Muscles in on HOKA's Action With $32 Dad Shoes](https://www.highsnobiety.com/p/costco-hoka-dad-shoe/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3871,6 +4186,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## 50 Cent
 
+## [Well-Heeled Baddies Found Their New Ultra-Luxury Super Stomper](https://www.highsnobiety.com/p/margiela-suede-anatomic-boot-trend/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Wed, 21 Aug 2024 17:04:57 GMT*
+
+
+## 50 Cent
+
 ## [Costco Muscles in on HOKA's Action With $32 Dad Shoes](https://www.highsnobiety.com/p/costco-hoka-dad-shoe/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3979,6 +4303,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Kesha
 
+## [Well-Heeled Baddies Found Their New Ultra-Luxury Super Stomper](https://www.highsnobiety.com/p/margiela-suede-anatomic-boot-trend/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Wed, 21 Aug 2024 17:04:57 GMT*
+
+
+## Kesha
+
 ## [Costco Muscles in on HOKA's Action With $32 Dad Shoes](https://www.highsnobiety.com/p/costco-hoka-dad-shoe/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -4087,6 +4420,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## 21 Savage
 
+## [Well-Heeled Baddies Found Their New Ultra-Luxury Super Stomper](https://www.highsnobiety.com/p/margiela-suede-anatomic-boot-trend/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Wed, 21 Aug 2024 17:04:57 GMT*
+
+
+## 21 Savage
+
 ## [Costco Muscles in on HOKA's Action With $32 Dad Shoes](https://www.highsnobiety.com/p/costco-hoka-dad-shoe/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -4195,6 +4537,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Larry David
 
+## [Well-Heeled Baddies Found Their New Ultra-Luxury Super Stomper](https://www.highsnobiety.com/p/margiela-suede-anatomic-boot-trend/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Wed, 21 Aug 2024 17:04:57 GMT*
+
+
+## Larry David
+
 ## [Costco Muscles in on HOKA's Action With $32 Dad Shoes](https://www.highsnobiety.com/p/costco-hoka-dad-shoe/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -4303,6 +4654,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Seth Rogan
 
+## [Well-Heeled Baddies Found Their New Ultra-Luxury Super Stomper](https://www.highsnobiety.com/p/margiela-suede-anatomic-boot-trend/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Wed, 21 Aug 2024 17:04:57 GMT*
+
+
+## Seth Rogan
+
 ## [Costco Muscles in on HOKA's Action With $32 Dad Shoes](https://www.highsnobiety.com/p/costco-hoka-dad-shoe/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -4411,6 +4771,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Simone Biles
 
+## [Well-Heeled Baddies Found Their New Ultra-Luxury Super Stomper](https://www.highsnobiety.com/p/margiela-suede-anatomic-boot-trend/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Wed, 21 Aug 2024 17:04:57 GMT*
+
+
+## Simone Biles
+
 ## [Costco Muscles in on HOKA's Action With $32 Dad Shoes](https://www.highsnobiety.com/p/costco-hoka-dad-shoe/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -4519,6 +4888,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Pete Davidson
 
+## [Well-Heeled Baddies Found Their New Ultra-Luxury Super Stomper](https://www.highsnobiety.com/p/margiela-suede-anatomic-boot-trend/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Wed, 21 Aug 2024 17:04:57 GMT*
+
+
+## Pete Davidson
+
 ## [Costco Muscles in on HOKA's Action With $32 Dad Shoes](https://www.highsnobiety.com/p/costco-hoka-dad-shoe/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -4627,6 +5005,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Prince Harry
 
+## [Well-Heeled Baddies Found Their New Ultra-Luxury Super Stomper](https://www.highsnobiety.com/p/margiela-suede-anatomic-boot-trend/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Wed, 21 Aug 2024 17:04:57 GMT*
+
+
+## Prince Harry
+
 ## [Costco Muscles in on HOKA's Action With $32 Dad Shoes](https://www.highsnobiety.com/p/costco-hoka-dad-shoe/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -4735,6 +5122,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Princess of Wales
 
+## [Well-Heeled Baddies Found Their New Ultra-Luxury Super Stomper](https://www.highsnobiety.com/p/margiela-suede-anatomic-boot-trend/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Wed, 21 Aug 2024 17:04:57 GMT*
+
+
+## Princess of Wales
+
 ## [Costco Muscles in on HOKA's Action With $32 Dad Shoes](https://www.highsnobiety.com/p/costco-hoka-dad-shoe/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -4843,6 +5239,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Rachel McAdams
 
+## [Well-Heeled Baddies Found Their New Ultra-Luxury Super Stomper](https://www.highsnobiety.com/p/margiela-suede-anatomic-boot-trend/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Wed, 21 Aug 2024 17:04:57 GMT*
+
+
+## Rachel McAdams
+
 ## [Costco Muscles in on HOKA's Action With $32 Dad Shoes](https://www.highsnobiety.com/p/costco-hoka-dad-shoe/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -4951,6 +5356,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Reneé Rapp
 
+## [Well-Heeled Baddies Found Their New Ultra-Luxury Super Stomper](https://www.highsnobiety.com/p/margiela-suede-anatomic-boot-trend/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Wed, 21 Aug 2024 17:04:57 GMT*
+
+
+## Reneé Rapp
+
 ## [Costco Muscles in on HOKA's Action With $32 Dad Shoes](https://www.highsnobiety.com/p/costco-hoka-dad-shoe/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -5059,6 +5473,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Rick Ross
 
+## [Well-Heeled Baddies Found Their New Ultra-Luxury Super Stomper](https://www.highsnobiety.com/p/margiela-suede-anatomic-boot-trend/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Wed, 21 Aug 2024 17:04:57 GMT*
+
+
+## Rick Ross
+
 ## [Costco Muscles in on HOKA's Action With $32 Dad Shoes](https://www.highsnobiety.com/p/costco-hoka-dad-shoe/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -5167,6 +5590,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Sam Ashgari
 
+## [Well-Heeled Baddies Found Their New Ultra-Luxury Super Stomper](https://www.highsnobiety.com/p/margiela-suede-anatomic-boot-trend/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Wed, 21 Aug 2024 17:04:57 GMT*
+
+
+## Sam Ashgari
+
 ## [Costco Muscles in on HOKA's Action With $32 Dad Shoes](https://www.highsnobiety.com/p/costco-hoka-dad-shoe/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -5275,6 +5707,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Sandra Oh
 
+## [Well-Heeled Baddies Found Their New Ultra-Luxury Super Stomper](https://www.highsnobiety.com/p/margiela-suede-anatomic-boot-trend/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Wed, 21 Aug 2024 17:04:57 GMT*
+
+
+## Sandra Oh
+
 ## [Costco Muscles in on HOKA's Action With $32 Dad Shoes](https://www.highsnobiety.com/p/costco-hoka-dad-shoe/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -5383,6 +5824,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Donald Trump
 
+## [Well-Heeled Baddies Found Their New Ultra-Luxury Super Stomper](https://www.highsnobiety.com/p/margiela-suede-anatomic-boot-trend/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Wed, 21 Aug 2024 17:04:57 GMT*
+
+
+## Donald Trump
+
 ## [Costco Muscles in on HOKA's Action With $32 Dad Shoes](https://www.highsnobiety.com/p/costco-hoka-dad-shoe/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -5491,6 +5941,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Diddy
 
+## [Well-Heeled Baddies Found Their New Ultra-Luxury Super Stomper](https://www.highsnobiety.com/p/margiela-suede-anatomic-boot-trend/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Wed, 21 Aug 2024 17:04:57 GMT*
+
+
+## Diddy
+
 ## [Costco Muscles in on HOKA's Action With $32 Dad Shoes](https://www.highsnobiety.com/p/costco-hoka-dad-shoe/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -5599,6 +6058,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## City Girls
 
+## [Well-Heeled Baddies Found Their New Ultra-Luxury Super Stomper](https://www.highsnobiety.com/p/margiela-suede-anatomic-boot-trend/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Wed, 21 Aug 2024 17:04:57 GMT*
+
+
+## City Girls
+
 ## [Costco Muscles in on HOKA's Action With $32 Dad Shoes](https://www.highsnobiety.com/p/costco-hoka-dad-shoe/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -5707,6 +6175,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Chloe Bailey
 
+## [Well-Heeled Baddies Found Their New Ultra-Luxury Super Stomper](https://www.highsnobiety.com/p/margiela-suede-anatomic-boot-trend/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Wed, 21 Aug 2024 17:04:57 GMT*
+
+
+## Chloe Bailey
+
 ## [Costco Muscles in on HOKA's Action With $32 Dad Shoes](https://www.highsnobiety.com/p/costco-hoka-dad-shoe/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -5815,6 +6292,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Charli D Amelio
 
+## [Well-Heeled Baddies Found Their New Ultra-Luxury Super Stomper](https://www.highsnobiety.com/p/margiela-suede-anatomic-boot-trend/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Wed, 21 Aug 2024 17:04:57 GMT*
+
+
+## Charli D Amelio
+
 ## [Costco Muscles in on HOKA's Action With $32 Dad Shoes](https://www.highsnobiety.com/p/costco-hoka-dad-shoe/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -5923,6 +6409,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Cardi B
 
+## [Well-Heeled Baddies Found Their New Ultra-Luxury Super Stomper](https://www.highsnobiety.com/p/margiela-suede-anatomic-boot-trend/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Wed, 21 Aug 2024 17:04:57 GMT*
+
+
+## Cardi B
+
 ## [Costco Muscles in on HOKA's Action With $32 Dad Shoes](https://www.highsnobiety.com/p/costco-hoka-dad-shoe/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -6031,6 +6526,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Bryan Cranston
 
+## [Well-Heeled Baddies Found Their New Ultra-Luxury Super Stomper](https://www.highsnobiety.com/p/margiela-suede-anatomic-boot-trend/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Wed, 21 Aug 2024 17:04:57 GMT*
+
+
+## Bryan Cranston
+
 ## [Costco Muscles in on HOKA's Action With $32 Dad Shoes](https://www.highsnobiety.com/p/costco-hoka-dad-shoe/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -6139,6 +6643,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Brielle Biermann
 
+## [Well-Heeled Baddies Found Their New Ultra-Luxury Super Stomper](https://www.highsnobiety.com/p/margiela-suede-anatomic-boot-trend/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Wed, 21 Aug 2024 17:04:57 GMT*
+
+
+## Brielle Biermann
+
 ## [Costco Muscles in on HOKA's Action With $32 Dad Shoes](https://www.highsnobiety.com/p/costco-hoka-dad-shoe/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -6247,6 +6760,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Dua Lipa
 
+## [Well-Heeled Baddies Found Their New Ultra-Luxury Super Stomper](https://www.highsnobiety.com/p/margiela-suede-anatomic-boot-trend/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Wed, 21 Aug 2024 17:04:57 GMT*
+
+
+## Dua Lipa
+
 ## [Costco Muscles in on HOKA's Action With $32 Dad Shoes](https://www.highsnobiety.com/p/costco-hoka-dad-shoe/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -6355,6 +6877,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Drake
 
+## [Well-Heeled Baddies Found Their New Ultra-Luxury Super Stomper](https://www.highsnobiety.com/p/margiela-suede-anatomic-boot-trend/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Wed, 21 Aug 2024 17:04:57 GMT*
+
+
+## Drake
+
 ## [Costco Muscles in on HOKA's Action With $32 Dad Shoes](https://www.highsnobiety.com/p/costco-hoka-dad-shoe/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -6463,6 +6994,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Jenner
 
+## [Well-Heeled Baddies Found Their New Ultra-Luxury Super Stomper](https://www.highsnobiety.com/p/margiela-suede-anatomic-boot-trend/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Wed, 21 Aug 2024 17:04:57 GMT*
+
+
+## Jenner
+
 ## [Costco Muscles in on HOKA's Action With $32 Dad Shoes](https://www.highsnobiety.com/p/costco-hoka-dad-shoe/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -6571,6 +7111,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## J. Cole
 
+## [Well-Heeled Baddies Found Their New Ultra-Luxury Super Stomper](https://www.highsnobiety.com/p/margiela-suede-anatomic-boot-trend/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Wed, 21 Aug 2024 17:04:57 GMT*
+
+
+## J. Cole
+
 ## [Costco Muscles in on HOKA's Action With $32 Dad Shoes](https://www.highsnobiety.com/p/costco-hoka-dad-shoe/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -6679,6 +7228,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Jerrod Carmichael
 
+## [Well-Heeled Baddies Found Their New Ultra-Luxury Super Stomper](https://www.highsnobiety.com/p/margiela-suede-anatomic-boot-trend/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Wed, 21 Aug 2024 17:04:57 GMT*
+
+
+## Jerrod Carmichael
+
 ## [Costco Muscles in on HOKA's Action With $32 Dad Shoes](https://www.highsnobiety.com/p/costco-hoka-dad-shoe/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -6787,6 +7345,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Jennifer Lawrence
 
+## [Well-Heeled Baddies Found Their New Ultra-Luxury Super Stomper](https://www.highsnobiety.com/p/margiela-suede-anatomic-boot-trend/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Wed, 21 Aug 2024 17:04:57 GMT*
+
+
+## Jennifer Lawrence
+
 ## [Costco Muscles in on HOKA's Action With $32 Dad Shoes](https://www.highsnobiety.com/p/costco-hoka-dad-shoe/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -6895,6 +7462,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Joe Biden
 
+## [Well-Heeled Baddies Found Their New Ultra-Luxury Super Stomper](https://www.highsnobiety.com/p/margiela-suede-anatomic-boot-trend/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Wed, 21 Aug 2024 17:04:57 GMT*
+
+
+## Joe Biden
+
 ## [Costco Muscles in on HOKA's Action With $32 Dad Shoes](https://www.highsnobiety.com/p/costco-hoka-dad-shoe/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -7003,6 +7579,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## J.K. Simmons
 
+## [Well-Heeled Baddies Found Their New Ultra-Luxury Super Stomper](https://www.highsnobiety.com/p/margiela-suede-anatomic-boot-trend/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Wed, 21 Aug 2024 17:04:57 GMT*
+
+
+## J.K. Simmons
+
 ## [Costco Muscles in on HOKA's Action With $32 Dad Shoes](https://www.highsnobiety.com/p/costco-hoka-dad-shoe/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -7111,6 +7696,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Kamala Harris
 
+## [Well-Heeled Baddies Found Their New Ultra-Luxury Super Stomper](https://www.highsnobiety.com/p/margiela-suede-anatomic-boot-trend/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Wed, 21 Aug 2024 17:04:57 GMT*
+
+
+## Kamala Harris
+
 ## [Costco Muscles in on HOKA's Action With $32 Dad Shoes](https://www.highsnobiety.com/p/costco-hoka-dad-shoe/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -7219,6 +7813,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## John C Reilly
 
+## [Well-Heeled Baddies Found Their New Ultra-Luxury Super Stomper](https://www.highsnobiety.com/p/margiela-suede-anatomic-boot-trend/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Wed, 21 Aug 2024 17:04:57 GMT*
+
+
+## John C Reilly
+
 ## [Costco Muscles in on HOKA's Action With $32 Dad Shoes](https://www.highsnobiety.com/p/costco-hoka-dad-shoe/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -7327,6 +7930,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Kardashian
 
+## [Well-Heeled Baddies Found Their New Ultra-Luxury Super Stomper](https://www.highsnobiety.com/p/margiela-suede-anatomic-boot-trend/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Wed, 21 Aug 2024 17:04:57 GMT*
+
+
+## Kardashian
+
 ## [Costco Muscles in on HOKA's Action With $32 Dad Shoes](https://www.highsnobiety.com/p/costco-hoka-dad-shoe/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -7435,6 +8047,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Kanye
 
+## [Well-Heeled Baddies Found Their New Ultra-Luxury Super Stomper](https://www.highsnobiety.com/p/margiela-suede-anatomic-boot-trend/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Wed, 21 Aug 2024 17:04:57 GMT*
+
+
+## Kanye
+
 ## [Costco Muscles in on HOKA's Action With $32 Dad Shoes](https://www.highsnobiety.com/p/costco-hoka-dad-shoe/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -7543,6 +8164,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Zendaya
 
+## [Well-Heeled Baddies Found Their New Ultra-Luxury Super Stomper](https://www.highsnobiety.com/p/margiela-suede-anatomic-boot-trend/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Wed, 21 Aug 2024 17:04:57 GMT*
+
+
+## Zendaya
+
 ## [Costco Muscles in on HOKA's Action With $32 Dad Shoes](https://www.highsnobiety.com/p/costco-hoka-dad-shoe/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -7651,6 +8281,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Will Ferrell
 
+## [Well-Heeled Baddies Found Their New Ultra-Luxury Super Stomper](https://www.highsnobiety.com/p/margiela-suede-anatomic-boot-trend/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Wed, 21 Aug 2024 17:04:57 GMT*
+
+
+## Will Ferrell
+
 ## [Costco Muscles in on HOKA's Action With $32 Dad Shoes](https://www.highsnobiety.com/p/costco-hoka-dad-shoe/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -7759,6 +8398,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Zazie Beetz
 
+## [Well-Heeled Baddies Found Their New Ultra-Luxury Super Stomper](https://www.highsnobiety.com/p/margiela-suede-anatomic-boot-trend/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Wed, 21 Aug 2024 17:04:57 GMT*
+
+
+## Zazie Beetz
+
 ## [Costco Muscles in on HOKA's Action With $32 Dad Shoes](https://www.highsnobiety.com/p/costco-hoka-dad-shoe/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -7867,6 +8515,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Bob Odenkirk
 
+## [Well-Heeled Baddies Found Their New Ultra-Luxury Super Stomper](https://www.highsnobiety.com/p/margiela-suede-anatomic-boot-trend/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Wed, 21 Aug 2024 17:04:57 GMT*
+
+
+## Bob Odenkirk
+
 ## [Costco Muscles in on HOKA's Action With $32 Dad Shoes](https://www.highsnobiety.com/p/costco-hoka-dad-shoe/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -7975,6 +8632,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Brad Pitt
 
+## [Well-Heeled Baddies Found Their New Ultra-Luxury Super Stomper](https://www.highsnobiety.com/p/margiela-suede-anatomic-boot-trend/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Wed, 21 Aug 2024 17:04:57 GMT*
+
+
+## Brad Pitt
+
 ## [Costco Muscles in on HOKA's Action With $32 Dad Shoes](https://www.highsnobiety.com/p/costco-hoka-dad-shoe/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -8083,6 +8749,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Beyoncé
 
+## [Well-Heeled Baddies Found Their New Ultra-Luxury Super Stomper](https://www.highsnobiety.com/p/margiela-suede-anatomic-boot-trend/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Wed, 21 Aug 2024 17:04:57 GMT*
+
+
+## Beyoncé
+
 ## [Costco Muscles in on HOKA's Action With $32 Dad Shoes](https://www.highsnobiety.com/p/costco-hoka-dad-shoe/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -8191,6 +8866,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Bia
 
+## [Well-Heeled Baddies Found Their New Ultra-Luxury Super Stomper](https://www.highsnobiety.com/p/margiela-suede-anatomic-boot-trend/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Wed, 21 Aug 2024 17:04:57 GMT*
+
+
+## Bia
+
 ## [Costco Muscles in on HOKA's Action With $32 Dad Shoes](https://www.highsnobiety.com/p/costco-hoka-dad-shoe/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -8299,6 +8983,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Avantika
 
+## [Well-Heeled Baddies Found Their New Ultra-Luxury Super Stomper](https://www.highsnobiety.com/p/margiela-suede-anatomic-boot-trend/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Wed, 21 Aug 2024 17:04:57 GMT*
+
+
+## Avantika
+
 ## [Costco Muscles in on HOKA's Action With $32 Dad Shoes](https://www.highsnobiety.com/p/costco-hoka-dad-shoe/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -8407,6 +9100,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Bernie Sanders
 
+## [Well-Heeled Baddies Found Their New Ultra-Luxury Super Stomper](https://www.highsnobiety.com/p/margiela-suede-anatomic-boot-trend/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Wed, 21 Aug 2024 17:04:57 GMT*
+
+
+## Bernie Sanders
+
 ## [Costco Muscles in on HOKA's Action With $32 Dad Shoes](https://www.highsnobiety.com/p/costco-hoka-dad-shoe/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -8515,6 +9217,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Big Sean
 
+## [Well-Heeled Baddies Found Their New Ultra-Luxury Super Stomper](https://www.highsnobiety.com/p/margiela-suede-anatomic-boot-trend/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Wed, 21 Aug 2024 17:04:57 GMT*
+
+
+## Big Sean
+
 ## [Costco Muscles in on HOKA's Action With $32 Dad Shoes](https://www.highsnobiety.com/p/costco-hoka-dad-shoe/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -8623,6 +9334,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## BlockBoy JB
 
+## [Well-Heeled Baddies Found Their New Ultra-Luxury Super Stomper](https://www.highsnobiety.com/p/margiela-suede-anatomic-boot-trend/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Wed, 21 Aug 2024 17:04:57 GMT*
+
+
+## BlockBoy JB
+
 ## [Costco Muscles in on HOKA's Action With $32 Dad Shoes](https://www.highsnobiety.com/p/costco-hoka-dad-shoe/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -8731,6 +9451,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Biden
 
+## [Well-Heeled Baddies Found Their New Ultra-Luxury Super Stomper](https://www.highsnobiety.com/p/margiela-suede-anatomic-boot-trend/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Wed, 21 Aug 2024 17:04:57 GMT*
+
+
+## Biden
+
 ## [Costco Muscles in on HOKA's Action With $32 Dad Shoes](https://www.highsnobiety.com/p/costco-hoka-dad-shoe/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -8839,6 +9568,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Bieber
 
+## [Well-Heeled Baddies Found Their New Ultra-Luxury Super Stomper](https://www.highsnobiety.com/p/margiela-suede-anatomic-boot-trend/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Wed, 21 Aug 2024 17:04:57 GMT*
+
+
+## Bieber
+
 ## [Costco Muscles in on HOKA's Action With $32 Dad Shoes](https://www.highsnobiety.com/p/costco-hoka-dad-shoe/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -8947,6 +9685,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Paulina Porizkov
 
+## [Well-Heeled Baddies Found Their New Ultra-Luxury Super Stomper](https://www.highsnobiety.com/p/margiela-suede-anatomic-boot-trend/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Wed, 21 Aug 2024 17:04:57 GMT*
+
+
+## Paulina Porizkov
+
 ## [Costco Muscles in on HOKA's Action With $32 Dad Shoes](https://www.highsnobiety.com/p/costco-hoka-dad-shoe/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -9055,6 +9802,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Paris Hilton
 
+## [Well-Heeled Baddies Found Their New Ultra-Luxury Super Stomper](https://www.highsnobiety.com/p/margiela-suede-anatomic-boot-trend/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Wed, 21 Aug 2024 17:04:57 GMT*
+
+
+## Paris Hilton
+
 ## [Costco Muscles in on HOKA's Action With $32 Dad Shoes](https://www.highsnobiety.com/p/costco-hoka-dad-shoe/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -9163,6 +9919,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Metro Boomin
 
+## [Well-Heeled Baddies Found Their New Ultra-Luxury Super Stomper](https://www.highsnobiety.com/p/margiela-suede-anatomic-boot-trend/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Wed, 21 Aug 2024 17:04:57 GMT*
+
+
+## Metro Boomin
+
 ## [Costco Muscles in on HOKA's Action With $32 Dad Shoes](https://www.highsnobiety.com/p/costco-hoka-dad-shoe/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -9271,6 +10036,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Meghan Markle
 
+## [Well-Heeled Baddies Found Their New Ultra-Luxury Super Stomper](https://www.highsnobiety.com/p/margiela-suede-anatomic-boot-trend/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Wed, 21 Aug 2024 17:04:57 GMT*
+
+
+## Meghan Markle
+
 ## [Costco Muscles in on HOKA's Action With $32 Dad Shoes](https://www.highsnobiety.com/p/costco-hoka-dad-shoe/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -9379,6 +10153,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Megan Thee Stallion
 
+## [Well-Heeled Baddies Found Their New Ultra-Luxury Super Stomper](https://www.highsnobiety.com/p/margiela-suede-anatomic-boot-trend/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Wed, 21 Aug 2024 17:04:57 GMT*
+
+
+## Megan Thee Stallion
+
 ## [Costco Muscles in on HOKA's Action With $32 Dad Shoes](https://www.highsnobiety.com/p/costco-hoka-dad-shoe/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -9487,6 +10270,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Maya Rudolph
 
+## [Well-Heeled Baddies Found Their New Ultra-Luxury Super Stomper](https://www.highsnobiety.com/p/margiela-suede-anatomic-boot-trend/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Wed, 21 Aug 2024 17:04:57 GMT*
+
+
+## Maya Rudolph
+
 ## [Costco Muscles in on HOKA's Action With $32 Dad Shoes](https://www.highsnobiety.com/p/costco-hoka-dad-shoe/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -9595,6 +10387,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Olivia Rodrigo
 
+## [Well-Heeled Baddies Found Their New Ultra-Luxury Super Stomper](https://www.highsnobiety.com/p/margiela-suede-anatomic-boot-trend/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Wed, 21 Aug 2024 17:04:57 GMT*
+
+
+## Olivia Rodrigo
+
 ## [Costco Muscles in on HOKA's Action With $32 Dad Shoes](https://www.highsnobiety.com/p/costco-hoka-dad-shoe/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -9703,6 +10504,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Obama
 
+## [Well-Heeled Baddies Found Their New Ultra-Luxury Super Stomper](https://www.highsnobiety.com/p/margiela-suede-anatomic-boot-trend/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Wed, 21 Aug 2024 17:04:57 GMT*
+
+
+## Obama
+
 ## [Costco Muscles in on HOKA's Action With $32 Dad Shoes](https://www.highsnobiety.com/p/costco-hoka-dad-shoe/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -9811,6 +10621,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Nicki Minaj
 
+## [Well-Heeled Baddies Found Their New Ultra-Luxury Super Stomper](https://www.highsnobiety.com/p/margiela-suede-anatomic-boot-trend/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Wed, 21 Aug 2024 17:04:57 GMT*
+
+
+## Nicki Minaj
+
 ## [Costco Muscles in on HOKA's Action With $32 Dad Shoes](https://www.highsnobiety.com/p/costco-hoka-dad-shoe/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -9915,6 +10734,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Wed, 21 Aug 2024 22:48:32 GMT*
+
+
+## MrBeast
+
+## [Well-Heeled Baddies Found Their New Ultra-Luxury Super Stomper](https://www.highsnobiety.com/p/margiela-suede-anatomic-boot-trend/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Wed, 21 Aug 2024 17:04:57 GMT*
 
 
 ## MrBeast
