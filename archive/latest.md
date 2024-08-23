@@ -118,15 +118,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Tim Cook
 
-## [Vans' Frankenstein Skate Shoe Is Alive  Wild as Ever](https://www.highsnobiety.com/p/vans-clash-the-wall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 22 Aug 2024 07:00:42 GMT*
-
-
-## Tim Cook
-
 ## [The Leah Kateb Effect Goes Way Beyond 'Love Island USA'](https://www.highsnobiety.com/p/leah-kateb-love-island-fashion/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -262,15 +253,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Taylor Swift
 
-## [Vans' Frankenstein Skate Shoe Is Alive  Wild as Ever](https://www.highsnobiety.com/p/vans-clash-the-wall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 22 Aug 2024 07:00:42 GMT*
-
-
-## Taylor Swift
-
 ## [The Leah Kateb Effect Goes Way Beyond 'Love Island USA'](https://www.highsnobiety.com/p/leah-kateb-love-island-fashion/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -406,15 +388,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Tom Brady
 
-## [Vans' Frankenstein Skate Shoe Is Alive  Wild as Ever](https://www.highsnobiety.com/p/vans-clash-the-wall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 22 Aug 2024 07:00:42 GMT*
-
-
-## Tom Brady
-
 ## [The Leah Kateb Effect Goes Way Beyond 'Love Island USA'](https://www.highsnobiety.com/p/leah-kateb-love-island-fashion/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -550,15 +523,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Tina Fey
 
-## [Vans' Frankenstein Skate Shoe Is Alive  Wild as Ever](https://www.highsnobiety.com/p/vans-clash-the-wall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 22 Aug 2024 07:00:42 GMT*
-
-
-## Tina Fey
-
 ## [The Leah Kateb Effect Goes Way Beyond 'Love Island USA'](https://www.highsnobiety.com/p/leah-kateb-love-island-fashion/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -694,15 +658,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Steven Yuen
 
-## [Vans' Frankenstein Skate Shoe Is Alive  Wild as Ever](https://www.highsnobiety.com/p/vans-clash-the-wall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 22 Aug 2024 07:00:42 GMT*
-
-
-## Steven Yuen
-
 ## [The Leah Kateb Effect Goes Way Beyond 'Love Island USA'](https://www.highsnobiety.com/p/leah-kateb-love-island-fashion/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -838,15 +793,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Sommer Ray
 
-## [Vans' Frankenstein Skate Shoe Is Alive  Wild as Ever](https://www.highsnobiety.com/p/vans-clash-the-wall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 22 Aug 2024 07:00:42 GMT*
-
-
-## Sommer Ray
-
 ## [The Leah Kateb Effect Goes Way Beyond 'Love Island USA'](https://www.highsnobiety.com/p/leah-kateb-love-island-fashion/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -982,15 +928,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Sza
 
-## [Vans' Frankenstein Skate Shoe Is Alive  Wild as Ever](https://www.highsnobiety.com/p/vans-clash-the-wall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 22 Aug 2024 07:00:42 GMT*
-
-
-## Sza
-
 ## [The Leah Kateb Effect Goes Way Beyond 'Love Island USA'](https://www.highsnobiety.com/p/leah-kateb-love-island-fashion/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1126,15 +1063,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Sydney Sweeney
 
-## [Vans' Frankenstein Skate Shoe Is Alive  Wild as Ever](https://www.highsnobiety.com/p/vans-clash-the-wall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 22 Aug 2024 07:00:42 GMT*
-
-
-## Sydney Sweeney
-
 ## [The Leah Kateb Effect Goes Way Beyond 'Love Island USA'](https://www.highsnobiety.com/p/leah-kateb-love-island-fashion/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1270,15 +1198,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Walton Goggins
 
-## [Vans' Frankenstein Skate Shoe Is Alive  Wild as Ever](https://www.highsnobiety.com/p/vans-clash-the-wall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 22 Aug 2024 07:00:42 GMT*
-
-
-## Walton Goggins
-
 ## [The Leah Kateb Effect Goes Way Beyond 'Love Island USA'](https://www.highsnobiety.com/p/leah-kateb-love-island-fashion/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1414,15 +1333,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Tom Holland
 
-## [Vans' Frankenstein Skate Shoe Is Alive  Wild as Ever](https://www.highsnobiety.com/p/vans-clash-the-wall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 22 Aug 2024 07:00:42 GMT*
-
-
-## Tom Holland
-
 ## [The Leah Kateb Effect Goes Way Beyond 'Love Island USA'](https://www.highsnobiety.com/p/leah-kateb-love-island-fashion/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1558,15 +1468,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Gucci Mane
 
-## [Vans' Frankenstein Skate Shoe Is Alive  Wild as Ever](https://www.highsnobiety.com/p/vans-clash-the-wall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 22 Aug 2024 07:00:42 GMT*
-
-
-## Gucci Mane
-
 ## [The Leah Kateb Effect Goes Way Beyond 'Love Island USA'](https://www.highsnobiety.com/p/leah-kateb-love-island-fashion/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1702,15 +1603,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Harry Styles
 
-## [Vans' Frankenstein Skate Shoe Is Alive  Wild as Ever](https://www.highsnobiety.com/p/vans-clash-the-wall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 22 Aug 2024 07:00:42 GMT*
-
-
-## Harry Styles
-
 ## [The Leah Kateb Effect Goes Way Beyond 'Love Island USA'](https://www.highsnobiety.com/p/leah-kateb-love-island-fashion/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1846,15 +1738,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Jake Paul
 
-## [Vans' Frankenstein Skate Shoe Is Alive  Wild as Ever](https://www.highsnobiety.com/p/vans-clash-the-wall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 22 Aug 2024 07:00:42 GMT*
-
-
-## Jake Paul
-
 ## [The Leah Kateb Effect Goes Way Beyond 'Love Island USA'](https://www.highsnobiety.com/p/leah-kateb-love-island-fashion/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1990,15 +1873,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Jameela Jamil
 
-## [Vans' Frankenstein Skate Shoe Is Alive  Wild as Ever](https://www.highsnobiety.com/p/vans-clash-the-wall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 22 Aug 2024 07:00:42 GMT*
-
-
-## Jameela Jamil
-
 ## [The Leah Kateb Effect Goes Way Beyond 'Love Island USA'](https://www.highsnobiety.com/p/leah-kateb-love-island-fashion/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2134,15 +2008,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Elon Musk
 
-## [Vans' Frankenstein Skate Shoe Is Alive  Wild as Ever](https://www.highsnobiety.com/p/vans-clash-the-wall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 22 Aug 2024 07:00:42 GMT*
-
-
-## Elon Musk
-
 ## [The Leah Kateb Effect Goes Way Beyond 'Love Island USA'](https://www.highsnobiety.com/p/leah-kateb-love-island-fashion/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2278,15 +2143,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Gabrielle Union
 
-## [Vans' Frankenstein Skate Shoe Is Alive  Wild as Ever](https://www.highsnobiety.com/p/vans-clash-the-wall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 22 Aug 2024 07:00:42 GMT*
-
-
-## Gabrielle Union
-
 ## [The Leah Kateb Effect Goes Way Beyond 'Love Island USA'](https://www.highsnobiety.com/p/leah-kateb-love-island-fashion/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2422,15 +2278,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Giancarlo Esposito
 
-## [Vans' Frankenstein Skate Shoe Is Alive  Wild as Ever](https://www.highsnobiety.com/p/vans-clash-the-wall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 22 Aug 2024 07:00:42 GMT*
-
-
-## Giancarlo Esposito
-
 ## [The Leah Kateb Effect Goes Way Beyond 'Love Island USA'](https://www.highsnobiety.com/p/leah-kateb-love-island-fashion/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2566,15 +2413,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Gillian Jacobs
 
-## [Vans' Frankenstein Skate Shoe Is Alive  Wild as Ever](https://www.highsnobiety.com/p/vans-clash-the-wall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 22 Aug 2024 07:00:42 GMT*
-
-
-## Gillian Jacobs
-
 ## [The Leah Kateb Effect Goes Way Beyond 'Love Island USA'](https://www.highsnobiety.com/p/leah-kateb-love-island-fashion/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2710,15 +2548,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Jason Mantzoukas
 
-## [Vans' Frankenstein Skate Shoe Is Alive  Wild as Ever](https://www.highsnobiety.com/p/vans-clash-the-wall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 22 Aug 2024 07:00:42 GMT*
-
-
-## Jason Mantzoukas
-
 ## [The Leah Kateb Effect Goes Way Beyond 'Love Island USA'](https://www.highsnobiety.com/p/leah-kateb-love-island-fashion/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2854,15 +2683,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## JB Smoove
 
-## [Vans' Frankenstein Skate Shoe Is Alive  Wild as Ever](https://www.highsnobiety.com/p/vans-clash-the-wall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 22 Aug 2024 07:00:42 GMT*
-
-
-## JB Smoove
-
 ## [The Leah Kateb Effect Goes Way Beyond 'Love Island USA'](https://www.highsnobiety.com/p/leah-kateb-love-island-fashion/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2998,15 +2818,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Madison Pettis
 
-## [Vans' Frankenstein Skate Shoe Is Alive  Wild as Ever](https://www.highsnobiety.com/p/vans-clash-the-wall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 22 Aug 2024 07:00:42 GMT*
-
-
-## Madison Pettis
-
 ## [The Leah Kateb Effect Goes Way Beyond 'Love Island USA'](https://www.highsnobiety.com/p/leah-kateb-love-island-fashion/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3142,15 +2953,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Austin Butler
 
-## [Vans' Frankenstein Skate Shoe Is Alive  Wild as Ever](https://www.highsnobiety.com/p/vans-clash-the-wall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 22 Aug 2024 07:00:42 GMT*
-
-
-## Austin Butler
-
 ## [The Leah Kateb Effect Goes Way Beyond 'Love Island USA'](https://www.highsnobiety.com/p/leah-kateb-love-island-fashion/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3286,15 +3088,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Mark Zuckerberg
 
-## [Vans' Frankenstein Skate Shoe Is Alive  Wild as Ever](https://www.highsnobiety.com/p/vans-clash-the-wall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 22 Aug 2024 07:00:42 GMT*
-
-
-## Mark Zuckerberg
-
 ## [The Leah Kateb Effect Goes Way Beyond 'Love Island USA'](https://www.highsnobiety.com/p/leah-kateb-love-island-fashion/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3430,15 +3223,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Ariana Grande
 
-## [Vans' Frankenstein Skate Shoe Is Alive  Wild as Ever](https://www.highsnobiety.com/p/vans-clash-the-wall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 22 Aug 2024 07:00:42 GMT*
-
-
-## Ariana Grande
-
 ## [The Leah Kateb Effect Goes Way Beyond 'Love Island USA'](https://www.highsnobiety.com/p/leah-kateb-love-island-fashion/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3574,15 +3358,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Livvy Dunne
 
-## [Vans' Frankenstein Skate Shoe Is Alive  Wild as Ever](https://www.highsnobiety.com/p/vans-clash-the-wall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 22 Aug 2024 07:00:42 GMT*
-
-
-## Livvy Dunne
-
 ## [The Leah Kateb Effect Goes Way Beyond 'Love Island USA'](https://www.highsnobiety.com/p/leah-kateb-love-island-fashion/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3718,15 +3493,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Ali Wong
 
-## [Vans' Frankenstein Skate Shoe Is Alive  Wild as Ever](https://www.highsnobiety.com/p/vans-clash-the-wall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 22 Aug 2024 07:00:42 GMT*
-
-
-## Ali Wong
-
 ## [The Leah Kateb Effect Goes Way Beyond 'Love Island USA'](https://www.highsnobiety.com/p/leah-kateb-love-island-fashion/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3862,15 +3628,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Lizzo
 
-## [Vans' Frankenstein Skate Shoe Is Alive  Wild as Ever](https://www.highsnobiety.com/p/vans-clash-the-wall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 22 Aug 2024 07:00:42 GMT*
-
-
-## Lizzo
-
 ## [The Leah Kateb Effect Goes Way Beyond 'Love Island USA'](https://www.highsnobiety.com/p/leah-kateb-love-island-fashion/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -4006,15 +3763,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Alison Brie
 
-## [Vans' Frankenstein Skate Shoe Is Alive  Wild as Ever](https://www.highsnobiety.com/p/vans-clash-the-wall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 22 Aug 2024 07:00:42 GMT*
-
-
-## Alison Brie
-
 ## [The Leah Kateb Effect Goes Way Beyond 'Love Island USA'](https://www.highsnobiety.com/p/leah-kateb-love-island-fashion/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -4150,15 +3898,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Lil Wayne
 
-## [Vans' Frankenstein Skate Shoe Is Alive  Wild as Ever](https://www.highsnobiety.com/p/vans-clash-the-wall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 22 Aug 2024 07:00:42 GMT*
-
-
-## Lil Wayne
-
 ## [The Leah Kateb Effect Goes Way Beyond 'Love Island USA'](https://www.highsnobiety.com/p/leah-kateb-love-island-fashion/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -4294,15 +4033,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Adele
 
-## [Vans' Frankenstein Skate Shoe Is Alive  Wild as Ever](https://www.highsnobiety.com/p/vans-clash-the-wall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 22 Aug 2024 07:00:42 GMT*
-
-
-## Adele
-
 ## [The Leah Kateb Effect Goes Way Beyond 'Love Island USA'](https://www.highsnobiety.com/p/leah-kateb-love-island-fashion/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -4438,15 +4168,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Lindsay Lohan
 
-## [Vans' Frankenstein Skate Shoe Is Alive  Wild as Ever](https://www.highsnobiety.com/p/vans-clash-the-wall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 22 Aug 2024 07:00:42 GMT*
-
-
-## Lindsay Lohan
-
 ## [The Leah Kateb Effect Goes Way Beyond 'Love Island USA'](https://www.highsnobiety.com/p/leah-kateb-love-island-fashion/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -4582,15 +4303,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Addison Rae
 
-## [Vans' Frankenstein Skate Shoe Is Alive  Wild as Ever](https://www.highsnobiety.com/p/vans-clash-the-wall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 22 Aug 2024 07:00:42 GMT*
-
-
-## Addison Rae
-
 ## [The Leah Kateb Effect Goes Way Beyond 'Love Island USA'](https://www.highsnobiety.com/p/leah-kateb-love-island-fashion/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -4726,15 +4438,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Latto
 
-## [Vans' Frankenstein Skate Shoe Is Alive  Wild as Ever](https://www.highsnobiety.com/p/vans-clash-the-wall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 22 Aug 2024 07:00:42 GMT*
-
-
-## Latto
-
 ## [The Leah Kateb Effect Goes Way Beyond 'Love Island USA'](https://www.highsnobiety.com/p/leah-kateb-love-island-fashion/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -4870,15 +4573,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Aaron Paul
 
-## [Vans' Frankenstein Skate Shoe Is Alive  Wild as Ever](https://www.highsnobiety.com/p/vans-clash-the-wall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 22 Aug 2024 07:00:42 GMT*
-
-
-## Aaron Paul
-
 ## [The Leah Kateb Effect Goes Way Beyond 'Love Island USA'](https://www.highsnobiety.com/p/leah-kateb-love-island-fashion/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -5014,15 +4708,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## LeBron James
 
-## [Vans' Frankenstein Skate Shoe Is Alive  Wild as Ever](https://www.highsnobiety.com/p/vans-clash-the-wall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 22 Aug 2024 07:00:42 GMT*
-
-
-## LeBron James
-
 ## [The Leah Kateb Effect Goes Way Beyond 'Love Island USA'](https://www.highsnobiety.com/p/leah-kateb-love-island-fashion/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -5158,15 +4843,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## 50 Cent
 
-## [Vans' Frankenstein Skate Shoe Is Alive  Wild as Ever](https://www.highsnobiety.com/p/vans-clash-the-wall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 22 Aug 2024 07:00:42 GMT*
-
-
-## 50 Cent
-
 ## [The Leah Kateb Effect Goes Way Beyond 'Love Island USA'](https://www.highsnobiety.com/p/leah-kateb-love-island-fashion/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -5302,15 +4978,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Kesha
 
-## [Vans' Frankenstein Skate Shoe Is Alive  Wild as Ever](https://www.highsnobiety.com/p/vans-clash-the-wall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 22 Aug 2024 07:00:42 GMT*
-
-
-## Kesha
-
 ## [The Leah Kateb Effect Goes Way Beyond 'Love Island USA'](https://www.highsnobiety.com/p/leah-kateb-love-island-fashion/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -5446,15 +5113,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## 21 Savage
 
-## [Vans' Frankenstein Skate Shoe Is Alive  Wild as Ever](https://www.highsnobiety.com/p/vans-clash-the-wall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 22 Aug 2024 07:00:42 GMT*
-
-
-## 21 Savage
-
 ## [The Leah Kateb Effect Goes Way Beyond 'Love Island USA'](https://www.highsnobiety.com/p/leah-kateb-love-island-fashion/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -5590,15 +5248,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Larry David
 
-## [Vans' Frankenstein Skate Shoe Is Alive  Wild as Ever](https://www.highsnobiety.com/p/vans-clash-the-wall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 22 Aug 2024 07:00:42 GMT*
-
-
-## Larry David
-
 ## [The Leah Kateb Effect Goes Way Beyond 'Love Island USA'](https://www.highsnobiety.com/p/leah-kateb-love-island-fashion/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -5734,15 +5383,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Seth Rogan
 
-## [Vans' Frankenstein Skate Shoe Is Alive  Wild as Ever](https://www.highsnobiety.com/p/vans-clash-the-wall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 22 Aug 2024 07:00:42 GMT*
-
-
-## Seth Rogan
-
 ## [The Leah Kateb Effect Goes Way Beyond 'Love Island USA'](https://www.highsnobiety.com/p/leah-kateb-love-island-fashion/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -5878,15 +5518,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Simone Biles
 
-## [Vans' Frankenstein Skate Shoe Is Alive  Wild as Ever](https://www.highsnobiety.com/p/vans-clash-the-wall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 22 Aug 2024 07:00:42 GMT*
-
-
-## Simone Biles
-
 ## [The Leah Kateb Effect Goes Way Beyond 'Love Island USA'](https://www.highsnobiety.com/p/leah-kateb-love-island-fashion/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -6022,15 +5653,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Pete Davidson
 
-## [Vans' Frankenstein Skate Shoe Is Alive  Wild as Ever](https://www.highsnobiety.com/p/vans-clash-the-wall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 22 Aug 2024 07:00:42 GMT*
-
-
-## Pete Davidson
-
 ## [The Leah Kateb Effect Goes Way Beyond 'Love Island USA'](https://www.highsnobiety.com/p/leah-kateb-love-island-fashion/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -6166,15 +5788,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Prince Harry
 
-## [Vans' Frankenstein Skate Shoe Is Alive  Wild as Ever](https://www.highsnobiety.com/p/vans-clash-the-wall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 22 Aug 2024 07:00:42 GMT*
-
-
-## Prince Harry
-
 ## [The Leah Kateb Effect Goes Way Beyond 'Love Island USA'](https://www.highsnobiety.com/p/leah-kateb-love-island-fashion/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -6310,15 +5923,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Princess of Wales
 
-## [Vans' Frankenstein Skate Shoe Is Alive  Wild as Ever](https://www.highsnobiety.com/p/vans-clash-the-wall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 22 Aug 2024 07:00:42 GMT*
-
-
-## Princess of Wales
-
 ## [The Leah Kateb Effect Goes Way Beyond 'Love Island USA'](https://www.highsnobiety.com/p/leah-kateb-love-island-fashion/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -6454,15 +6058,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Rachel McAdams
 
-## [Vans' Frankenstein Skate Shoe Is Alive  Wild as Ever](https://www.highsnobiety.com/p/vans-clash-the-wall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 22 Aug 2024 07:00:42 GMT*
-
-
-## Rachel McAdams
-
 ## [The Leah Kateb Effect Goes Way Beyond 'Love Island USA'](https://www.highsnobiety.com/p/leah-kateb-love-island-fashion/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -6598,15 +6193,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Reneé Rapp
 
-## [Vans' Frankenstein Skate Shoe Is Alive  Wild as Ever](https://www.highsnobiety.com/p/vans-clash-the-wall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 22 Aug 2024 07:00:42 GMT*
-
-
-## Reneé Rapp
-
 ## [The Leah Kateb Effect Goes Way Beyond 'Love Island USA'](https://www.highsnobiety.com/p/leah-kateb-love-island-fashion/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -6742,15 +6328,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Rick Ross
 
-## [Vans' Frankenstein Skate Shoe Is Alive  Wild as Ever](https://www.highsnobiety.com/p/vans-clash-the-wall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 22 Aug 2024 07:00:42 GMT*
-
-
-## Rick Ross
-
 ## [The Leah Kateb Effect Goes Way Beyond 'Love Island USA'](https://www.highsnobiety.com/p/leah-kateb-love-island-fashion/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -6886,15 +6463,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Sam Ashgari
 
-## [Vans' Frankenstein Skate Shoe Is Alive  Wild as Ever](https://www.highsnobiety.com/p/vans-clash-the-wall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 22 Aug 2024 07:00:42 GMT*
-
-
-## Sam Ashgari
-
 ## [The Leah Kateb Effect Goes Way Beyond 'Love Island USA'](https://www.highsnobiety.com/p/leah-kateb-love-island-fashion/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -7030,15 +6598,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Sandra Oh
 
-## [Vans' Frankenstein Skate Shoe Is Alive  Wild as Ever](https://www.highsnobiety.com/p/vans-clash-the-wall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 22 Aug 2024 07:00:42 GMT*
-
-
-## Sandra Oh
-
 ## [The Leah Kateb Effect Goes Way Beyond 'Love Island USA'](https://www.highsnobiety.com/p/leah-kateb-love-island-fashion/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -7174,15 +6733,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Donald Trump
 
-## [Vans' Frankenstein Skate Shoe Is Alive  Wild as Ever](https://www.highsnobiety.com/p/vans-clash-the-wall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 22 Aug 2024 07:00:42 GMT*
-
-
-## Donald Trump
-
 ## [The Leah Kateb Effect Goes Way Beyond 'Love Island USA'](https://www.highsnobiety.com/p/leah-kateb-love-island-fashion/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -7318,15 +6868,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Diddy
 
-## [Vans' Frankenstein Skate Shoe Is Alive  Wild as Ever](https://www.highsnobiety.com/p/vans-clash-the-wall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 22 Aug 2024 07:00:42 GMT*
-
-
-## Diddy
-
 ## [The Leah Kateb Effect Goes Way Beyond 'Love Island USA'](https://www.highsnobiety.com/p/leah-kateb-love-island-fashion/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -7462,15 +7003,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## City Girls
 
-## [Vans' Frankenstein Skate Shoe Is Alive  Wild as Ever](https://www.highsnobiety.com/p/vans-clash-the-wall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 22 Aug 2024 07:00:42 GMT*
-
-
-## City Girls
-
 ## [The Leah Kateb Effect Goes Way Beyond 'Love Island USA'](https://www.highsnobiety.com/p/leah-kateb-love-island-fashion/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -7606,15 +7138,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Chloe Bailey
 
-## [Vans' Frankenstein Skate Shoe Is Alive  Wild as Ever](https://www.highsnobiety.com/p/vans-clash-the-wall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 22 Aug 2024 07:00:42 GMT*
-
-
-## Chloe Bailey
-
 ## [The Leah Kateb Effect Goes Way Beyond 'Love Island USA'](https://www.highsnobiety.com/p/leah-kateb-love-island-fashion/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -7750,15 +7273,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Charli D Amelio
 
-## [Vans' Frankenstein Skate Shoe Is Alive  Wild as Ever](https://www.highsnobiety.com/p/vans-clash-the-wall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 22 Aug 2024 07:00:42 GMT*
-
-
-## Charli D Amelio
-
 ## [The Leah Kateb Effect Goes Way Beyond 'Love Island USA'](https://www.highsnobiety.com/p/leah-kateb-love-island-fashion/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -7894,15 +7408,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Cardi B
 
-## [Vans' Frankenstein Skate Shoe Is Alive  Wild as Ever](https://www.highsnobiety.com/p/vans-clash-the-wall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 22 Aug 2024 07:00:42 GMT*
-
-
-## Cardi B
-
 ## [The Leah Kateb Effect Goes Way Beyond 'Love Island USA'](https://www.highsnobiety.com/p/leah-kateb-love-island-fashion/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -8038,15 +7543,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Bryan Cranston
 
-## [Vans' Frankenstein Skate Shoe Is Alive  Wild as Ever](https://www.highsnobiety.com/p/vans-clash-the-wall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 22 Aug 2024 07:00:42 GMT*
-
-
-## Bryan Cranston
-
 ## [The Leah Kateb Effect Goes Way Beyond 'Love Island USA'](https://www.highsnobiety.com/p/leah-kateb-love-island-fashion/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -8182,15 +7678,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Brielle Biermann
 
-## [Vans' Frankenstein Skate Shoe Is Alive  Wild as Ever](https://www.highsnobiety.com/p/vans-clash-the-wall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 22 Aug 2024 07:00:42 GMT*
-
-
-## Brielle Biermann
-
 ## [The Leah Kateb Effect Goes Way Beyond 'Love Island USA'](https://www.highsnobiety.com/p/leah-kateb-love-island-fashion/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -8326,15 +7813,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Dua Lipa
 
-## [Vans' Frankenstein Skate Shoe Is Alive  Wild as Ever](https://www.highsnobiety.com/p/vans-clash-the-wall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 22 Aug 2024 07:00:42 GMT*
-
-
-## Dua Lipa
-
 ## [The Leah Kateb Effect Goes Way Beyond 'Love Island USA'](https://www.highsnobiety.com/p/leah-kateb-love-island-fashion/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -8470,15 +7948,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Drake
 
-## [Vans' Frankenstein Skate Shoe Is Alive  Wild as Ever](https://www.highsnobiety.com/p/vans-clash-the-wall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 22 Aug 2024 07:00:42 GMT*
-
-
-## Drake
-
 ## [The Leah Kateb Effect Goes Way Beyond 'Love Island USA'](https://www.highsnobiety.com/p/leah-kateb-love-island-fashion/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -8614,15 +8083,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Jenner
 
-## [Vans' Frankenstein Skate Shoe Is Alive  Wild as Ever](https://www.highsnobiety.com/p/vans-clash-the-wall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 22 Aug 2024 07:00:42 GMT*
-
-
-## Jenner
-
 ## [The Leah Kateb Effect Goes Way Beyond 'Love Island USA'](https://www.highsnobiety.com/p/leah-kateb-love-island-fashion/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -8758,15 +8218,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## J. Cole
 
-## [Vans' Frankenstein Skate Shoe Is Alive  Wild as Ever](https://www.highsnobiety.com/p/vans-clash-the-wall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 22 Aug 2024 07:00:42 GMT*
-
-
-## J. Cole
-
 ## [The Leah Kateb Effect Goes Way Beyond 'Love Island USA'](https://www.highsnobiety.com/p/leah-kateb-love-island-fashion/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -8902,15 +8353,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Jerrod Carmichael
 
-## [Vans' Frankenstein Skate Shoe Is Alive  Wild as Ever](https://www.highsnobiety.com/p/vans-clash-the-wall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 22 Aug 2024 07:00:42 GMT*
-
-
-## Jerrod Carmichael
-
 ## [The Leah Kateb Effect Goes Way Beyond 'Love Island USA'](https://www.highsnobiety.com/p/leah-kateb-love-island-fashion/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -9046,15 +8488,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Jennifer Lawrence
 
-## [Vans' Frankenstein Skate Shoe Is Alive  Wild as Ever](https://www.highsnobiety.com/p/vans-clash-the-wall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 22 Aug 2024 07:00:42 GMT*
-
-
-## Jennifer Lawrence
-
 ## [The Leah Kateb Effect Goes Way Beyond 'Love Island USA'](https://www.highsnobiety.com/p/leah-kateb-love-island-fashion/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -9190,15 +8623,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Joe Biden
 
-## [Vans' Frankenstein Skate Shoe Is Alive  Wild as Ever](https://www.highsnobiety.com/p/vans-clash-the-wall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 22 Aug 2024 07:00:42 GMT*
-
-
-## Joe Biden
-
 ## [The Leah Kateb Effect Goes Way Beyond 'Love Island USA'](https://www.highsnobiety.com/p/leah-kateb-love-island-fashion/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -9334,15 +8758,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## J.K. Simmons
 
-## [Vans' Frankenstein Skate Shoe Is Alive  Wild as Ever](https://www.highsnobiety.com/p/vans-clash-the-wall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 22 Aug 2024 07:00:42 GMT*
-
-
-## J.K. Simmons
-
 ## [The Leah Kateb Effect Goes Way Beyond 'Love Island USA'](https://www.highsnobiety.com/p/leah-kateb-love-island-fashion/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -9478,15 +8893,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Kamala Harris
 
-## [Vans' Frankenstein Skate Shoe Is Alive  Wild as Ever](https://www.highsnobiety.com/p/vans-clash-the-wall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 22 Aug 2024 07:00:42 GMT*
-
-
-## Kamala Harris
-
 ## [The Leah Kateb Effect Goes Way Beyond 'Love Island USA'](https://www.highsnobiety.com/p/leah-kateb-love-island-fashion/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -9622,15 +9028,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## John C Reilly
 
-## [Vans' Frankenstein Skate Shoe Is Alive  Wild as Ever](https://www.highsnobiety.com/p/vans-clash-the-wall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 22 Aug 2024 07:00:42 GMT*
-
-
-## John C Reilly
-
 ## [The Leah Kateb Effect Goes Way Beyond 'Love Island USA'](https://www.highsnobiety.com/p/leah-kateb-love-island-fashion/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -9766,15 +9163,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Kardashian
 
-## [Vans' Frankenstein Skate Shoe Is Alive  Wild as Ever](https://www.highsnobiety.com/p/vans-clash-the-wall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 22 Aug 2024 07:00:42 GMT*
-
-
-## Kardashian
-
 ## [The Leah Kateb Effect Goes Way Beyond 'Love Island USA'](https://www.highsnobiety.com/p/leah-kateb-love-island-fashion/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -9910,15 +9298,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Kanye
 
-## [Vans' Frankenstein Skate Shoe Is Alive  Wild as Ever](https://www.highsnobiety.com/p/vans-clash-the-wall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 22 Aug 2024 07:00:42 GMT*
-
-
-## Kanye
-
 ## [The Leah Kateb Effect Goes Way Beyond 'Love Island USA'](https://www.highsnobiety.com/p/leah-kateb-love-island-fashion/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -10054,15 +9433,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Zendaya
 
-## [Vans' Frankenstein Skate Shoe Is Alive  Wild as Ever](https://www.highsnobiety.com/p/vans-clash-the-wall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 22 Aug 2024 07:00:42 GMT*
-
-
-## Zendaya
-
 ## [The Leah Kateb Effect Goes Way Beyond 'Love Island USA'](https://www.highsnobiety.com/p/leah-kateb-love-island-fashion/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -10198,15 +9568,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Will Ferrell
 
-## [Vans' Frankenstein Skate Shoe Is Alive  Wild as Ever](https://www.highsnobiety.com/p/vans-clash-the-wall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 22 Aug 2024 07:00:42 GMT*
-
-
-## Will Ferrell
-
 ## [The Leah Kateb Effect Goes Way Beyond 'Love Island USA'](https://www.highsnobiety.com/p/leah-kateb-love-island-fashion/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -10342,15 +9703,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Zazie Beetz
 
-## [Vans' Frankenstein Skate Shoe Is Alive  Wild as Ever](https://www.highsnobiety.com/p/vans-clash-the-wall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 22 Aug 2024 07:00:42 GMT*
-
-
-## Zazie Beetz
-
 ## [The Leah Kateb Effect Goes Way Beyond 'Love Island USA'](https://www.highsnobiety.com/p/leah-kateb-love-island-fashion/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -10486,15 +9838,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Bob Odenkirk
 
-## [Vans' Frankenstein Skate Shoe Is Alive  Wild as Ever](https://www.highsnobiety.com/p/vans-clash-the-wall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 22 Aug 2024 07:00:42 GMT*
-
-
-## Bob Odenkirk
-
 ## [The Leah Kateb Effect Goes Way Beyond 'Love Island USA'](https://www.highsnobiety.com/p/leah-kateb-love-island-fashion/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -10630,15 +9973,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Brad Pitt
 
-## [Vans' Frankenstein Skate Shoe Is Alive  Wild as Ever](https://www.highsnobiety.com/p/vans-clash-the-wall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 22 Aug 2024 07:00:42 GMT*
-
-
-## Brad Pitt
-
 ## [The Leah Kateb Effect Goes Way Beyond 'Love Island USA'](https://www.highsnobiety.com/p/leah-kateb-love-island-fashion/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -10774,15 +10108,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Beyoncé
 
-## [Vans' Frankenstein Skate Shoe Is Alive  Wild as Ever](https://www.highsnobiety.com/p/vans-clash-the-wall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 22 Aug 2024 07:00:42 GMT*
-
-
-## Beyoncé
-
 ## [The Leah Kateb Effect Goes Way Beyond 'Love Island USA'](https://www.highsnobiety.com/p/leah-kateb-love-island-fashion/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -10918,15 +10243,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Bia
 
-## [Vans' Frankenstein Skate Shoe Is Alive  Wild as Ever](https://www.highsnobiety.com/p/vans-clash-the-wall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 22 Aug 2024 07:00:42 GMT*
-
-
-## Bia
-
 ## [The Leah Kateb Effect Goes Way Beyond 'Love Island USA'](https://www.highsnobiety.com/p/leah-kateb-love-island-fashion/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -11062,15 +10378,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Avantika
 
-## [Vans' Frankenstein Skate Shoe Is Alive  Wild as Ever](https://www.highsnobiety.com/p/vans-clash-the-wall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 22 Aug 2024 07:00:42 GMT*
-
-
-## Avantika
-
 ## [The Leah Kateb Effect Goes Way Beyond 'Love Island USA'](https://www.highsnobiety.com/p/leah-kateb-love-island-fashion/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -11206,15 +10513,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Bernie Sanders
 
-## [Vans' Frankenstein Skate Shoe Is Alive  Wild as Ever](https://www.highsnobiety.com/p/vans-clash-the-wall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 22 Aug 2024 07:00:42 GMT*
-
-
-## Bernie Sanders
-
 ## [The Leah Kateb Effect Goes Way Beyond 'Love Island USA'](https://www.highsnobiety.com/p/leah-kateb-love-island-fashion/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -11350,15 +10648,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Big Sean
 
-## [Vans' Frankenstein Skate Shoe Is Alive  Wild as Ever](https://www.highsnobiety.com/p/vans-clash-the-wall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 22 Aug 2024 07:00:42 GMT*
-
-
-## Big Sean
-
 ## [The Leah Kateb Effect Goes Way Beyond 'Love Island USA'](https://www.highsnobiety.com/p/leah-kateb-love-island-fashion/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -11494,15 +10783,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## BlockBoy JB
 
-## [Vans' Frankenstein Skate Shoe Is Alive  Wild as Ever](https://www.highsnobiety.com/p/vans-clash-the-wall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 22 Aug 2024 07:00:42 GMT*
-
-
-## BlockBoy JB
-
 ## [The Leah Kateb Effect Goes Way Beyond 'Love Island USA'](https://www.highsnobiety.com/p/leah-kateb-love-island-fashion/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -11638,15 +10918,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Biden
 
-## [Vans' Frankenstein Skate Shoe Is Alive  Wild as Ever](https://www.highsnobiety.com/p/vans-clash-the-wall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 22 Aug 2024 07:00:42 GMT*
-
-
-## Biden
-
 ## [The Leah Kateb Effect Goes Way Beyond 'Love Island USA'](https://www.highsnobiety.com/p/leah-kateb-love-island-fashion/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -11782,15 +11053,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Bieber
 
-## [Vans' Frankenstein Skate Shoe Is Alive  Wild as Ever](https://www.highsnobiety.com/p/vans-clash-the-wall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 22 Aug 2024 07:00:42 GMT*
-
-
-## Bieber
-
 ## [The Leah Kateb Effect Goes Way Beyond 'Love Island USA'](https://www.highsnobiety.com/p/leah-kateb-love-island-fashion/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -11926,15 +11188,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Paulina Porizkov
 
-## [Vans' Frankenstein Skate Shoe Is Alive  Wild as Ever](https://www.highsnobiety.com/p/vans-clash-the-wall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 22 Aug 2024 07:00:42 GMT*
-
-
-## Paulina Porizkov
-
 ## [The Leah Kateb Effect Goes Way Beyond 'Love Island USA'](https://www.highsnobiety.com/p/leah-kateb-love-island-fashion/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -12070,15 +11323,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Paris Hilton
 
-## [Vans' Frankenstein Skate Shoe Is Alive  Wild as Ever](https://www.highsnobiety.com/p/vans-clash-the-wall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 22 Aug 2024 07:00:42 GMT*
-
-
-## Paris Hilton
-
 ## [The Leah Kateb Effect Goes Way Beyond 'Love Island USA'](https://www.highsnobiety.com/p/leah-kateb-love-island-fashion/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -12214,15 +11458,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Metro Boomin
 
-## [Vans' Frankenstein Skate Shoe Is Alive  Wild as Ever](https://www.highsnobiety.com/p/vans-clash-the-wall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 22 Aug 2024 07:00:42 GMT*
-
-
-## Metro Boomin
-
 ## [The Leah Kateb Effect Goes Way Beyond 'Love Island USA'](https://www.highsnobiety.com/p/leah-kateb-love-island-fashion/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -12358,15 +11593,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Meghan Markle
 
-## [Vans' Frankenstein Skate Shoe Is Alive  Wild as Ever](https://www.highsnobiety.com/p/vans-clash-the-wall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 22 Aug 2024 07:00:42 GMT*
-
-
-## Meghan Markle
-
 ## [The Leah Kateb Effect Goes Way Beyond 'Love Island USA'](https://www.highsnobiety.com/p/leah-kateb-love-island-fashion/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -12502,15 +11728,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Megan Thee Stallion
 
-## [Vans' Frankenstein Skate Shoe Is Alive  Wild as Ever](https://www.highsnobiety.com/p/vans-clash-the-wall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 22 Aug 2024 07:00:42 GMT*
-
-
-## Megan Thee Stallion
-
 ## [The Leah Kateb Effect Goes Way Beyond 'Love Island USA'](https://www.highsnobiety.com/p/leah-kateb-love-island-fashion/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -12646,15 +11863,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Maya Rudolph
 
-## [Vans' Frankenstein Skate Shoe Is Alive  Wild as Ever](https://www.highsnobiety.com/p/vans-clash-the-wall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 22 Aug 2024 07:00:42 GMT*
-
-
-## Maya Rudolph
-
 ## [The Leah Kateb Effect Goes Way Beyond 'Love Island USA'](https://www.highsnobiety.com/p/leah-kateb-love-island-fashion/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -12790,15 +11998,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Olivia Rodrigo
 
-## [Vans' Frankenstein Skate Shoe Is Alive  Wild as Ever](https://www.highsnobiety.com/p/vans-clash-the-wall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 22 Aug 2024 07:00:42 GMT*
-
-
-## Olivia Rodrigo
-
 ## [The Leah Kateb Effect Goes Way Beyond 'Love Island USA'](https://www.highsnobiety.com/p/leah-kateb-love-island-fashion/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -12934,15 +12133,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Obama
 
-## [Vans' Frankenstein Skate Shoe Is Alive  Wild as Ever](https://www.highsnobiety.com/p/vans-clash-the-wall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 22 Aug 2024 07:00:42 GMT*
-
-
-## Obama
-
 ## [The Leah Kateb Effect Goes Way Beyond 'Love Island USA'](https://www.highsnobiety.com/p/leah-kateb-love-island-fashion/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -13078,15 +12268,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Nicki Minaj
 
-## [Vans' Frankenstein Skate Shoe Is Alive  Wild as Ever](https://www.highsnobiety.com/p/vans-clash-the-wall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 22 Aug 2024 07:00:42 GMT*
-
-
-## Nicki Minaj
-
 ## [The Leah Kateb Effect Goes Way Beyond 'Love Island USA'](https://www.highsnobiety.com/p/leah-kateb-love-island-fashion/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -13218,15 +12399,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Thu, 22 Aug 2024 08:27:01 GMT*
-
-
-## MrBeast
-
-## [Vans' Frankenstein Skate Shoe Is Alive  Wild as Ever](https://www.highsnobiety.com/p/vans-clash-the-wall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 22 Aug 2024 07:00:42 GMT*
 
 
 ## MrBeast
