@@ -1,6 +1,15 @@
 # Latest Stories
 ## Tim Cook
 
+## [LEGO x Nike Is Finally Real](https://www.highsnobiety.com/p/lego-nike-collab/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 25 Aug 2024 13:50:00 GMT*
+
+
+## Tim Cook
+
 ## [Nike's SB-Level Jordan 4 Sneaker Just Got Cleaner (Sparkly, Too)](https://www.highsnobiety.com/p/jordan-4-rm-sneakers-white-metallic-silver-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -10,15 +19,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Tim Cook
 
-## [Post-Retirement, Dries Van Noten Is Still Working on Fragrance  Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/dries-van-noten-fragrance-collection-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sun, 25 Aug 2024 14:04:00 GMT*
-
-
-## Tim Cook
-
 ## [The Year Business Wear Beat Streetwear](https://www.highsnobiety.com/p/corpcore-fashion-trend/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -80,7 +80,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 26 Aug 2024 07:45:29 GMT*
 
 
-## Tim Cook
+## Taylor Swift
 
 ## [LEGO x Nike Is Finally Real](https://www.highsnobiety.com/p/lego-nike-collab/)
 
@@ -96,15 +96,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sun, 25 Aug 2024 14:03:00 GMT*
-
-
-## Taylor Swift
-
-## [Post-Retirement, Dries Van Noten Is Still Working on Fragrance  Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/dries-van-noten-fragrance-collection-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sun, 25 Aug 2024 14:04:00 GMT*
 
 
 ## Taylor Swift
@@ -170,7 +161,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 26 Aug 2024 07:45:29 GMT*
 
 
-## Taylor Swift
+## Tom Brady
 
 ## [LEGO x Nike Is Finally Real](https://www.highsnobiety.com/p/lego-nike-collab/)
 
@@ -186,15 +177,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sun, 25 Aug 2024 14:03:00 GMT*
-
-
-## Tom Brady
-
-## [Post-Retirement, Dries Van Noten Is Still Working on Fragrance  Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/dries-van-noten-fragrance-collection-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sun, 25 Aug 2024 14:04:00 GMT*
 
 
 ## Tom Brady
@@ -260,7 +242,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 26 Aug 2024 07:45:29 GMT*
 
 
-## Tom Brady
+## Tina Fey
 
 ## [LEGO x Nike Is Finally Real](https://www.highsnobiety.com/p/lego-nike-collab/)
 
@@ -276,15 +258,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sun, 25 Aug 2024 14:03:00 GMT*
-
-
-## Tina Fey
-
-## [Post-Retirement, Dries Van Noten Is Still Working on Fragrance  Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/dries-van-noten-fragrance-collection-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sun, 25 Aug 2024 14:04:00 GMT*
 
 
 ## Tina Fey
@@ -350,7 +323,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 26 Aug 2024 07:45:29 GMT*
 
 
-## Tina Fey
+## Steven Yuen
 
 ## [LEGO x Nike Is Finally Real](https://www.highsnobiety.com/p/lego-nike-collab/)
 
@@ -366,15 +339,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sun, 25 Aug 2024 14:03:00 GMT*
-
-
-## Steven Yuen
-
-## [Post-Retirement, Dries Van Noten Is Still Working on Fragrance  Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/dries-van-noten-fragrance-collection-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sun, 25 Aug 2024 14:04:00 GMT*
 
 
 ## Steven Yuen
@@ -440,7 +404,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 26 Aug 2024 07:45:29 GMT*
 
 
-## Steven Yuen
+## Sommer Ray
 
 ## [LEGO x Nike Is Finally Real](https://www.highsnobiety.com/p/lego-nike-collab/)
 
@@ -456,15 +420,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sun, 25 Aug 2024 14:03:00 GMT*
-
-
-## Sommer Ray
-
-## [Post-Retirement, Dries Van Noten Is Still Working on Fragrance  Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/dries-van-noten-fragrance-collection-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sun, 25 Aug 2024 14:04:00 GMT*
 
 
 ## Sommer Ray
@@ -530,7 +485,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 26 Aug 2024 07:45:29 GMT*
 
 
-## Sommer Ray
+## Sza
 
 ## [LEGO x Nike Is Finally Real](https://www.highsnobiety.com/p/lego-nike-collab/)
 
@@ -546,15 +501,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sun, 25 Aug 2024 14:03:00 GMT*
-
-
-## Sza
-
-## [Post-Retirement, Dries Van Noten Is Still Working on Fragrance  Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/dries-van-noten-fragrance-collection-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sun, 25 Aug 2024 14:04:00 GMT*
 
 
 ## Sza
@@ -620,7 +566,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 26 Aug 2024 07:45:29 GMT*
 
 
-## Sza
+## Sydney Sweeney
 
 ## [LEGO x Nike Is Finally Real](https://www.highsnobiety.com/p/lego-nike-collab/)
 
@@ -636,15 +582,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sun, 25 Aug 2024 14:03:00 GMT*
-
-
-## Sydney Sweeney
-
-## [Post-Retirement, Dries Van Noten Is Still Working on Fragrance  Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/dries-van-noten-fragrance-collection-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sun, 25 Aug 2024 14:04:00 GMT*
 
 
 ## Sydney Sweeney
@@ -710,7 +647,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 26 Aug 2024 07:45:29 GMT*
 
 
-## Sydney Sweeney
+## Walton Goggins
 
 ## [LEGO x Nike Is Finally Real](https://www.highsnobiety.com/p/lego-nike-collab/)
 
@@ -726,15 +663,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sun, 25 Aug 2024 14:03:00 GMT*
-
-
-## Walton Goggins
-
-## [Post-Retirement, Dries Van Noten Is Still Working on Fragrance  Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/dries-van-noten-fragrance-collection-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sun, 25 Aug 2024 14:04:00 GMT*
 
 
 ## Walton Goggins
@@ -800,7 +728,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 26 Aug 2024 07:45:29 GMT*
 
 
-## Walton Goggins
+## Tom Holland
 
 ## [LEGO x Nike Is Finally Real](https://www.highsnobiety.com/p/lego-nike-collab/)
 
@@ -816,15 +744,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sun, 25 Aug 2024 14:03:00 GMT*
-
-
-## Tom Holland
-
-## [Post-Retirement, Dries Van Noten Is Still Working on Fragrance  Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/dries-van-noten-fragrance-collection-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sun, 25 Aug 2024 14:04:00 GMT*
 
 
 ## Tom Holland
@@ -890,7 +809,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 26 Aug 2024 07:45:29 GMT*
 
 
-## Tom Holland
+## Gucci Mane
 
 ## [LEGO x Nike Is Finally Real](https://www.highsnobiety.com/p/lego-nike-collab/)
 
@@ -906,15 +825,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sun, 25 Aug 2024 14:03:00 GMT*
-
-
-## Gucci Mane
-
-## [Post-Retirement, Dries Van Noten Is Still Working on Fragrance  Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/dries-van-noten-fragrance-collection-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sun, 25 Aug 2024 14:04:00 GMT*
 
 
 ## Gucci Mane
@@ -980,7 +890,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 26 Aug 2024 07:45:29 GMT*
 
 
-## Gucci Mane
+## Harry Styles
 
 ## [LEGO x Nike Is Finally Real](https://www.highsnobiety.com/p/lego-nike-collab/)
 
@@ -996,15 +906,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sun, 25 Aug 2024 14:03:00 GMT*
-
-
-## Harry Styles
-
-## [Post-Retirement, Dries Van Noten Is Still Working on Fragrance  Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/dries-van-noten-fragrance-collection-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sun, 25 Aug 2024 14:04:00 GMT*
 
 
 ## Harry Styles
@@ -1070,7 +971,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 26 Aug 2024 07:45:29 GMT*
 
 
-## Harry Styles
+## Jake Paul
 
 ## [LEGO x Nike Is Finally Real](https://www.highsnobiety.com/p/lego-nike-collab/)
 
@@ -1086,15 +987,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sun, 25 Aug 2024 14:03:00 GMT*
-
-
-## Jake Paul
-
-## [Post-Retirement, Dries Van Noten Is Still Working on Fragrance  Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/dries-van-noten-fragrance-collection-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sun, 25 Aug 2024 14:04:00 GMT*
 
 
 ## Jake Paul
@@ -1160,7 +1052,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 26 Aug 2024 07:45:29 GMT*
 
 
-## Jake Paul
+## Jameela Jamil
 
 ## [LEGO x Nike Is Finally Real](https://www.highsnobiety.com/p/lego-nike-collab/)
 
@@ -1176,15 +1068,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sun, 25 Aug 2024 14:03:00 GMT*
-
-
-## Jameela Jamil
-
-## [Post-Retirement, Dries Van Noten Is Still Working on Fragrance  Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/dries-van-noten-fragrance-collection-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sun, 25 Aug 2024 14:04:00 GMT*
 
 
 ## Jameela Jamil
@@ -1250,7 +1133,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 26 Aug 2024 07:45:29 GMT*
 
 
-## Jameela Jamil
+## Elon Musk
 
 ## [LEGO x Nike Is Finally Real](https://www.highsnobiety.com/p/lego-nike-collab/)
 
@@ -1266,15 +1149,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sun, 25 Aug 2024 14:03:00 GMT*
-
-
-## Elon Musk
-
-## [Post-Retirement, Dries Van Noten Is Still Working on Fragrance  Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/dries-van-noten-fragrance-collection-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sun, 25 Aug 2024 14:04:00 GMT*
 
 
 ## Elon Musk
@@ -1340,7 +1214,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 26 Aug 2024 07:45:29 GMT*
 
 
-## Elon Musk
+## Gabrielle Union
 
 ## [LEGO x Nike Is Finally Real](https://www.highsnobiety.com/p/lego-nike-collab/)
 
@@ -1356,15 +1230,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sun, 25 Aug 2024 14:03:00 GMT*
-
-
-## Gabrielle Union
-
-## [Post-Retirement, Dries Van Noten Is Still Working on Fragrance  Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/dries-van-noten-fragrance-collection-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sun, 25 Aug 2024 14:04:00 GMT*
 
 
 ## Gabrielle Union
@@ -1430,7 +1295,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 26 Aug 2024 07:45:29 GMT*
 
 
-## Gabrielle Union
+## Giancarlo Esposito
 
 ## [LEGO x Nike Is Finally Real](https://www.highsnobiety.com/p/lego-nike-collab/)
 
@@ -1446,15 +1311,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sun, 25 Aug 2024 14:03:00 GMT*
-
-
-## Giancarlo Esposito
-
-## [Post-Retirement, Dries Van Noten Is Still Working on Fragrance  Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/dries-van-noten-fragrance-collection-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sun, 25 Aug 2024 14:04:00 GMT*
 
 
 ## Giancarlo Esposito
@@ -1520,7 +1376,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 26 Aug 2024 07:45:29 GMT*
 
 
-## Giancarlo Esposito
+## Gillian Jacobs
 
 ## [LEGO x Nike Is Finally Real](https://www.highsnobiety.com/p/lego-nike-collab/)
 
@@ -1536,15 +1392,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sun, 25 Aug 2024 14:03:00 GMT*
-
-
-## Gillian Jacobs
-
-## [Post-Retirement, Dries Van Noten Is Still Working on Fragrance  Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/dries-van-noten-fragrance-collection-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sun, 25 Aug 2024 14:04:00 GMT*
 
 
 ## Gillian Jacobs
@@ -1610,7 +1457,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 26 Aug 2024 07:45:29 GMT*
 
 
-## Gillian Jacobs
+## Jason Mantzoukas
 
 ## [LEGO x Nike Is Finally Real](https://www.highsnobiety.com/p/lego-nike-collab/)
 
@@ -1626,15 +1473,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sun, 25 Aug 2024 14:03:00 GMT*
-
-
-## Jason Mantzoukas
-
-## [Post-Retirement, Dries Van Noten Is Still Working on Fragrance  Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/dries-van-noten-fragrance-collection-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sun, 25 Aug 2024 14:04:00 GMT*
 
 
 ## Jason Mantzoukas
@@ -1700,7 +1538,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 26 Aug 2024 07:45:29 GMT*
 
 
-## Jason Mantzoukas
+## JB Smoove
 
 ## [LEGO x Nike Is Finally Real](https://www.highsnobiety.com/p/lego-nike-collab/)
 
@@ -1716,15 +1554,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sun, 25 Aug 2024 14:03:00 GMT*
-
-
-## JB Smoove
-
-## [Post-Retirement, Dries Van Noten Is Still Working on Fragrance  Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/dries-van-noten-fragrance-collection-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sun, 25 Aug 2024 14:04:00 GMT*
 
 
 ## JB Smoove
@@ -1790,7 +1619,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 26 Aug 2024 07:45:29 GMT*
 
 
-## JB Smoove
+## Madison Pettis
 
 ## [LEGO x Nike Is Finally Real](https://www.highsnobiety.com/p/lego-nike-collab/)
 
@@ -1806,15 +1635,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sun, 25 Aug 2024 14:03:00 GMT*
-
-
-## Madison Pettis
-
-## [Post-Retirement, Dries Van Noten Is Still Working on Fragrance  Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/dries-van-noten-fragrance-collection-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sun, 25 Aug 2024 14:04:00 GMT*
 
 
 ## Madison Pettis
@@ -1880,7 +1700,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 26 Aug 2024 07:45:29 GMT*
 
 
-## Madison Pettis
+## Austin Butler
 
 ## [LEGO x Nike Is Finally Real](https://www.highsnobiety.com/p/lego-nike-collab/)
 
@@ -1896,15 +1716,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sun, 25 Aug 2024 14:03:00 GMT*
-
-
-## Austin Butler
-
-## [Post-Retirement, Dries Van Noten Is Still Working on Fragrance  Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/dries-van-noten-fragrance-collection-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sun, 25 Aug 2024 14:04:00 GMT*
 
 
 ## Austin Butler
@@ -1970,7 +1781,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 26 Aug 2024 07:45:29 GMT*
 
 
-## Austin Butler
+## Mark Zuckerberg
 
 ## [LEGO x Nike Is Finally Real](https://www.highsnobiety.com/p/lego-nike-collab/)
 
@@ -1986,15 +1797,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sun, 25 Aug 2024 14:03:00 GMT*
-
-
-## Mark Zuckerberg
-
-## [Post-Retirement, Dries Van Noten Is Still Working on Fragrance  Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/dries-van-noten-fragrance-collection-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sun, 25 Aug 2024 14:04:00 GMT*
 
 
 ## Mark Zuckerberg
@@ -2060,7 +1862,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 26 Aug 2024 07:45:29 GMT*
 
 
-## Mark Zuckerberg
+## Ariana Grande
 
 ## [LEGO x Nike Is Finally Real](https://www.highsnobiety.com/p/lego-nike-collab/)
 
@@ -2076,15 +1878,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sun, 25 Aug 2024 14:03:00 GMT*
-
-
-## Ariana Grande
-
-## [Post-Retirement, Dries Van Noten Is Still Working on Fragrance  Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/dries-van-noten-fragrance-collection-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sun, 25 Aug 2024 14:04:00 GMT*
 
 
 ## Ariana Grande
@@ -2150,7 +1943,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 26 Aug 2024 07:45:29 GMT*
 
 
-## Ariana Grande
+## Livvy Dunne
 
 ## [LEGO x Nike Is Finally Real](https://www.highsnobiety.com/p/lego-nike-collab/)
 
@@ -2166,15 +1959,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sun, 25 Aug 2024 14:03:00 GMT*
-
-
-## Livvy Dunne
-
-## [Post-Retirement, Dries Van Noten Is Still Working on Fragrance  Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/dries-van-noten-fragrance-collection-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sun, 25 Aug 2024 14:04:00 GMT*
 
 
 ## Livvy Dunne
@@ -2240,7 +2024,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 26 Aug 2024 07:45:29 GMT*
 
 
-## Livvy Dunne
+## Ali Wong
 
 ## [LEGO x Nike Is Finally Real](https://www.highsnobiety.com/p/lego-nike-collab/)
 
@@ -2256,15 +2040,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sun, 25 Aug 2024 14:03:00 GMT*
-
-
-## Ali Wong
-
-## [Post-Retirement, Dries Van Noten Is Still Working on Fragrance  Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/dries-van-noten-fragrance-collection-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sun, 25 Aug 2024 14:04:00 GMT*
 
 
 ## Ali Wong
@@ -2330,7 +2105,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 26 Aug 2024 07:45:29 GMT*
 
 
-## Ali Wong
+## Lizzo
 
 ## [LEGO x Nike Is Finally Real](https://www.highsnobiety.com/p/lego-nike-collab/)
 
@@ -2346,15 +2121,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sun, 25 Aug 2024 14:03:00 GMT*
-
-
-## Lizzo
-
-## [Post-Retirement, Dries Van Noten Is Still Working on Fragrance  Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/dries-van-noten-fragrance-collection-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sun, 25 Aug 2024 14:04:00 GMT*
 
 
 ## Lizzo
@@ -2420,7 +2186,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 26 Aug 2024 07:45:29 GMT*
 
 
-## Lizzo
+## Alison Brie
 
 ## [LEGO x Nike Is Finally Real](https://www.highsnobiety.com/p/lego-nike-collab/)
 
@@ -2436,15 +2202,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sun, 25 Aug 2024 14:03:00 GMT*
-
-
-## Alison Brie
-
-## [Post-Retirement, Dries Van Noten Is Still Working on Fragrance  Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/dries-van-noten-fragrance-collection-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sun, 25 Aug 2024 14:04:00 GMT*
 
 
 ## Alison Brie
@@ -2510,7 +2267,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 26 Aug 2024 07:45:29 GMT*
 
 
-## Alison Brie
+## Lil Wayne
 
 ## [LEGO x Nike Is Finally Real](https://www.highsnobiety.com/p/lego-nike-collab/)
 
@@ -2526,15 +2283,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sun, 25 Aug 2024 14:03:00 GMT*
-
-
-## Lil Wayne
-
-## [Post-Retirement, Dries Van Noten Is Still Working on Fragrance  Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/dries-van-noten-fragrance-collection-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sun, 25 Aug 2024 14:04:00 GMT*
 
 
 ## Lil Wayne
@@ -2600,7 +2348,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 26 Aug 2024 07:45:29 GMT*
 
 
-## Lil Wayne
+## Adele
 
 ## [LEGO x Nike Is Finally Real](https://www.highsnobiety.com/p/lego-nike-collab/)
 
@@ -2616,15 +2364,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sun, 25 Aug 2024 14:03:00 GMT*
-
-
-## Adele
-
-## [Post-Retirement, Dries Van Noten Is Still Working on Fragrance  Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/dries-van-noten-fragrance-collection-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sun, 25 Aug 2024 14:04:00 GMT*
 
 
 ## Adele
@@ -2690,7 +2429,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 26 Aug 2024 07:45:29 GMT*
 
 
-## Adele
+## Lindsay Lohan
 
 ## [LEGO x Nike Is Finally Real](https://www.highsnobiety.com/p/lego-nike-collab/)
 
@@ -2706,15 +2445,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sun, 25 Aug 2024 14:03:00 GMT*
-
-
-## Lindsay Lohan
-
-## [Post-Retirement, Dries Van Noten Is Still Working on Fragrance  Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/dries-van-noten-fragrance-collection-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sun, 25 Aug 2024 14:04:00 GMT*
 
 
 ## Lindsay Lohan
@@ -2780,7 +2510,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 26 Aug 2024 07:45:29 GMT*
 
 
-## Lindsay Lohan
+## Addison Rae
 
 ## [LEGO x Nike Is Finally Real](https://www.highsnobiety.com/p/lego-nike-collab/)
 
@@ -2796,15 +2526,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sun, 25 Aug 2024 14:03:00 GMT*
-
-
-## Addison Rae
-
-## [Post-Retirement, Dries Van Noten Is Still Working on Fragrance  Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/dries-van-noten-fragrance-collection-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sun, 25 Aug 2024 14:04:00 GMT*
 
 
 ## Addison Rae
@@ -2870,7 +2591,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 26 Aug 2024 07:45:29 GMT*
 
 
-## Addison Rae
+## Latto
 
 ## [LEGO x Nike Is Finally Real](https://www.highsnobiety.com/p/lego-nike-collab/)
 
@@ -2886,15 +2607,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sun, 25 Aug 2024 14:03:00 GMT*
-
-
-## Latto
-
-## [Post-Retirement, Dries Van Noten Is Still Working on Fragrance  Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/dries-van-noten-fragrance-collection-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sun, 25 Aug 2024 14:04:00 GMT*
 
 
 ## Latto
@@ -2960,7 +2672,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 26 Aug 2024 07:45:29 GMT*
 
 
-## Latto
+## Aaron Paul
 
 ## [LEGO x Nike Is Finally Real](https://www.highsnobiety.com/p/lego-nike-collab/)
 
@@ -2976,15 +2688,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sun, 25 Aug 2024 14:03:00 GMT*
-
-
-## Aaron Paul
-
-## [Post-Retirement, Dries Van Noten Is Still Working on Fragrance  Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/dries-van-noten-fragrance-collection-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sun, 25 Aug 2024 14:04:00 GMT*
 
 
 ## Aaron Paul
@@ -3050,7 +2753,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 26 Aug 2024 07:45:29 GMT*
 
 
-## Aaron Paul
+## LeBron James
 
 ## [LEGO x Nike Is Finally Real](https://www.highsnobiety.com/p/lego-nike-collab/)
 
@@ -3066,15 +2769,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sun, 25 Aug 2024 14:03:00 GMT*
-
-
-## LeBron James
-
-## [Post-Retirement, Dries Van Noten Is Still Working on Fragrance  Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/dries-van-noten-fragrance-collection-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sun, 25 Aug 2024 14:04:00 GMT*
 
 
 ## LeBron James
@@ -3140,7 +2834,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 26 Aug 2024 07:45:29 GMT*
 
 
-## LeBron James
+## 50 Cent
 
 ## [LEGO x Nike Is Finally Real](https://www.highsnobiety.com/p/lego-nike-collab/)
 
@@ -3156,15 +2850,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sun, 25 Aug 2024 14:03:00 GMT*
-
-
-## 50 Cent
-
-## [Post-Retirement, Dries Van Noten Is Still Working on Fragrance  Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/dries-van-noten-fragrance-collection-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sun, 25 Aug 2024 14:04:00 GMT*
 
 
 ## 50 Cent
@@ -3230,7 +2915,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 26 Aug 2024 07:45:29 GMT*
 
 
-## 50 Cent
+## Kesha
 
 ## [LEGO x Nike Is Finally Real](https://www.highsnobiety.com/p/lego-nike-collab/)
 
@@ -3246,15 +2931,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sun, 25 Aug 2024 14:03:00 GMT*
-
-
-## Kesha
-
-## [Post-Retirement, Dries Van Noten Is Still Working on Fragrance  Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/dries-van-noten-fragrance-collection-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sun, 25 Aug 2024 14:04:00 GMT*
 
 
 ## Kesha
@@ -3320,7 +2996,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 26 Aug 2024 07:45:29 GMT*
 
 
-## Kesha
+## 21 Savage
 
 ## [LEGO x Nike Is Finally Real](https://www.highsnobiety.com/p/lego-nike-collab/)
 
@@ -3336,15 +3012,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sun, 25 Aug 2024 14:03:00 GMT*
-
-
-## 21 Savage
-
-## [Post-Retirement, Dries Van Noten Is Still Working on Fragrance  Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/dries-van-noten-fragrance-collection-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sun, 25 Aug 2024 14:04:00 GMT*
 
 
 ## 21 Savage
@@ -3410,7 +3077,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 26 Aug 2024 07:45:29 GMT*
 
 
-## 21 Savage
+## Larry David
 
 ## [LEGO x Nike Is Finally Real](https://www.highsnobiety.com/p/lego-nike-collab/)
 
@@ -3426,15 +3093,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sun, 25 Aug 2024 14:03:00 GMT*
-
-
-## Larry David
-
-## [Post-Retirement, Dries Van Noten Is Still Working on Fragrance  Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/dries-van-noten-fragrance-collection-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sun, 25 Aug 2024 14:04:00 GMT*
 
 
 ## Larry David
@@ -3500,7 +3158,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 26 Aug 2024 07:45:29 GMT*
 
 
-## Larry David
+## Seth Rogan
 
 ## [LEGO x Nike Is Finally Real](https://www.highsnobiety.com/p/lego-nike-collab/)
 
@@ -3516,15 +3174,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sun, 25 Aug 2024 14:03:00 GMT*
-
-
-## Seth Rogan
-
-## [Post-Retirement, Dries Van Noten Is Still Working on Fragrance  Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/dries-van-noten-fragrance-collection-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sun, 25 Aug 2024 14:04:00 GMT*
 
 
 ## Seth Rogan
@@ -3590,7 +3239,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 26 Aug 2024 07:45:29 GMT*
 
 
-## Seth Rogan
+## Simone Biles
 
 ## [LEGO x Nike Is Finally Real](https://www.highsnobiety.com/p/lego-nike-collab/)
 
@@ -3606,15 +3255,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sun, 25 Aug 2024 14:03:00 GMT*
-
-
-## Simone Biles
-
-## [Post-Retirement, Dries Van Noten Is Still Working on Fragrance  Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/dries-van-noten-fragrance-collection-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sun, 25 Aug 2024 14:04:00 GMT*
 
 
 ## Simone Biles
@@ -3680,7 +3320,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 26 Aug 2024 07:45:29 GMT*
 
 
-## Simone Biles
+## Pete Davidson
 
 ## [LEGO x Nike Is Finally Real](https://www.highsnobiety.com/p/lego-nike-collab/)
 
@@ -3696,15 +3336,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sun, 25 Aug 2024 14:03:00 GMT*
-
-
-## Pete Davidson
-
-## [Post-Retirement, Dries Van Noten Is Still Working on Fragrance  Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/dries-van-noten-fragrance-collection-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sun, 25 Aug 2024 14:04:00 GMT*
 
 
 ## Pete Davidson
@@ -3770,7 +3401,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 26 Aug 2024 07:45:29 GMT*
 
 
-## Pete Davidson
+## Prince Harry
 
 ## [LEGO x Nike Is Finally Real](https://www.highsnobiety.com/p/lego-nike-collab/)
 
@@ -3786,15 +3417,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sun, 25 Aug 2024 14:03:00 GMT*
-
-
-## Prince Harry
-
-## [Post-Retirement, Dries Van Noten Is Still Working on Fragrance  Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/dries-van-noten-fragrance-collection-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sun, 25 Aug 2024 14:04:00 GMT*
 
 
 ## Prince Harry
@@ -3860,7 +3482,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 26 Aug 2024 07:45:29 GMT*
 
 
-## Prince Harry
+## Princess of Wales
 
 ## [LEGO x Nike Is Finally Real](https://www.highsnobiety.com/p/lego-nike-collab/)
 
@@ -3876,15 +3498,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sun, 25 Aug 2024 14:03:00 GMT*
-
-
-## Princess of Wales
-
-## [Post-Retirement, Dries Van Noten Is Still Working on Fragrance  Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/dries-van-noten-fragrance-collection-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sun, 25 Aug 2024 14:04:00 GMT*
 
 
 ## Princess of Wales
@@ -3950,7 +3563,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 26 Aug 2024 07:45:29 GMT*
 
 
-## Princess of Wales
+## Rachel McAdams
 
 ## [LEGO x Nike Is Finally Real](https://www.highsnobiety.com/p/lego-nike-collab/)
 
@@ -3966,15 +3579,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sun, 25 Aug 2024 14:03:00 GMT*
-
-
-## Rachel McAdams
-
-## [Post-Retirement, Dries Van Noten Is Still Working on Fragrance  Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/dries-van-noten-fragrance-collection-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sun, 25 Aug 2024 14:04:00 GMT*
 
 
 ## Rachel McAdams
@@ -4040,7 +3644,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 26 Aug 2024 07:45:29 GMT*
 
 
-## Rachel McAdams
+## Reneé Rapp
 
 ## [LEGO x Nike Is Finally Real](https://www.highsnobiety.com/p/lego-nike-collab/)
 
@@ -4056,15 +3660,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sun, 25 Aug 2024 14:03:00 GMT*
-
-
-## Reneé Rapp
-
-## [Post-Retirement, Dries Van Noten Is Still Working on Fragrance  Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/dries-van-noten-fragrance-collection-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sun, 25 Aug 2024 14:04:00 GMT*
 
 
 ## Reneé Rapp
@@ -4130,7 +3725,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 26 Aug 2024 07:45:29 GMT*
 
 
-## Reneé Rapp
+## Rick Ross
 
 ## [LEGO x Nike Is Finally Real](https://www.highsnobiety.com/p/lego-nike-collab/)
 
@@ -4146,15 +3741,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sun, 25 Aug 2024 14:03:00 GMT*
-
-
-## Rick Ross
-
-## [Post-Retirement, Dries Van Noten Is Still Working on Fragrance  Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/dries-van-noten-fragrance-collection-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sun, 25 Aug 2024 14:04:00 GMT*
 
 
 ## Rick Ross
@@ -4220,7 +3806,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 26 Aug 2024 07:45:29 GMT*
 
 
-## Rick Ross
+## Sam Ashgari
 
 ## [LEGO x Nike Is Finally Real](https://www.highsnobiety.com/p/lego-nike-collab/)
 
@@ -4236,15 +3822,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sun, 25 Aug 2024 14:03:00 GMT*
-
-
-## Sam Ashgari
-
-## [Post-Retirement, Dries Van Noten Is Still Working on Fragrance  Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/dries-van-noten-fragrance-collection-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sun, 25 Aug 2024 14:04:00 GMT*
 
 
 ## Sam Ashgari
@@ -4310,7 +3887,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 26 Aug 2024 07:45:29 GMT*
 
 
-## Sam Ashgari
+## Sandra Oh
 
 ## [LEGO x Nike Is Finally Real](https://www.highsnobiety.com/p/lego-nike-collab/)
 
@@ -4326,15 +3903,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sun, 25 Aug 2024 14:03:00 GMT*
-
-
-## Sandra Oh
-
-## [Post-Retirement, Dries Van Noten Is Still Working on Fragrance  Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/dries-van-noten-fragrance-collection-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sun, 25 Aug 2024 14:04:00 GMT*
 
 
 ## Sandra Oh
@@ -4400,7 +3968,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 26 Aug 2024 07:45:29 GMT*
 
 
-## Sandra Oh
+## Donald Trump
 
 ## [LEGO x Nike Is Finally Real](https://www.highsnobiety.com/p/lego-nike-collab/)
 
@@ -4416,15 +3984,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sun, 25 Aug 2024 14:03:00 GMT*
-
-
-## Donald Trump
-
-## [Post-Retirement, Dries Van Noten Is Still Working on Fragrance  Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/dries-van-noten-fragrance-collection-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sun, 25 Aug 2024 14:04:00 GMT*
 
 
 ## Donald Trump
@@ -4490,7 +4049,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 26 Aug 2024 07:45:29 GMT*
 
 
-## Donald Trump
+## Diddy
 
 ## [LEGO x Nike Is Finally Real](https://www.highsnobiety.com/p/lego-nike-collab/)
 
@@ -4506,15 +4065,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sun, 25 Aug 2024 14:03:00 GMT*
-
-
-## Diddy
-
-## [Post-Retirement, Dries Van Noten Is Still Working on Fragrance  Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/dries-van-noten-fragrance-collection-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sun, 25 Aug 2024 14:04:00 GMT*
 
 
 ## Diddy
@@ -4580,7 +4130,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 26 Aug 2024 07:45:29 GMT*
 
 
-## Diddy
+## City Girls
 
 ## [LEGO x Nike Is Finally Real](https://www.highsnobiety.com/p/lego-nike-collab/)
 
@@ -4596,15 +4146,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sun, 25 Aug 2024 14:03:00 GMT*
-
-
-## City Girls
-
-## [Post-Retirement, Dries Van Noten Is Still Working on Fragrance  Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/dries-van-noten-fragrance-collection-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sun, 25 Aug 2024 14:04:00 GMT*
 
 
 ## City Girls
@@ -4670,7 +4211,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 26 Aug 2024 07:45:29 GMT*
 
 
-## City Girls
+## Chloe Bailey
 
 ## [LEGO x Nike Is Finally Real](https://www.highsnobiety.com/p/lego-nike-collab/)
 
@@ -4686,15 +4227,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sun, 25 Aug 2024 14:03:00 GMT*
-
-
-## Chloe Bailey
-
-## [Post-Retirement, Dries Van Noten Is Still Working on Fragrance  Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/dries-van-noten-fragrance-collection-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sun, 25 Aug 2024 14:04:00 GMT*
 
 
 ## Chloe Bailey
@@ -4760,7 +4292,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 26 Aug 2024 07:45:29 GMT*
 
 
-## Chloe Bailey
+## Charli D Amelio
 
 ## [LEGO x Nike Is Finally Real](https://www.highsnobiety.com/p/lego-nike-collab/)
 
@@ -4776,15 +4308,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sun, 25 Aug 2024 14:03:00 GMT*
-
-
-## Charli D Amelio
-
-## [Post-Retirement, Dries Van Noten Is Still Working on Fragrance  Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/dries-van-noten-fragrance-collection-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sun, 25 Aug 2024 14:04:00 GMT*
 
 
 ## Charli D Amelio
@@ -4850,7 +4373,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 26 Aug 2024 07:45:29 GMT*
 
 
-## Charli D Amelio
+## Cardi B
 
 ## [LEGO x Nike Is Finally Real](https://www.highsnobiety.com/p/lego-nike-collab/)
 
@@ -4866,15 +4389,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sun, 25 Aug 2024 14:03:00 GMT*
-
-
-## Cardi B
-
-## [Post-Retirement, Dries Van Noten Is Still Working on Fragrance  Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/dries-van-noten-fragrance-collection-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sun, 25 Aug 2024 14:04:00 GMT*
 
 
 ## Cardi B
@@ -4940,7 +4454,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 26 Aug 2024 07:45:29 GMT*
 
 
-## Cardi B
+## Bryan Cranston
 
 ## [LEGO x Nike Is Finally Real](https://www.highsnobiety.com/p/lego-nike-collab/)
 
@@ -4956,15 +4470,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sun, 25 Aug 2024 14:03:00 GMT*
-
-
-## Bryan Cranston
-
-## [Post-Retirement, Dries Van Noten Is Still Working on Fragrance  Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/dries-van-noten-fragrance-collection-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sun, 25 Aug 2024 14:04:00 GMT*
 
 
 ## Bryan Cranston
@@ -5030,7 +4535,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 26 Aug 2024 07:45:29 GMT*
 
 
-## Bryan Cranston
+## Brielle Biermann
 
 ## [LEGO x Nike Is Finally Real](https://www.highsnobiety.com/p/lego-nike-collab/)
 
@@ -5046,15 +4551,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sun, 25 Aug 2024 14:03:00 GMT*
-
-
-## Brielle Biermann
-
-## [Post-Retirement, Dries Van Noten Is Still Working on Fragrance  Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/dries-van-noten-fragrance-collection-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sun, 25 Aug 2024 14:04:00 GMT*
 
 
 ## Brielle Biermann
@@ -5120,7 +4616,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 26 Aug 2024 07:45:29 GMT*
 
 
-## Brielle Biermann
+## Dua Lipa
 
 ## [LEGO x Nike Is Finally Real](https://www.highsnobiety.com/p/lego-nike-collab/)
 
@@ -5136,15 +4632,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sun, 25 Aug 2024 14:03:00 GMT*
-
-
-## Dua Lipa
-
-## [Post-Retirement, Dries Van Noten Is Still Working on Fragrance  Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/dries-van-noten-fragrance-collection-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sun, 25 Aug 2024 14:04:00 GMT*
 
 
 ## Dua Lipa
@@ -5210,7 +4697,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 26 Aug 2024 07:45:29 GMT*
 
 
-## Dua Lipa
+## Drake
 
 ## [LEGO x Nike Is Finally Real](https://www.highsnobiety.com/p/lego-nike-collab/)
 
@@ -5226,15 +4713,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sun, 25 Aug 2024 14:03:00 GMT*
-
-
-## Drake
-
-## [Post-Retirement, Dries Van Noten Is Still Working on Fragrance  Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/dries-van-noten-fragrance-collection-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sun, 25 Aug 2024 14:04:00 GMT*
 
 
 ## Drake
@@ -5300,7 +4778,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 26 Aug 2024 07:45:29 GMT*
 
 
-## Drake
+## Jenner
 
 ## [LEGO x Nike Is Finally Real](https://www.highsnobiety.com/p/lego-nike-collab/)
 
@@ -5316,15 +4794,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sun, 25 Aug 2024 14:03:00 GMT*
-
-
-## Jenner
-
-## [Post-Retirement, Dries Van Noten Is Still Working on Fragrance  Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/dries-van-noten-fragrance-collection-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sun, 25 Aug 2024 14:04:00 GMT*
 
 
 ## Jenner
@@ -5390,7 +4859,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 26 Aug 2024 07:45:29 GMT*
 
 
-## Jenner
+## J. Cole
 
 ## [LEGO x Nike Is Finally Real](https://www.highsnobiety.com/p/lego-nike-collab/)
 
@@ -5406,15 +4875,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sun, 25 Aug 2024 14:03:00 GMT*
-
-
-## J. Cole
-
-## [Post-Retirement, Dries Van Noten Is Still Working on Fragrance  Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/dries-van-noten-fragrance-collection-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sun, 25 Aug 2024 14:04:00 GMT*
 
 
 ## J. Cole
@@ -5480,7 +4940,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 26 Aug 2024 07:45:29 GMT*
 
 
-## J. Cole
+## Jerrod Carmichael
 
 ## [LEGO x Nike Is Finally Real](https://www.highsnobiety.com/p/lego-nike-collab/)
 
@@ -5496,15 +4956,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sun, 25 Aug 2024 14:03:00 GMT*
-
-
-## Jerrod Carmichael
-
-## [Post-Retirement, Dries Van Noten Is Still Working on Fragrance  Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/dries-van-noten-fragrance-collection-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sun, 25 Aug 2024 14:04:00 GMT*
 
 
 ## Jerrod Carmichael
@@ -5570,7 +5021,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 26 Aug 2024 07:45:29 GMT*
 
 
-## Jerrod Carmichael
+## Jennifer Lawrence
 
 ## [LEGO x Nike Is Finally Real](https://www.highsnobiety.com/p/lego-nike-collab/)
 
@@ -5586,15 +5037,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sun, 25 Aug 2024 14:03:00 GMT*
-
-
-## Jennifer Lawrence
-
-## [Post-Retirement, Dries Van Noten Is Still Working on Fragrance  Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/dries-van-noten-fragrance-collection-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sun, 25 Aug 2024 14:04:00 GMT*
 
 
 ## Jennifer Lawrence
@@ -5660,7 +5102,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 26 Aug 2024 07:45:29 GMT*
 
 
-## Jennifer Lawrence
+## Joe Biden
 
 ## [LEGO x Nike Is Finally Real](https://www.highsnobiety.com/p/lego-nike-collab/)
 
@@ -5676,15 +5118,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sun, 25 Aug 2024 14:03:00 GMT*
-
-
-## Joe Biden
-
-## [Post-Retirement, Dries Van Noten Is Still Working on Fragrance  Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/dries-van-noten-fragrance-collection-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sun, 25 Aug 2024 14:04:00 GMT*
 
 
 ## Joe Biden
@@ -5750,7 +5183,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 26 Aug 2024 07:45:29 GMT*
 
 
-## Joe Biden
+## J.K. Simmons
 
 ## [LEGO x Nike Is Finally Real](https://www.highsnobiety.com/p/lego-nike-collab/)
 
@@ -5766,15 +5199,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sun, 25 Aug 2024 14:03:00 GMT*
-
-
-## J.K. Simmons
-
-## [Post-Retirement, Dries Van Noten Is Still Working on Fragrance  Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/dries-van-noten-fragrance-collection-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sun, 25 Aug 2024 14:04:00 GMT*
 
 
 ## J.K. Simmons
@@ -5840,7 +5264,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 26 Aug 2024 07:45:29 GMT*
 
 
-## J.K. Simmons
+## Kamala Harris
 
 ## [LEGO x Nike Is Finally Real](https://www.highsnobiety.com/p/lego-nike-collab/)
 
@@ -5856,15 +5280,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sun, 25 Aug 2024 14:03:00 GMT*
-
-
-## Kamala Harris
-
-## [Post-Retirement, Dries Van Noten Is Still Working on Fragrance  Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/dries-van-noten-fragrance-collection-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sun, 25 Aug 2024 14:04:00 GMT*
 
 
 ## Kamala Harris
@@ -5930,7 +5345,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 26 Aug 2024 07:45:29 GMT*
 
 
-## Kamala Harris
+## John C Reilly
 
 ## [LEGO x Nike Is Finally Real](https://www.highsnobiety.com/p/lego-nike-collab/)
 
@@ -5946,15 +5361,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sun, 25 Aug 2024 14:03:00 GMT*
-
-
-## John C Reilly
-
-## [Post-Retirement, Dries Van Noten Is Still Working on Fragrance  Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/dries-van-noten-fragrance-collection-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sun, 25 Aug 2024 14:04:00 GMT*
 
 
 ## John C Reilly
@@ -6020,7 +5426,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 26 Aug 2024 07:45:29 GMT*
 
 
-## John C Reilly
+## Kardashian
 
 ## [LEGO x Nike Is Finally Real](https://www.highsnobiety.com/p/lego-nike-collab/)
 
@@ -6036,15 +5442,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sun, 25 Aug 2024 14:03:00 GMT*
-
-
-## Kardashian
-
-## [Post-Retirement, Dries Van Noten Is Still Working on Fragrance  Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/dries-van-noten-fragrance-collection-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sun, 25 Aug 2024 14:04:00 GMT*
 
 
 ## Kardashian
@@ -6110,7 +5507,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 26 Aug 2024 07:45:29 GMT*
 
 
-## Kardashian
+## Kanye
 
 ## [LEGO x Nike Is Finally Real](https://www.highsnobiety.com/p/lego-nike-collab/)
 
@@ -6126,15 +5523,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sun, 25 Aug 2024 14:03:00 GMT*
-
-
-## Kanye
-
-## [Post-Retirement, Dries Van Noten Is Still Working on Fragrance  Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/dries-van-noten-fragrance-collection-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sun, 25 Aug 2024 14:04:00 GMT*
 
 
 ## Kanye
@@ -6200,7 +5588,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 26 Aug 2024 07:45:29 GMT*
 
 
-## Kanye
+## Zendaya
 
 ## [LEGO x Nike Is Finally Real](https://www.highsnobiety.com/p/lego-nike-collab/)
 
@@ -6216,15 +5604,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sun, 25 Aug 2024 14:03:00 GMT*
-
-
-## Zendaya
-
-## [Post-Retirement, Dries Van Noten Is Still Working on Fragrance  Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/dries-van-noten-fragrance-collection-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sun, 25 Aug 2024 14:04:00 GMT*
 
 
 ## Zendaya
@@ -6290,7 +5669,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 26 Aug 2024 07:45:29 GMT*
 
 
-## Zendaya
+## Will Ferrell
 
 ## [LEGO x Nike Is Finally Real](https://www.highsnobiety.com/p/lego-nike-collab/)
 
@@ -6306,15 +5685,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sun, 25 Aug 2024 14:03:00 GMT*
-
-
-## Will Ferrell
-
-## [Post-Retirement, Dries Van Noten Is Still Working on Fragrance  Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/dries-van-noten-fragrance-collection-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sun, 25 Aug 2024 14:04:00 GMT*
 
 
 ## Will Ferrell
@@ -6380,7 +5750,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 26 Aug 2024 07:45:29 GMT*
 
 
-## Will Ferrell
+## Zazie Beetz
 
 ## [LEGO x Nike Is Finally Real](https://www.highsnobiety.com/p/lego-nike-collab/)
 
@@ -6396,15 +5766,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sun, 25 Aug 2024 14:03:00 GMT*
-
-
-## Zazie Beetz
-
-## [Post-Retirement, Dries Van Noten Is Still Working on Fragrance  Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/dries-van-noten-fragrance-collection-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sun, 25 Aug 2024 14:04:00 GMT*
 
 
 ## Zazie Beetz
@@ -6470,7 +5831,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 26 Aug 2024 07:45:29 GMT*
 
 
-## Zazie Beetz
+## Bob Odenkirk
 
 ## [LEGO x Nike Is Finally Real](https://www.highsnobiety.com/p/lego-nike-collab/)
 
@@ -6486,15 +5847,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sun, 25 Aug 2024 14:03:00 GMT*
-
-
-## Bob Odenkirk
-
-## [Post-Retirement, Dries Van Noten Is Still Working on Fragrance  Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/dries-van-noten-fragrance-collection-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sun, 25 Aug 2024 14:04:00 GMT*
 
 
 ## Bob Odenkirk
@@ -6560,7 +5912,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 26 Aug 2024 07:45:29 GMT*
 
 
-## Bob Odenkirk
+## Brad Pitt
 
 ## [LEGO x Nike Is Finally Real](https://www.highsnobiety.com/p/lego-nike-collab/)
 
@@ -6576,15 +5928,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sun, 25 Aug 2024 14:03:00 GMT*
-
-
-## Brad Pitt
-
-## [Post-Retirement, Dries Van Noten Is Still Working on Fragrance  Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/dries-van-noten-fragrance-collection-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sun, 25 Aug 2024 14:04:00 GMT*
 
 
 ## Brad Pitt
@@ -6650,7 +5993,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 26 Aug 2024 07:45:29 GMT*
 
 
-## Brad Pitt
+## Beyoncé
 
 ## [LEGO x Nike Is Finally Real](https://www.highsnobiety.com/p/lego-nike-collab/)
 
@@ -6666,15 +6009,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sun, 25 Aug 2024 14:03:00 GMT*
-
-
-## Beyoncé
-
-## [Post-Retirement, Dries Van Noten Is Still Working on Fragrance  Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/dries-van-noten-fragrance-collection-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sun, 25 Aug 2024 14:04:00 GMT*
 
 
 ## Beyoncé
@@ -6740,7 +6074,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 26 Aug 2024 07:45:29 GMT*
 
 
-## Beyoncé
+## Bia
 
 ## [LEGO x Nike Is Finally Real](https://www.highsnobiety.com/p/lego-nike-collab/)
 
@@ -6756,15 +6090,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sun, 25 Aug 2024 14:03:00 GMT*
-
-
-## Bia
-
-## [Post-Retirement, Dries Van Noten Is Still Working on Fragrance  Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/dries-van-noten-fragrance-collection-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sun, 25 Aug 2024 14:04:00 GMT*
 
 
 ## Bia
@@ -6830,7 +6155,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 26 Aug 2024 07:45:29 GMT*
 
 
-## Bia
+## Avantika
 
 ## [LEGO x Nike Is Finally Real](https://www.highsnobiety.com/p/lego-nike-collab/)
 
@@ -6846,15 +6171,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sun, 25 Aug 2024 14:03:00 GMT*
-
-
-## Avantika
-
-## [Post-Retirement, Dries Van Noten Is Still Working on Fragrance  Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/dries-van-noten-fragrance-collection-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sun, 25 Aug 2024 14:04:00 GMT*
 
 
 ## Avantika
@@ -6920,7 +6236,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 26 Aug 2024 07:45:29 GMT*
 
 
-## Avantika
+## Bernie Sanders
 
 ## [LEGO x Nike Is Finally Real](https://www.highsnobiety.com/p/lego-nike-collab/)
 
@@ -6936,15 +6252,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sun, 25 Aug 2024 14:03:00 GMT*
-
-
-## Bernie Sanders
-
-## [Post-Retirement, Dries Van Noten Is Still Working on Fragrance  Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/dries-van-noten-fragrance-collection-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sun, 25 Aug 2024 14:04:00 GMT*
 
 
 ## Bernie Sanders
@@ -7010,7 +6317,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 26 Aug 2024 07:45:29 GMT*
 
 
-## Bernie Sanders
+## Big Sean
 
 ## [LEGO x Nike Is Finally Real](https://www.highsnobiety.com/p/lego-nike-collab/)
 
@@ -7026,15 +6333,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sun, 25 Aug 2024 14:03:00 GMT*
-
-
-## Big Sean
-
-## [Post-Retirement, Dries Van Noten Is Still Working on Fragrance  Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/dries-van-noten-fragrance-collection-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sun, 25 Aug 2024 14:04:00 GMT*
 
 
 ## Big Sean
@@ -7100,7 +6398,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 26 Aug 2024 07:45:29 GMT*
 
 
-## Big Sean
+## BlockBoy JB
 
 ## [LEGO x Nike Is Finally Real](https://www.highsnobiety.com/p/lego-nike-collab/)
 
@@ -7116,15 +6414,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sun, 25 Aug 2024 14:03:00 GMT*
-
-
-## BlockBoy JB
-
-## [Post-Retirement, Dries Van Noten Is Still Working on Fragrance  Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/dries-van-noten-fragrance-collection-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sun, 25 Aug 2024 14:04:00 GMT*
 
 
 ## BlockBoy JB
@@ -7190,7 +6479,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 26 Aug 2024 07:45:29 GMT*
 
 
-## BlockBoy JB
+## Biden
 
 ## [LEGO x Nike Is Finally Real](https://www.highsnobiety.com/p/lego-nike-collab/)
 
@@ -7206,15 +6495,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sun, 25 Aug 2024 14:03:00 GMT*
-
-
-## Biden
-
-## [Post-Retirement, Dries Van Noten Is Still Working on Fragrance  Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/dries-van-noten-fragrance-collection-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sun, 25 Aug 2024 14:04:00 GMT*
 
 
 ## Biden
@@ -7280,7 +6560,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 26 Aug 2024 07:45:29 GMT*
 
 
-## Biden
+## Bieber
 
 ## [LEGO x Nike Is Finally Real](https://www.highsnobiety.com/p/lego-nike-collab/)
 
@@ -7296,15 +6576,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sun, 25 Aug 2024 14:03:00 GMT*
-
-
-## Bieber
-
-## [Post-Retirement, Dries Van Noten Is Still Working on Fragrance  Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/dries-van-noten-fragrance-collection-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sun, 25 Aug 2024 14:04:00 GMT*
 
 
 ## Bieber
@@ -7370,7 +6641,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 26 Aug 2024 07:45:29 GMT*
 
 
-## Bieber
+## Paulina Porizkov
 
 ## [LEGO x Nike Is Finally Real](https://www.highsnobiety.com/p/lego-nike-collab/)
 
@@ -7386,15 +6657,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sun, 25 Aug 2024 14:03:00 GMT*
-
-
-## Paulina Porizkov
-
-## [Post-Retirement, Dries Van Noten Is Still Working on Fragrance  Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/dries-van-noten-fragrance-collection-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sun, 25 Aug 2024 14:04:00 GMT*
 
 
 ## Paulina Porizkov
@@ -7460,7 +6722,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 26 Aug 2024 07:45:29 GMT*
 
 
-## Paulina Porizkov
+## Paris Hilton
 
 ## [LEGO x Nike Is Finally Real](https://www.highsnobiety.com/p/lego-nike-collab/)
 
@@ -7476,15 +6738,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sun, 25 Aug 2024 14:03:00 GMT*
-
-
-## Paris Hilton
-
-## [Post-Retirement, Dries Van Noten Is Still Working on Fragrance  Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/dries-van-noten-fragrance-collection-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sun, 25 Aug 2024 14:04:00 GMT*
 
 
 ## Paris Hilton
@@ -7550,7 +6803,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 26 Aug 2024 07:45:29 GMT*
 
 
-## Paris Hilton
+## Metro Boomin
 
 ## [LEGO x Nike Is Finally Real](https://www.highsnobiety.com/p/lego-nike-collab/)
 
@@ -7566,15 +6819,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sun, 25 Aug 2024 14:03:00 GMT*
-
-
-## Metro Boomin
-
-## [Post-Retirement, Dries Van Noten Is Still Working on Fragrance  Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/dries-van-noten-fragrance-collection-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sun, 25 Aug 2024 14:04:00 GMT*
 
 
 ## Metro Boomin
@@ -7640,7 +6884,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 26 Aug 2024 07:45:29 GMT*
 
 
-## Metro Boomin
+## Meghan Markle
 
 ## [LEGO x Nike Is Finally Real](https://www.highsnobiety.com/p/lego-nike-collab/)
 
@@ -7656,15 +6900,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sun, 25 Aug 2024 14:03:00 GMT*
-
-
-## Meghan Markle
-
-## [Post-Retirement, Dries Van Noten Is Still Working on Fragrance  Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/dries-van-noten-fragrance-collection-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sun, 25 Aug 2024 14:04:00 GMT*
 
 
 ## Meghan Markle
@@ -7730,7 +6965,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 26 Aug 2024 07:45:29 GMT*
 
 
-## Meghan Markle
+## Megan Thee Stallion
 
 ## [LEGO x Nike Is Finally Real](https://www.highsnobiety.com/p/lego-nike-collab/)
 
@@ -7746,15 +6981,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sun, 25 Aug 2024 14:03:00 GMT*
-
-
-## Megan Thee Stallion
-
-## [Post-Retirement, Dries Van Noten Is Still Working on Fragrance  Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/dries-van-noten-fragrance-collection-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sun, 25 Aug 2024 14:04:00 GMT*
 
 
 ## Megan Thee Stallion
@@ -7820,7 +7046,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 26 Aug 2024 07:45:29 GMT*
 
 
-## Megan Thee Stallion
+## Maya Rudolph
 
 ## [LEGO x Nike Is Finally Real](https://www.highsnobiety.com/p/lego-nike-collab/)
 
@@ -7836,15 +7062,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sun, 25 Aug 2024 14:03:00 GMT*
-
-
-## Maya Rudolph
-
-## [Post-Retirement, Dries Van Noten Is Still Working on Fragrance  Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/dries-van-noten-fragrance-collection-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sun, 25 Aug 2024 14:04:00 GMT*
 
 
 ## Maya Rudolph
@@ -7910,7 +7127,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 26 Aug 2024 07:45:29 GMT*
 
 
-## Maya Rudolph
+## Olivia Rodrigo
 
 ## [LEGO x Nike Is Finally Real](https://www.highsnobiety.com/p/lego-nike-collab/)
 
@@ -7926,15 +7143,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sun, 25 Aug 2024 14:03:00 GMT*
-
-
-## Olivia Rodrigo
-
-## [Post-Retirement, Dries Van Noten Is Still Working on Fragrance  Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/dries-van-noten-fragrance-collection-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sun, 25 Aug 2024 14:04:00 GMT*
 
 
 ## Olivia Rodrigo
@@ -8000,7 +7208,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 26 Aug 2024 07:45:29 GMT*
 
 
-## Olivia Rodrigo
+## Obama
 
 ## [LEGO x Nike Is Finally Real](https://www.highsnobiety.com/p/lego-nike-collab/)
 
@@ -8016,15 +7224,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sun, 25 Aug 2024 14:03:00 GMT*
-
-
-## Obama
-
-## [Post-Retirement, Dries Van Noten Is Still Working on Fragrance  Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/dries-van-noten-fragrance-collection-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sun, 25 Aug 2024 14:04:00 GMT*
 
 
 ## Obama
@@ -8090,7 +7289,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 26 Aug 2024 07:45:29 GMT*
 
 
-## Obama
+## Nicki Minaj
 
 ## [LEGO x Nike Is Finally Real](https://www.highsnobiety.com/p/lego-nike-collab/)
 
@@ -8106,15 +7305,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sun, 25 Aug 2024 14:03:00 GMT*
-
-
-## Nicki Minaj
-
-## [Post-Retirement, Dries Van Noten Is Still Working on Fragrance  Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/dries-van-noten-fragrance-collection-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sun, 25 Aug 2024 14:04:00 GMT*
 
 
 ## Nicki Minaj
@@ -8180,7 +7370,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 26 Aug 2024 07:45:29 GMT*
 
 
-## Nicki Minaj
+## MrBeast
 
 ## [LEGO x Nike Is Finally Real](https://www.highsnobiety.com/p/lego-nike-collab/)
 
@@ -8196,15 +7386,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sun, 25 Aug 2024 14:03:00 GMT*
-
-
-## MrBeast
-
-## [Post-Retirement, Dries Van Noten Is Still Working on Fragrance  Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/dries-van-noten-fragrance-collection-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sun, 25 Aug 2024 14:04:00 GMT*
 
 
 ## MrBeast
@@ -8268,14 +7449,5 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Mon, 26 Aug 2024 07:45:29 GMT*
-
-
-## MrBeast
-
-## [LEGO x Nike Is Finally Real](https://www.highsnobiety.com/p/lego-nike-collab/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sun, 25 Aug 2024 13:50:00 GMT*
 
 
