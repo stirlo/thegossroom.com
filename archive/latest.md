@@ -1,15 +1,6 @@
 # Latest Stories
 ## Tim Cook
 
-## [Nike's Napoli Sneaker Is Destined To Be a Fan Favorite](https://www.highsnobiety.com/p/nike-air-max-plus-tn-napoli/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 07:43:17 GMT*
-
-
-## Tim Cook
-
 ## [Tyler, the Creator's Style Is So Good, His Friends Are Stealing It](https://www.highsnobiety.com/p/tyler-the-creator-shorts-loafers-outfit/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -46,7 +37,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Tim Cook
 
-## [Vans’ Classic Slip-On Has Never Looked This Luxe](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
+## [Vans’ Classic Slip-On Is Now More Jewelry Than Sneaker](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -82,29 +73,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Tim Cook
 
-## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
+## [Teddy Santis Saved His Most Delicious NB Dad Shoes for ALD](https://www.highsnobiety.com/p/aime-leon-dore-new-balance-990v4-where-to-buy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 26 Aug 2024 16:56:59 GMT*
-
-
-## Tim Cook
-
-## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
-
-
-## Tim Cook
-
-## [Nike's Beefed-Up Blazer Shoes Are Ready to Blaze the Trails](https://www.highsnobiety.com/p/nike-blazer-mid-roam-shoes/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 26 Aug 2024 19:45:59 GMT*
+*Published on: Tue, 27 Aug 2024 15:38:33 GMT*
 
 
 ## Tim Cook
@@ -116,13 +89,40 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 26 Aug 2024 17:27:55 GMT*
 
 
-## Taylor Swift
+## Tim Cook
+
+## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 16:56:59 GMT*
+
+
+## Tim Cook
 
 ## [Nike's Napoli Sneaker Is Destined To Be a Fan Favorite](https://www.highsnobiety.com/p/nike-air-max-plus-tn-napoli/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Tue, 27 Aug 2024 07:43:17 GMT*
+
+
+## Tim Cook
+
+## [Nike's Beefed-Up Blazer Shoes Are Ready to Blaze the Trails](https://www.highsnobiety.com/p/nike-blazer-mid-roam-shoes/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 19:45:59 GMT*
+
+
+## Tim Cook
+
+## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
 
 
 ## Taylor Swift
@@ -163,7 +163,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Taylor Swift
 
-## [Vans’ Classic Slip-On Has Never Looked This Luxe](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
+## [Vans’ Classic Slip-On Is Now More Jewelry Than Sneaker](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -199,6 +199,24 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Taylor Swift
 
+## [Teddy Santis Saved His Most Delicious NB Dad Shoes for ALD](https://www.highsnobiety.com/p/aime-leon-dore-new-balance-990v4-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 15:38:33 GMT*
+
+
+## Taylor Swift
+
+## [Shaboozey Dresses Exactly How Shaboozey Sounds](https://www.highsnobiety.com/p/shaboozey-camo-crocs-nyc-outfit/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 17:27:55 GMT*
+
+
+## Taylor Swift
+
 ## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -208,11 +226,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Taylor Swift
 
-## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
+## [Nike's Napoli Sneaker Is Destined To Be a Fan Favorite](https://www.highsnobiety.com/p/nike-air-max-plus-tn-napoli/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
+*Published on: Tue, 27 Aug 2024 07:43:17 GMT*
 
 
 ## Taylor Swift
@@ -226,11 +244,110 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Taylor Swift
 
+## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
+
+
+## Tom Brady
+
+## [Tyler, the Creator's Style Is So Good, His Friends Are Stealing It](https://www.highsnobiety.com/p/tyler-the-creator-shorts-loafers-outfit/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 08:00:45 GMT*
+
+
+## Tom Brady
+
+## [Is HOKA’s GORE-TEX Hybrid Puffer Boot Its Coziest Sneaker Yet?](https://www.highsnobiety.com/p/hoka-kaha-2-frost-moc-gore-tex/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 08:15:41 GMT*
+
+
+## Tom Brady
+
+## [Nike, Yoon Ahn  Naomi Osaka Serve Up Tennis Magic](https://www.highsnobiety.com/p/yoon-ahn-nike-tennis-collab/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 09:00:02 GMT*
+
+
+## Tom Brady
+
+## [Nike's Trusty Dad Shoe Has New Beautifully Rugged Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-roam-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 09:02:00 GMT*
+
+
+## Tom Brady
+
+## [Vans’ Classic Slip-On Is Now More Jewelry Than Sneaker](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 09:07:58 GMT*
+
+
+## Tom Brady
+
+## [Ice Studios' First New Balance Sneaker Is an Ice-Cold Must Already](https://www.highsnobiety.com/p/ice-studios-new-balance-collab/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 10:15:00 GMT*
+
+
+## Tom Brady
+
+## [Nike’s Simple Mule Becomes Fluff-tastic](https://www.highsnobiety.com/p/nike-calm-mule-fluff/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 10:33:52 GMT*
+
+
+## Tom Brady
+
+## [Nike's Skate-Worthy Jordan 4 Sneakers Look Very Pretty in Pink](https://www.highsnobiety.com/p/jordan-4-rm-sneakers-pink-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 14:15:00 GMT*
+
+
+## Tom Brady
+
+## [Teddy Santis Saved His Most Delicious NB Dad Shoes for ALD](https://www.highsnobiety.com/p/aime-leon-dore-new-balance-990v4-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 15:38:33 GMT*
+
+
+## Tom Brady
+
 ## [Shaboozey Dresses Exactly How Shaboozey Sounds](https://www.highsnobiety.com/p/shaboozey-camo-crocs-nyc-outfit/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Mon, 26 Aug 2024 17:27:55 GMT*
+
+
+## Tom Brady
+
+## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 16:56:59 GMT*
 
 
 ## Tom Brady
@@ -244,96 +361,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Tom Brady
 
-## [Tyler, the Creator's Style Is So Good, His Friends Are Stealing It](https://www.highsnobiety.com/p/tyler-the-creator-shorts-loafers-outfit/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 08:00:45 GMT*
-
-
-## Tom Brady
-
-## [Is HOKA’s GORE-TEX Hybrid Puffer Boot Its Coziest Sneaker Yet?](https://www.highsnobiety.com/p/hoka-kaha-2-frost-moc-gore-tex/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 08:15:41 GMT*
-
-
-## Tom Brady
-
-## [Nike, Yoon Ahn  Naomi Osaka Serve Up Tennis Magic](https://www.highsnobiety.com/p/yoon-ahn-nike-tennis-collab/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 09:00:02 GMT*
-
-
-## Tom Brady
-
-## [Nike's Trusty Dad Shoe Has New Beautifully Rugged Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-roam-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 09:02:00 GMT*
-
-
-## Tom Brady
-
-## [Vans’ Classic Slip-On Has Never Looked This Luxe](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 09:07:58 GMT*
-
-
-## Tom Brady
-
-## [Ice Studios' First New Balance Sneaker Is an Ice-Cold Must Already](https://www.highsnobiety.com/p/ice-studios-new-balance-collab/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 10:15:00 GMT*
-
-
-## Tom Brady
-
-## [Nike’s Simple Mule Becomes Fluff-tastic](https://www.highsnobiety.com/p/nike-calm-mule-fluff/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 10:33:52 GMT*
-
-
-## Tom Brady
-
-## [Nike's Skate-Worthy Jordan 4 Sneakers Look Very Pretty in Pink](https://www.highsnobiety.com/p/jordan-4-rm-sneakers-pink-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 14:15:00 GMT*
-
-
-## Tom Brady
-
-## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 26 Aug 2024 16:56:59 GMT*
-
-
-## Tom Brady
-
-## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
-
-
-## Tom Brady
-
 ## [Nike's Beefed-Up Blazer Shoes Are Ready to Blaze the Trails](https://www.highsnobiety.com/p/nike-blazer-mid-roam-shoes/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -343,20 +370,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Tom Brady
 
-## [Shaboozey Dresses Exactly How Shaboozey Sounds](https://www.highsnobiety.com/p/shaboozey-camo-crocs-nyc-outfit/)
+## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 26 Aug 2024 17:27:55 GMT*
-
-
-## Tina Fey
-
-## [Nike's Napoli Sneaker Is Destined To Be a Fan Favorite](https://www.highsnobiety.com/p/nike-air-max-plus-tn-napoli/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 07:43:17 GMT*
+*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
 
 
 ## Tina Fey
@@ -397,7 +415,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Tina Fey
 
-## [Vans’ Classic Slip-On Has Never Looked This Luxe](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
+## [Vans’ Classic Slip-On Is Now More Jewelry Than Sneaker](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -433,29 +451,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Tina Fey
 
-## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
+## [Teddy Santis Saved His Most Delicious NB Dad Shoes for ALD](https://www.highsnobiety.com/p/aime-leon-dore-new-balance-990v4-where-to-buy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 26 Aug 2024 16:56:59 GMT*
-
-
-## Tina Fey
-
-## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
-
-
-## Tina Fey
-
-## [Nike's Beefed-Up Blazer Shoes Are Ready to Blaze the Trails](https://www.highsnobiety.com/p/nike-blazer-mid-roam-shoes/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 26 Aug 2024 19:45:59 GMT*
+*Published on: Tue, 27 Aug 2024 15:38:33 GMT*
 
 
 ## Tina Fey
@@ -467,13 +467,40 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 26 Aug 2024 17:27:55 GMT*
 
 
-## Steven Yuen
+## Tina Fey
+
+## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 16:56:59 GMT*
+
+
+## Tina Fey
 
 ## [Nike's Napoli Sneaker Is Destined To Be a Fan Favorite](https://www.highsnobiety.com/p/nike-air-max-plus-tn-napoli/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Tue, 27 Aug 2024 07:43:17 GMT*
+
+
+## Tina Fey
+
+## [Nike's Beefed-Up Blazer Shoes Are Ready to Blaze the Trails](https://www.highsnobiety.com/p/nike-blazer-mid-roam-shoes/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 19:45:59 GMT*
+
+
+## Tina Fey
+
+## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
 
 
 ## Steven Yuen
@@ -514,7 +541,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Steven Yuen
 
-## [Vans’ Classic Slip-On Has Never Looked This Luxe](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
+## [Vans’ Classic Slip-On Is Now More Jewelry Than Sneaker](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -550,6 +577,24 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Steven Yuen
 
+## [Teddy Santis Saved His Most Delicious NB Dad Shoes for ALD](https://www.highsnobiety.com/p/aime-leon-dore-new-balance-990v4-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 15:38:33 GMT*
+
+
+## Steven Yuen
+
+## [Shaboozey Dresses Exactly How Shaboozey Sounds](https://www.highsnobiety.com/p/shaboozey-camo-crocs-nyc-outfit/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 17:27:55 GMT*
+
+
+## Steven Yuen
+
 ## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -559,11 +604,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Steven Yuen
 
-## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
+## [Nike's Napoli Sneaker Is Destined To Be a Fan Favorite](https://www.highsnobiety.com/p/nike-air-max-plus-tn-napoli/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
+*Published on: Tue, 27 Aug 2024 07:43:17 GMT*
 
 
 ## Steven Yuen
@@ -577,11 +622,110 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Steven Yuen
 
+## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
+
+
+## Sommer Ray
+
+## [Tyler, the Creator's Style Is So Good, His Friends Are Stealing It](https://www.highsnobiety.com/p/tyler-the-creator-shorts-loafers-outfit/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 08:00:45 GMT*
+
+
+## Sommer Ray
+
+## [Is HOKA’s GORE-TEX Hybrid Puffer Boot Its Coziest Sneaker Yet?](https://www.highsnobiety.com/p/hoka-kaha-2-frost-moc-gore-tex/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 08:15:41 GMT*
+
+
+## Sommer Ray
+
+## [Nike, Yoon Ahn  Naomi Osaka Serve Up Tennis Magic](https://www.highsnobiety.com/p/yoon-ahn-nike-tennis-collab/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 09:00:02 GMT*
+
+
+## Sommer Ray
+
+## [Nike's Trusty Dad Shoe Has New Beautifully Rugged Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-roam-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 09:02:00 GMT*
+
+
+## Sommer Ray
+
+## [Vans’ Classic Slip-On Is Now More Jewelry Than Sneaker](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 09:07:58 GMT*
+
+
+## Sommer Ray
+
+## [Ice Studios' First New Balance Sneaker Is an Ice-Cold Must Already](https://www.highsnobiety.com/p/ice-studios-new-balance-collab/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 10:15:00 GMT*
+
+
+## Sommer Ray
+
+## [Nike’s Simple Mule Becomes Fluff-tastic](https://www.highsnobiety.com/p/nike-calm-mule-fluff/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 10:33:52 GMT*
+
+
+## Sommer Ray
+
+## [Nike's Skate-Worthy Jordan 4 Sneakers Look Very Pretty in Pink](https://www.highsnobiety.com/p/jordan-4-rm-sneakers-pink-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 14:15:00 GMT*
+
+
+## Sommer Ray
+
+## [Teddy Santis Saved His Most Delicious NB Dad Shoes for ALD](https://www.highsnobiety.com/p/aime-leon-dore-new-balance-990v4-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 15:38:33 GMT*
+
+
+## Sommer Ray
+
 ## [Shaboozey Dresses Exactly How Shaboozey Sounds](https://www.highsnobiety.com/p/shaboozey-camo-crocs-nyc-outfit/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Mon, 26 Aug 2024 17:27:55 GMT*
+
+
+## Sommer Ray
+
+## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 16:56:59 GMT*
 
 
 ## Sommer Ray
@@ -595,96 +739,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Sommer Ray
 
-## [Tyler, the Creator's Style Is So Good, His Friends Are Stealing It](https://www.highsnobiety.com/p/tyler-the-creator-shorts-loafers-outfit/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 08:00:45 GMT*
-
-
-## Sommer Ray
-
-## [Is HOKA’s GORE-TEX Hybrid Puffer Boot Its Coziest Sneaker Yet?](https://www.highsnobiety.com/p/hoka-kaha-2-frost-moc-gore-tex/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 08:15:41 GMT*
-
-
-## Sommer Ray
-
-## [Nike, Yoon Ahn  Naomi Osaka Serve Up Tennis Magic](https://www.highsnobiety.com/p/yoon-ahn-nike-tennis-collab/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 09:00:02 GMT*
-
-
-## Sommer Ray
-
-## [Nike's Trusty Dad Shoe Has New Beautifully Rugged Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-roam-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 09:02:00 GMT*
-
-
-## Sommer Ray
-
-## [Vans’ Classic Slip-On Has Never Looked This Luxe](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 09:07:58 GMT*
-
-
-## Sommer Ray
-
-## [Ice Studios' First New Balance Sneaker Is an Ice-Cold Must Already](https://www.highsnobiety.com/p/ice-studios-new-balance-collab/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 10:15:00 GMT*
-
-
-## Sommer Ray
-
-## [Nike’s Simple Mule Becomes Fluff-tastic](https://www.highsnobiety.com/p/nike-calm-mule-fluff/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 10:33:52 GMT*
-
-
-## Sommer Ray
-
-## [Nike's Skate-Worthy Jordan 4 Sneakers Look Very Pretty in Pink](https://www.highsnobiety.com/p/jordan-4-rm-sneakers-pink-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 14:15:00 GMT*
-
-
-## Sommer Ray
-
-## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 26 Aug 2024 16:56:59 GMT*
-
-
-## Sommer Ray
-
-## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
-
-
-## Sommer Ray
-
 ## [Nike's Beefed-Up Blazer Shoes Are Ready to Blaze the Trails](https://www.highsnobiety.com/p/nike-blazer-mid-roam-shoes/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -694,20 +748,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Sommer Ray
 
-## [Shaboozey Dresses Exactly How Shaboozey Sounds](https://www.highsnobiety.com/p/shaboozey-camo-crocs-nyc-outfit/)
+## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 26 Aug 2024 17:27:55 GMT*
-
-
-## Sza
-
-## [Nike's Napoli Sneaker Is Destined To Be a Fan Favorite](https://www.highsnobiety.com/p/nike-air-max-plus-tn-napoli/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 07:43:17 GMT*
+*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
 
 
 ## Sza
@@ -748,7 +793,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Sza
 
-## [Vans’ Classic Slip-On Has Never Looked This Luxe](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
+## [Vans’ Classic Slip-On Is Now More Jewelry Than Sneaker](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -784,29 +829,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Sza
 
-## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
+## [Teddy Santis Saved His Most Delicious NB Dad Shoes for ALD](https://www.highsnobiety.com/p/aime-leon-dore-new-balance-990v4-where-to-buy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 26 Aug 2024 16:56:59 GMT*
-
-
-## Sza
-
-## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
-
-
-## Sza
-
-## [Nike's Beefed-Up Blazer Shoes Are Ready to Blaze the Trails](https://www.highsnobiety.com/p/nike-blazer-mid-roam-shoes/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 26 Aug 2024 19:45:59 GMT*
+*Published on: Tue, 27 Aug 2024 15:38:33 GMT*
 
 
 ## Sza
@@ -818,13 +845,40 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 26 Aug 2024 17:27:55 GMT*
 
 
-## Sydney Sweeney
+## Sza
+
+## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 16:56:59 GMT*
+
+
+## Sza
 
 ## [Nike's Napoli Sneaker Is Destined To Be a Fan Favorite](https://www.highsnobiety.com/p/nike-air-max-plus-tn-napoli/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Tue, 27 Aug 2024 07:43:17 GMT*
+
+
+## Sza
+
+## [Nike's Beefed-Up Blazer Shoes Are Ready to Blaze the Trails](https://www.highsnobiety.com/p/nike-blazer-mid-roam-shoes/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 19:45:59 GMT*
+
+
+## Sza
+
+## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
 
 
 ## Sydney Sweeney
@@ -865,7 +919,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Sydney Sweeney
 
-## [Vans’ Classic Slip-On Has Never Looked This Luxe](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
+## [Vans’ Classic Slip-On Is Now More Jewelry Than Sneaker](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -901,6 +955,24 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Sydney Sweeney
 
+## [Teddy Santis Saved His Most Delicious NB Dad Shoes for ALD](https://www.highsnobiety.com/p/aime-leon-dore-new-balance-990v4-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 15:38:33 GMT*
+
+
+## Sydney Sweeney
+
+## [Shaboozey Dresses Exactly How Shaboozey Sounds](https://www.highsnobiety.com/p/shaboozey-camo-crocs-nyc-outfit/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 17:27:55 GMT*
+
+
+## Sydney Sweeney
+
 ## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -910,11 +982,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Sydney Sweeney
 
-## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
+## [Nike's Napoli Sneaker Is Destined To Be a Fan Favorite](https://www.highsnobiety.com/p/nike-air-max-plus-tn-napoli/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
+*Published on: Tue, 27 Aug 2024 07:43:17 GMT*
 
 
 ## Sydney Sweeney
@@ -928,11 +1000,110 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Sydney Sweeney
 
+## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
+
+
+## Walton Goggins
+
+## [Tyler, the Creator's Style Is So Good, His Friends Are Stealing It](https://www.highsnobiety.com/p/tyler-the-creator-shorts-loafers-outfit/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 08:00:45 GMT*
+
+
+## Walton Goggins
+
+## [Is HOKA’s GORE-TEX Hybrid Puffer Boot Its Coziest Sneaker Yet?](https://www.highsnobiety.com/p/hoka-kaha-2-frost-moc-gore-tex/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 08:15:41 GMT*
+
+
+## Walton Goggins
+
+## [Nike, Yoon Ahn  Naomi Osaka Serve Up Tennis Magic](https://www.highsnobiety.com/p/yoon-ahn-nike-tennis-collab/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 09:00:02 GMT*
+
+
+## Walton Goggins
+
+## [Nike's Trusty Dad Shoe Has New Beautifully Rugged Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-roam-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 09:02:00 GMT*
+
+
+## Walton Goggins
+
+## [Vans’ Classic Slip-On Is Now More Jewelry Than Sneaker](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 09:07:58 GMT*
+
+
+## Walton Goggins
+
+## [Ice Studios' First New Balance Sneaker Is an Ice-Cold Must Already](https://www.highsnobiety.com/p/ice-studios-new-balance-collab/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 10:15:00 GMT*
+
+
+## Walton Goggins
+
+## [Nike’s Simple Mule Becomes Fluff-tastic](https://www.highsnobiety.com/p/nike-calm-mule-fluff/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 10:33:52 GMT*
+
+
+## Walton Goggins
+
+## [Nike's Skate-Worthy Jordan 4 Sneakers Look Very Pretty in Pink](https://www.highsnobiety.com/p/jordan-4-rm-sneakers-pink-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 14:15:00 GMT*
+
+
+## Walton Goggins
+
+## [Teddy Santis Saved His Most Delicious NB Dad Shoes for ALD](https://www.highsnobiety.com/p/aime-leon-dore-new-balance-990v4-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 15:38:33 GMT*
+
+
+## Walton Goggins
+
 ## [Shaboozey Dresses Exactly How Shaboozey Sounds](https://www.highsnobiety.com/p/shaboozey-camo-crocs-nyc-outfit/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Mon, 26 Aug 2024 17:27:55 GMT*
+
+
+## Walton Goggins
+
+## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 16:56:59 GMT*
 
 
 ## Walton Goggins
@@ -946,96 +1117,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Walton Goggins
 
-## [Tyler, the Creator's Style Is So Good, His Friends Are Stealing It](https://www.highsnobiety.com/p/tyler-the-creator-shorts-loafers-outfit/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 08:00:45 GMT*
-
-
-## Walton Goggins
-
-## [Is HOKA’s GORE-TEX Hybrid Puffer Boot Its Coziest Sneaker Yet?](https://www.highsnobiety.com/p/hoka-kaha-2-frost-moc-gore-tex/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 08:15:41 GMT*
-
-
-## Walton Goggins
-
-## [Nike, Yoon Ahn  Naomi Osaka Serve Up Tennis Magic](https://www.highsnobiety.com/p/yoon-ahn-nike-tennis-collab/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 09:00:02 GMT*
-
-
-## Walton Goggins
-
-## [Nike's Trusty Dad Shoe Has New Beautifully Rugged Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-roam-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 09:02:00 GMT*
-
-
-## Walton Goggins
-
-## [Vans’ Classic Slip-On Has Never Looked This Luxe](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 09:07:58 GMT*
-
-
-## Walton Goggins
-
-## [Ice Studios' First New Balance Sneaker Is an Ice-Cold Must Already](https://www.highsnobiety.com/p/ice-studios-new-balance-collab/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 10:15:00 GMT*
-
-
-## Walton Goggins
-
-## [Nike’s Simple Mule Becomes Fluff-tastic](https://www.highsnobiety.com/p/nike-calm-mule-fluff/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 10:33:52 GMT*
-
-
-## Walton Goggins
-
-## [Nike's Skate-Worthy Jordan 4 Sneakers Look Very Pretty in Pink](https://www.highsnobiety.com/p/jordan-4-rm-sneakers-pink-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 14:15:00 GMT*
-
-
-## Walton Goggins
-
-## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 26 Aug 2024 16:56:59 GMT*
-
-
-## Walton Goggins
-
-## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
-
-
-## Walton Goggins
-
 ## [Nike's Beefed-Up Blazer Shoes Are Ready to Blaze the Trails](https://www.highsnobiety.com/p/nike-blazer-mid-roam-shoes/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1045,20 +1126,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Walton Goggins
 
-## [Shaboozey Dresses Exactly How Shaboozey Sounds](https://www.highsnobiety.com/p/shaboozey-camo-crocs-nyc-outfit/)
+## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 26 Aug 2024 17:27:55 GMT*
-
-
-## Tom Holland
-
-## [Nike's Napoli Sneaker Is Destined To Be a Fan Favorite](https://www.highsnobiety.com/p/nike-air-max-plus-tn-napoli/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 07:43:17 GMT*
+*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
 
 
 ## Tom Holland
@@ -1099,7 +1171,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Tom Holland
 
-## [Vans’ Classic Slip-On Has Never Looked This Luxe](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
+## [Vans’ Classic Slip-On Is Now More Jewelry Than Sneaker](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -1135,29 +1207,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Tom Holland
 
-## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
+## [Teddy Santis Saved His Most Delicious NB Dad Shoes for ALD](https://www.highsnobiety.com/p/aime-leon-dore-new-balance-990v4-where-to-buy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 26 Aug 2024 16:56:59 GMT*
-
-
-## Tom Holland
-
-## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
-
-
-## Tom Holland
-
-## [Nike's Beefed-Up Blazer Shoes Are Ready to Blaze the Trails](https://www.highsnobiety.com/p/nike-blazer-mid-roam-shoes/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 26 Aug 2024 19:45:59 GMT*
+*Published on: Tue, 27 Aug 2024 15:38:33 GMT*
 
 
 ## Tom Holland
@@ -1169,13 +1223,40 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 26 Aug 2024 17:27:55 GMT*
 
 
-## Gucci Mane
+## Tom Holland
+
+## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 16:56:59 GMT*
+
+
+## Tom Holland
 
 ## [Nike's Napoli Sneaker Is Destined To Be a Fan Favorite](https://www.highsnobiety.com/p/nike-air-max-plus-tn-napoli/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Tue, 27 Aug 2024 07:43:17 GMT*
+
+
+## Tom Holland
+
+## [Nike's Beefed-Up Blazer Shoes Are Ready to Blaze the Trails](https://www.highsnobiety.com/p/nike-blazer-mid-roam-shoes/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 19:45:59 GMT*
+
+
+## Tom Holland
+
+## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
 
 
 ## Gucci Mane
@@ -1216,7 +1297,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Gucci Mane
 
-## [Vans’ Classic Slip-On Has Never Looked This Luxe](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
+## [Vans’ Classic Slip-On Is Now More Jewelry Than Sneaker](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -1252,6 +1333,24 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Gucci Mane
 
+## [Teddy Santis Saved His Most Delicious NB Dad Shoes for ALD](https://www.highsnobiety.com/p/aime-leon-dore-new-balance-990v4-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 15:38:33 GMT*
+
+
+## Gucci Mane
+
+## [Shaboozey Dresses Exactly How Shaboozey Sounds](https://www.highsnobiety.com/p/shaboozey-camo-crocs-nyc-outfit/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 17:27:55 GMT*
+
+
+## Gucci Mane
+
 ## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1261,11 +1360,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Gucci Mane
 
-## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
+## [Nike's Napoli Sneaker Is Destined To Be a Fan Favorite](https://www.highsnobiety.com/p/nike-air-max-plus-tn-napoli/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
+*Published on: Tue, 27 Aug 2024 07:43:17 GMT*
 
 
 ## Gucci Mane
@@ -1279,11 +1378,110 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Gucci Mane
 
+## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
+
+
+## Harry Styles
+
+## [Tyler, the Creator's Style Is So Good, His Friends Are Stealing It](https://www.highsnobiety.com/p/tyler-the-creator-shorts-loafers-outfit/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 08:00:45 GMT*
+
+
+## Harry Styles
+
+## [Is HOKA’s GORE-TEX Hybrid Puffer Boot Its Coziest Sneaker Yet?](https://www.highsnobiety.com/p/hoka-kaha-2-frost-moc-gore-tex/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 08:15:41 GMT*
+
+
+## Harry Styles
+
+## [Nike, Yoon Ahn  Naomi Osaka Serve Up Tennis Magic](https://www.highsnobiety.com/p/yoon-ahn-nike-tennis-collab/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 09:00:02 GMT*
+
+
+## Harry Styles
+
+## [Nike's Trusty Dad Shoe Has New Beautifully Rugged Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-roam-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 09:02:00 GMT*
+
+
+## Harry Styles
+
+## [Vans’ Classic Slip-On Is Now More Jewelry Than Sneaker](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 09:07:58 GMT*
+
+
+## Harry Styles
+
+## [Ice Studios' First New Balance Sneaker Is an Ice-Cold Must Already](https://www.highsnobiety.com/p/ice-studios-new-balance-collab/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 10:15:00 GMT*
+
+
+## Harry Styles
+
+## [Nike’s Simple Mule Becomes Fluff-tastic](https://www.highsnobiety.com/p/nike-calm-mule-fluff/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 10:33:52 GMT*
+
+
+## Harry Styles
+
+## [Nike's Skate-Worthy Jordan 4 Sneakers Look Very Pretty in Pink](https://www.highsnobiety.com/p/jordan-4-rm-sneakers-pink-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 14:15:00 GMT*
+
+
+## Harry Styles
+
+## [Teddy Santis Saved His Most Delicious NB Dad Shoes for ALD](https://www.highsnobiety.com/p/aime-leon-dore-new-balance-990v4-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 15:38:33 GMT*
+
+
+## Harry Styles
+
 ## [Shaboozey Dresses Exactly How Shaboozey Sounds](https://www.highsnobiety.com/p/shaboozey-camo-crocs-nyc-outfit/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Mon, 26 Aug 2024 17:27:55 GMT*
+
+
+## Harry Styles
+
+## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 16:56:59 GMT*
 
 
 ## Harry Styles
@@ -1297,96 +1495,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Harry Styles
 
-## [Tyler, the Creator's Style Is So Good, His Friends Are Stealing It](https://www.highsnobiety.com/p/tyler-the-creator-shorts-loafers-outfit/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 08:00:45 GMT*
-
-
-## Harry Styles
-
-## [Is HOKA’s GORE-TEX Hybrid Puffer Boot Its Coziest Sneaker Yet?](https://www.highsnobiety.com/p/hoka-kaha-2-frost-moc-gore-tex/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 08:15:41 GMT*
-
-
-## Harry Styles
-
-## [Nike, Yoon Ahn  Naomi Osaka Serve Up Tennis Magic](https://www.highsnobiety.com/p/yoon-ahn-nike-tennis-collab/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 09:00:02 GMT*
-
-
-## Harry Styles
-
-## [Nike's Trusty Dad Shoe Has New Beautifully Rugged Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-roam-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 09:02:00 GMT*
-
-
-## Harry Styles
-
-## [Vans’ Classic Slip-On Has Never Looked This Luxe](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 09:07:58 GMT*
-
-
-## Harry Styles
-
-## [Ice Studios' First New Balance Sneaker Is an Ice-Cold Must Already](https://www.highsnobiety.com/p/ice-studios-new-balance-collab/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 10:15:00 GMT*
-
-
-## Harry Styles
-
-## [Nike’s Simple Mule Becomes Fluff-tastic](https://www.highsnobiety.com/p/nike-calm-mule-fluff/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 10:33:52 GMT*
-
-
-## Harry Styles
-
-## [Nike's Skate-Worthy Jordan 4 Sneakers Look Very Pretty in Pink](https://www.highsnobiety.com/p/jordan-4-rm-sneakers-pink-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 14:15:00 GMT*
-
-
-## Harry Styles
-
-## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 26 Aug 2024 16:56:59 GMT*
-
-
-## Harry Styles
-
-## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
-
-
-## Harry Styles
-
 ## [Nike's Beefed-Up Blazer Shoes Are Ready to Blaze the Trails](https://www.highsnobiety.com/p/nike-blazer-mid-roam-shoes/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1396,20 +1504,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Harry Styles
 
-## [Shaboozey Dresses Exactly How Shaboozey Sounds](https://www.highsnobiety.com/p/shaboozey-camo-crocs-nyc-outfit/)
+## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 26 Aug 2024 17:27:55 GMT*
-
-
-## Jake Paul
-
-## [Nike's Napoli Sneaker Is Destined To Be a Fan Favorite](https://www.highsnobiety.com/p/nike-air-max-plus-tn-napoli/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 07:43:17 GMT*
+*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
 
 
 ## Jake Paul
@@ -1450,7 +1549,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Jake Paul
 
-## [Vans’ Classic Slip-On Has Never Looked This Luxe](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
+## [Vans’ Classic Slip-On Is Now More Jewelry Than Sneaker](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -1486,29 +1585,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Jake Paul
 
-## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
+## [Teddy Santis Saved His Most Delicious NB Dad Shoes for ALD](https://www.highsnobiety.com/p/aime-leon-dore-new-balance-990v4-where-to-buy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 26 Aug 2024 16:56:59 GMT*
-
-
-## Jake Paul
-
-## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
-
-
-## Jake Paul
-
-## [Nike's Beefed-Up Blazer Shoes Are Ready to Blaze the Trails](https://www.highsnobiety.com/p/nike-blazer-mid-roam-shoes/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 26 Aug 2024 19:45:59 GMT*
+*Published on: Tue, 27 Aug 2024 15:38:33 GMT*
 
 
 ## Jake Paul
@@ -1520,13 +1601,40 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 26 Aug 2024 17:27:55 GMT*
 
 
-## Jameela Jamil
+## Jake Paul
+
+## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 16:56:59 GMT*
+
+
+## Jake Paul
 
 ## [Nike's Napoli Sneaker Is Destined To Be a Fan Favorite](https://www.highsnobiety.com/p/nike-air-max-plus-tn-napoli/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Tue, 27 Aug 2024 07:43:17 GMT*
+
+
+## Jake Paul
+
+## [Nike's Beefed-Up Blazer Shoes Are Ready to Blaze the Trails](https://www.highsnobiety.com/p/nike-blazer-mid-roam-shoes/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 19:45:59 GMT*
+
+
+## Jake Paul
+
+## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
 
 
 ## Jameela Jamil
@@ -1567,7 +1675,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Jameela Jamil
 
-## [Vans’ Classic Slip-On Has Never Looked This Luxe](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
+## [Vans’ Classic Slip-On Is Now More Jewelry Than Sneaker](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -1603,6 +1711,24 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Jameela Jamil
 
+## [Teddy Santis Saved His Most Delicious NB Dad Shoes for ALD](https://www.highsnobiety.com/p/aime-leon-dore-new-balance-990v4-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 15:38:33 GMT*
+
+
+## Jameela Jamil
+
+## [Shaboozey Dresses Exactly How Shaboozey Sounds](https://www.highsnobiety.com/p/shaboozey-camo-crocs-nyc-outfit/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 17:27:55 GMT*
+
+
+## Jameela Jamil
+
 ## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1612,11 +1738,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Jameela Jamil
 
-## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
+## [Nike's Napoli Sneaker Is Destined To Be a Fan Favorite](https://www.highsnobiety.com/p/nike-air-max-plus-tn-napoli/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
+*Published on: Tue, 27 Aug 2024 07:43:17 GMT*
 
 
 ## Jameela Jamil
@@ -1630,11 +1756,110 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Jameela Jamil
 
+## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
+
+
+## Elon Musk
+
+## [Tyler, the Creator's Style Is So Good, His Friends Are Stealing It](https://www.highsnobiety.com/p/tyler-the-creator-shorts-loafers-outfit/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 08:00:45 GMT*
+
+
+## Elon Musk
+
+## [Is HOKA’s GORE-TEX Hybrid Puffer Boot Its Coziest Sneaker Yet?](https://www.highsnobiety.com/p/hoka-kaha-2-frost-moc-gore-tex/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 08:15:41 GMT*
+
+
+## Elon Musk
+
+## [Nike, Yoon Ahn  Naomi Osaka Serve Up Tennis Magic](https://www.highsnobiety.com/p/yoon-ahn-nike-tennis-collab/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 09:00:02 GMT*
+
+
+## Elon Musk
+
+## [Nike's Trusty Dad Shoe Has New Beautifully Rugged Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-roam-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 09:02:00 GMT*
+
+
+## Elon Musk
+
+## [Vans’ Classic Slip-On Is Now More Jewelry Than Sneaker](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 09:07:58 GMT*
+
+
+## Elon Musk
+
+## [Ice Studios' First New Balance Sneaker Is an Ice-Cold Must Already](https://www.highsnobiety.com/p/ice-studios-new-balance-collab/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 10:15:00 GMT*
+
+
+## Elon Musk
+
+## [Nike’s Simple Mule Becomes Fluff-tastic](https://www.highsnobiety.com/p/nike-calm-mule-fluff/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 10:33:52 GMT*
+
+
+## Elon Musk
+
+## [Nike's Skate-Worthy Jordan 4 Sneakers Look Very Pretty in Pink](https://www.highsnobiety.com/p/jordan-4-rm-sneakers-pink-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 14:15:00 GMT*
+
+
+## Elon Musk
+
+## [Teddy Santis Saved His Most Delicious NB Dad Shoes for ALD](https://www.highsnobiety.com/p/aime-leon-dore-new-balance-990v4-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 15:38:33 GMT*
+
+
+## Elon Musk
+
 ## [Shaboozey Dresses Exactly How Shaboozey Sounds](https://www.highsnobiety.com/p/shaboozey-camo-crocs-nyc-outfit/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Mon, 26 Aug 2024 17:27:55 GMT*
+
+
+## Elon Musk
+
+## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 16:56:59 GMT*
 
 
 ## Elon Musk
@@ -1648,96 +1873,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Elon Musk
 
-## [Tyler, the Creator's Style Is So Good, His Friends Are Stealing It](https://www.highsnobiety.com/p/tyler-the-creator-shorts-loafers-outfit/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 08:00:45 GMT*
-
-
-## Elon Musk
-
-## [Is HOKA’s GORE-TEX Hybrid Puffer Boot Its Coziest Sneaker Yet?](https://www.highsnobiety.com/p/hoka-kaha-2-frost-moc-gore-tex/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 08:15:41 GMT*
-
-
-## Elon Musk
-
-## [Nike, Yoon Ahn  Naomi Osaka Serve Up Tennis Magic](https://www.highsnobiety.com/p/yoon-ahn-nike-tennis-collab/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 09:00:02 GMT*
-
-
-## Elon Musk
-
-## [Nike's Trusty Dad Shoe Has New Beautifully Rugged Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-roam-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 09:02:00 GMT*
-
-
-## Elon Musk
-
-## [Vans’ Classic Slip-On Has Never Looked This Luxe](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 09:07:58 GMT*
-
-
-## Elon Musk
-
-## [Ice Studios' First New Balance Sneaker Is an Ice-Cold Must Already](https://www.highsnobiety.com/p/ice-studios-new-balance-collab/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 10:15:00 GMT*
-
-
-## Elon Musk
-
-## [Nike’s Simple Mule Becomes Fluff-tastic](https://www.highsnobiety.com/p/nike-calm-mule-fluff/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 10:33:52 GMT*
-
-
-## Elon Musk
-
-## [Nike's Skate-Worthy Jordan 4 Sneakers Look Very Pretty in Pink](https://www.highsnobiety.com/p/jordan-4-rm-sneakers-pink-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 14:15:00 GMT*
-
-
-## Elon Musk
-
-## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 26 Aug 2024 16:56:59 GMT*
-
-
-## Elon Musk
-
-## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
-
-
-## Elon Musk
-
 ## [Nike's Beefed-Up Blazer Shoes Are Ready to Blaze the Trails](https://www.highsnobiety.com/p/nike-blazer-mid-roam-shoes/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1747,20 +1882,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Elon Musk
 
-## [Shaboozey Dresses Exactly How Shaboozey Sounds](https://www.highsnobiety.com/p/shaboozey-camo-crocs-nyc-outfit/)
+## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 26 Aug 2024 17:27:55 GMT*
-
-
-## Gabrielle Union
-
-## [Nike's Napoli Sneaker Is Destined To Be a Fan Favorite](https://www.highsnobiety.com/p/nike-air-max-plus-tn-napoli/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 07:43:17 GMT*
+*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
 
 
 ## Gabrielle Union
@@ -1801,7 +1927,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Gabrielle Union
 
-## [Vans’ Classic Slip-On Has Never Looked This Luxe](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
+## [Vans’ Classic Slip-On Is Now More Jewelry Than Sneaker](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -1837,29 +1963,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Gabrielle Union
 
-## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
+## [Teddy Santis Saved His Most Delicious NB Dad Shoes for ALD](https://www.highsnobiety.com/p/aime-leon-dore-new-balance-990v4-where-to-buy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 26 Aug 2024 16:56:59 GMT*
-
-
-## Gabrielle Union
-
-## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
-
-
-## Gabrielle Union
-
-## [Nike's Beefed-Up Blazer Shoes Are Ready to Blaze the Trails](https://www.highsnobiety.com/p/nike-blazer-mid-roam-shoes/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 26 Aug 2024 19:45:59 GMT*
+*Published on: Tue, 27 Aug 2024 15:38:33 GMT*
 
 
 ## Gabrielle Union
@@ -1871,13 +1979,40 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 26 Aug 2024 17:27:55 GMT*
 
 
-## Giancarlo Esposito
+## Gabrielle Union
+
+## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 16:56:59 GMT*
+
+
+## Gabrielle Union
 
 ## [Nike's Napoli Sneaker Is Destined To Be a Fan Favorite](https://www.highsnobiety.com/p/nike-air-max-plus-tn-napoli/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Tue, 27 Aug 2024 07:43:17 GMT*
+
+
+## Gabrielle Union
+
+## [Nike's Beefed-Up Blazer Shoes Are Ready to Blaze the Trails](https://www.highsnobiety.com/p/nike-blazer-mid-roam-shoes/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 19:45:59 GMT*
+
+
+## Gabrielle Union
+
+## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
 
 
 ## Giancarlo Esposito
@@ -1918,7 +2053,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Giancarlo Esposito
 
-## [Vans’ Classic Slip-On Has Never Looked This Luxe](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
+## [Vans’ Classic Slip-On Is Now More Jewelry Than Sneaker](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -1954,6 +2089,24 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Giancarlo Esposito
 
+## [Teddy Santis Saved His Most Delicious NB Dad Shoes for ALD](https://www.highsnobiety.com/p/aime-leon-dore-new-balance-990v4-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 15:38:33 GMT*
+
+
+## Giancarlo Esposito
+
+## [Shaboozey Dresses Exactly How Shaboozey Sounds](https://www.highsnobiety.com/p/shaboozey-camo-crocs-nyc-outfit/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 17:27:55 GMT*
+
+
+## Giancarlo Esposito
+
 ## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1963,11 +2116,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Giancarlo Esposito
 
-## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
+## [Nike's Napoli Sneaker Is Destined To Be a Fan Favorite](https://www.highsnobiety.com/p/nike-air-max-plus-tn-napoli/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
+*Published on: Tue, 27 Aug 2024 07:43:17 GMT*
 
 
 ## Giancarlo Esposito
@@ -1981,11 +2134,110 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Giancarlo Esposito
 
+## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
+
+
+## Gillian Jacobs
+
+## [Tyler, the Creator's Style Is So Good, His Friends Are Stealing It](https://www.highsnobiety.com/p/tyler-the-creator-shorts-loafers-outfit/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 08:00:45 GMT*
+
+
+## Gillian Jacobs
+
+## [Is HOKA’s GORE-TEX Hybrid Puffer Boot Its Coziest Sneaker Yet?](https://www.highsnobiety.com/p/hoka-kaha-2-frost-moc-gore-tex/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 08:15:41 GMT*
+
+
+## Gillian Jacobs
+
+## [Nike, Yoon Ahn  Naomi Osaka Serve Up Tennis Magic](https://www.highsnobiety.com/p/yoon-ahn-nike-tennis-collab/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 09:00:02 GMT*
+
+
+## Gillian Jacobs
+
+## [Nike's Trusty Dad Shoe Has New Beautifully Rugged Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-roam-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 09:02:00 GMT*
+
+
+## Gillian Jacobs
+
+## [Vans’ Classic Slip-On Is Now More Jewelry Than Sneaker](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 09:07:58 GMT*
+
+
+## Gillian Jacobs
+
+## [Ice Studios' First New Balance Sneaker Is an Ice-Cold Must Already](https://www.highsnobiety.com/p/ice-studios-new-balance-collab/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 10:15:00 GMT*
+
+
+## Gillian Jacobs
+
+## [Nike’s Simple Mule Becomes Fluff-tastic](https://www.highsnobiety.com/p/nike-calm-mule-fluff/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 10:33:52 GMT*
+
+
+## Gillian Jacobs
+
+## [Nike's Skate-Worthy Jordan 4 Sneakers Look Very Pretty in Pink](https://www.highsnobiety.com/p/jordan-4-rm-sneakers-pink-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 14:15:00 GMT*
+
+
+## Gillian Jacobs
+
+## [Teddy Santis Saved His Most Delicious NB Dad Shoes for ALD](https://www.highsnobiety.com/p/aime-leon-dore-new-balance-990v4-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 15:38:33 GMT*
+
+
+## Gillian Jacobs
+
 ## [Shaboozey Dresses Exactly How Shaboozey Sounds](https://www.highsnobiety.com/p/shaboozey-camo-crocs-nyc-outfit/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Mon, 26 Aug 2024 17:27:55 GMT*
+
+
+## Gillian Jacobs
+
+## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 16:56:59 GMT*
 
 
 ## Gillian Jacobs
@@ -1999,96 +2251,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Gillian Jacobs
 
-## [Tyler, the Creator's Style Is So Good, His Friends Are Stealing It](https://www.highsnobiety.com/p/tyler-the-creator-shorts-loafers-outfit/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 08:00:45 GMT*
-
-
-## Gillian Jacobs
-
-## [Is HOKA’s GORE-TEX Hybrid Puffer Boot Its Coziest Sneaker Yet?](https://www.highsnobiety.com/p/hoka-kaha-2-frost-moc-gore-tex/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 08:15:41 GMT*
-
-
-## Gillian Jacobs
-
-## [Nike, Yoon Ahn  Naomi Osaka Serve Up Tennis Magic](https://www.highsnobiety.com/p/yoon-ahn-nike-tennis-collab/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 09:00:02 GMT*
-
-
-## Gillian Jacobs
-
-## [Nike's Trusty Dad Shoe Has New Beautifully Rugged Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-roam-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 09:02:00 GMT*
-
-
-## Gillian Jacobs
-
-## [Vans’ Classic Slip-On Has Never Looked This Luxe](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 09:07:58 GMT*
-
-
-## Gillian Jacobs
-
-## [Ice Studios' First New Balance Sneaker Is an Ice-Cold Must Already](https://www.highsnobiety.com/p/ice-studios-new-balance-collab/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 10:15:00 GMT*
-
-
-## Gillian Jacobs
-
-## [Nike’s Simple Mule Becomes Fluff-tastic](https://www.highsnobiety.com/p/nike-calm-mule-fluff/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 10:33:52 GMT*
-
-
-## Gillian Jacobs
-
-## [Nike's Skate-Worthy Jordan 4 Sneakers Look Very Pretty in Pink](https://www.highsnobiety.com/p/jordan-4-rm-sneakers-pink-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 14:15:00 GMT*
-
-
-## Gillian Jacobs
-
-## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 26 Aug 2024 16:56:59 GMT*
-
-
-## Gillian Jacobs
-
-## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
-
-
-## Gillian Jacobs
-
 ## [Nike's Beefed-Up Blazer Shoes Are Ready to Blaze the Trails](https://www.highsnobiety.com/p/nike-blazer-mid-roam-shoes/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2098,20 +2260,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Gillian Jacobs
 
-## [Shaboozey Dresses Exactly How Shaboozey Sounds](https://www.highsnobiety.com/p/shaboozey-camo-crocs-nyc-outfit/)
+## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 26 Aug 2024 17:27:55 GMT*
-
-
-## Jason Mantzoukas
-
-## [Nike's Napoli Sneaker Is Destined To Be a Fan Favorite](https://www.highsnobiety.com/p/nike-air-max-plus-tn-napoli/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 07:43:17 GMT*
+*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
 
 
 ## Jason Mantzoukas
@@ -2152,7 +2305,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Jason Mantzoukas
 
-## [Vans’ Classic Slip-On Has Never Looked This Luxe](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
+## [Vans’ Classic Slip-On Is Now More Jewelry Than Sneaker](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -2188,29 +2341,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Jason Mantzoukas
 
-## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
+## [Teddy Santis Saved His Most Delicious NB Dad Shoes for ALD](https://www.highsnobiety.com/p/aime-leon-dore-new-balance-990v4-where-to-buy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 26 Aug 2024 16:56:59 GMT*
-
-
-## Jason Mantzoukas
-
-## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
-
-
-## Jason Mantzoukas
-
-## [Nike's Beefed-Up Blazer Shoes Are Ready to Blaze the Trails](https://www.highsnobiety.com/p/nike-blazer-mid-roam-shoes/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 26 Aug 2024 19:45:59 GMT*
+*Published on: Tue, 27 Aug 2024 15:38:33 GMT*
 
 
 ## Jason Mantzoukas
@@ -2222,13 +2357,40 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 26 Aug 2024 17:27:55 GMT*
 
 
-## JB Smoove
+## Jason Mantzoukas
+
+## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 16:56:59 GMT*
+
+
+## Jason Mantzoukas
 
 ## [Nike's Napoli Sneaker Is Destined To Be a Fan Favorite](https://www.highsnobiety.com/p/nike-air-max-plus-tn-napoli/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Tue, 27 Aug 2024 07:43:17 GMT*
+
+
+## Jason Mantzoukas
+
+## [Nike's Beefed-Up Blazer Shoes Are Ready to Blaze the Trails](https://www.highsnobiety.com/p/nike-blazer-mid-roam-shoes/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 19:45:59 GMT*
+
+
+## Jason Mantzoukas
+
+## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
 
 
 ## JB Smoove
@@ -2269,7 +2431,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## JB Smoove
 
-## [Vans’ Classic Slip-On Has Never Looked This Luxe](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
+## [Vans’ Classic Slip-On Is Now More Jewelry Than Sneaker](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -2305,6 +2467,24 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## JB Smoove
 
+## [Teddy Santis Saved His Most Delicious NB Dad Shoes for ALD](https://www.highsnobiety.com/p/aime-leon-dore-new-balance-990v4-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 15:38:33 GMT*
+
+
+## JB Smoove
+
+## [Shaboozey Dresses Exactly How Shaboozey Sounds](https://www.highsnobiety.com/p/shaboozey-camo-crocs-nyc-outfit/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 17:27:55 GMT*
+
+
+## JB Smoove
+
 ## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2314,11 +2494,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## JB Smoove
 
-## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
+## [Nike's Napoli Sneaker Is Destined To Be a Fan Favorite](https://www.highsnobiety.com/p/nike-air-max-plus-tn-napoli/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
+*Published on: Tue, 27 Aug 2024 07:43:17 GMT*
 
 
 ## JB Smoove
@@ -2332,11 +2512,110 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## JB Smoove
 
+## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
+
+
+## Madison Pettis
+
+## [Tyler, the Creator's Style Is So Good, His Friends Are Stealing It](https://www.highsnobiety.com/p/tyler-the-creator-shorts-loafers-outfit/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 08:00:45 GMT*
+
+
+## Madison Pettis
+
+## [Is HOKA’s GORE-TEX Hybrid Puffer Boot Its Coziest Sneaker Yet?](https://www.highsnobiety.com/p/hoka-kaha-2-frost-moc-gore-tex/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 08:15:41 GMT*
+
+
+## Madison Pettis
+
+## [Nike, Yoon Ahn  Naomi Osaka Serve Up Tennis Magic](https://www.highsnobiety.com/p/yoon-ahn-nike-tennis-collab/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 09:00:02 GMT*
+
+
+## Madison Pettis
+
+## [Nike's Trusty Dad Shoe Has New Beautifully Rugged Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-roam-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 09:02:00 GMT*
+
+
+## Madison Pettis
+
+## [Vans’ Classic Slip-On Is Now More Jewelry Than Sneaker](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 09:07:58 GMT*
+
+
+## Madison Pettis
+
+## [Ice Studios' First New Balance Sneaker Is an Ice-Cold Must Already](https://www.highsnobiety.com/p/ice-studios-new-balance-collab/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 10:15:00 GMT*
+
+
+## Madison Pettis
+
+## [Nike’s Simple Mule Becomes Fluff-tastic](https://www.highsnobiety.com/p/nike-calm-mule-fluff/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 10:33:52 GMT*
+
+
+## Madison Pettis
+
+## [Nike's Skate-Worthy Jordan 4 Sneakers Look Very Pretty in Pink](https://www.highsnobiety.com/p/jordan-4-rm-sneakers-pink-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 14:15:00 GMT*
+
+
+## Madison Pettis
+
+## [Teddy Santis Saved His Most Delicious NB Dad Shoes for ALD](https://www.highsnobiety.com/p/aime-leon-dore-new-balance-990v4-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 15:38:33 GMT*
+
+
+## Madison Pettis
+
 ## [Shaboozey Dresses Exactly How Shaboozey Sounds](https://www.highsnobiety.com/p/shaboozey-camo-crocs-nyc-outfit/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Mon, 26 Aug 2024 17:27:55 GMT*
+
+
+## Madison Pettis
+
+## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 16:56:59 GMT*
 
 
 ## Madison Pettis
@@ -2350,96 +2629,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Madison Pettis
 
-## [Tyler, the Creator's Style Is So Good, His Friends Are Stealing It](https://www.highsnobiety.com/p/tyler-the-creator-shorts-loafers-outfit/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 08:00:45 GMT*
-
-
-## Madison Pettis
-
-## [Is HOKA’s GORE-TEX Hybrid Puffer Boot Its Coziest Sneaker Yet?](https://www.highsnobiety.com/p/hoka-kaha-2-frost-moc-gore-tex/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 08:15:41 GMT*
-
-
-## Madison Pettis
-
-## [Nike, Yoon Ahn  Naomi Osaka Serve Up Tennis Magic](https://www.highsnobiety.com/p/yoon-ahn-nike-tennis-collab/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 09:00:02 GMT*
-
-
-## Madison Pettis
-
-## [Nike's Trusty Dad Shoe Has New Beautifully Rugged Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-roam-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 09:02:00 GMT*
-
-
-## Madison Pettis
-
-## [Vans’ Classic Slip-On Has Never Looked This Luxe](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 09:07:58 GMT*
-
-
-## Madison Pettis
-
-## [Ice Studios' First New Balance Sneaker Is an Ice-Cold Must Already](https://www.highsnobiety.com/p/ice-studios-new-balance-collab/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 10:15:00 GMT*
-
-
-## Madison Pettis
-
-## [Nike’s Simple Mule Becomes Fluff-tastic](https://www.highsnobiety.com/p/nike-calm-mule-fluff/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 10:33:52 GMT*
-
-
-## Madison Pettis
-
-## [Nike's Skate-Worthy Jordan 4 Sneakers Look Very Pretty in Pink](https://www.highsnobiety.com/p/jordan-4-rm-sneakers-pink-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 14:15:00 GMT*
-
-
-## Madison Pettis
-
-## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 26 Aug 2024 16:56:59 GMT*
-
-
-## Madison Pettis
-
-## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
-
-
-## Madison Pettis
-
 ## [Nike's Beefed-Up Blazer Shoes Are Ready to Blaze the Trails](https://www.highsnobiety.com/p/nike-blazer-mid-roam-shoes/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2449,20 +2638,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Madison Pettis
 
-## [Shaboozey Dresses Exactly How Shaboozey Sounds](https://www.highsnobiety.com/p/shaboozey-camo-crocs-nyc-outfit/)
+## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 26 Aug 2024 17:27:55 GMT*
-
-
-## Austin Butler
-
-## [Nike's Napoli Sneaker Is Destined To Be a Fan Favorite](https://www.highsnobiety.com/p/nike-air-max-plus-tn-napoli/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 07:43:17 GMT*
+*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
 
 
 ## Austin Butler
@@ -2503,7 +2683,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Austin Butler
 
-## [Vans’ Classic Slip-On Has Never Looked This Luxe](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
+## [Vans’ Classic Slip-On Is Now More Jewelry Than Sneaker](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -2539,29 +2719,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Austin Butler
 
-## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
+## [Teddy Santis Saved His Most Delicious NB Dad Shoes for ALD](https://www.highsnobiety.com/p/aime-leon-dore-new-balance-990v4-where-to-buy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 26 Aug 2024 16:56:59 GMT*
-
-
-## Austin Butler
-
-## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
-
-
-## Austin Butler
-
-## [Nike's Beefed-Up Blazer Shoes Are Ready to Blaze the Trails](https://www.highsnobiety.com/p/nike-blazer-mid-roam-shoes/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 26 Aug 2024 19:45:59 GMT*
+*Published on: Tue, 27 Aug 2024 15:38:33 GMT*
 
 
 ## Austin Butler
@@ -2573,13 +2735,40 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 26 Aug 2024 17:27:55 GMT*
 
 
-## Mark Zuckerberg
+## Austin Butler
+
+## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 16:56:59 GMT*
+
+
+## Austin Butler
 
 ## [Nike's Napoli Sneaker Is Destined To Be a Fan Favorite](https://www.highsnobiety.com/p/nike-air-max-plus-tn-napoli/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Tue, 27 Aug 2024 07:43:17 GMT*
+
+
+## Austin Butler
+
+## [Nike's Beefed-Up Blazer Shoes Are Ready to Blaze the Trails](https://www.highsnobiety.com/p/nike-blazer-mid-roam-shoes/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 19:45:59 GMT*
+
+
+## Austin Butler
+
+## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
 
 
 ## Mark Zuckerberg
@@ -2620,7 +2809,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Mark Zuckerberg
 
-## [Vans’ Classic Slip-On Has Never Looked This Luxe](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
+## [Vans’ Classic Slip-On Is Now More Jewelry Than Sneaker](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -2656,6 +2845,24 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Mark Zuckerberg
 
+## [Teddy Santis Saved His Most Delicious NB Dad Shoes for ALD](https://www.highsnobiety.com/p/aime-leon-dore-new-balance-990v4-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 15:38:33 GMT*
+
+
+## Mark Zuckerberg
+
+## [Shaboozey Dresses Exactly How Shaboozey Sounds](https://www.highsnobiety.com/p/shaboozey-camo-crocs-nyc-outfit/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 17:27:55 GMT*
+
+
+## Mark Zuckerberg
+
 ## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2665,11 +2872,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Mark Zuckerberg
 
-## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
+## [Nike's Napoli Sneaker Is Destined To Be a Fan Favorite](https://www.highsnobiety.com/p/nike-air-max-plus-tn-napoli/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
+*Published on: Tue, 27 Aug 2024 07:43:17 GMT*
 
 
 ## Mark Zuckerberg
@@ -2683,11 +2890,110 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Mark Zuckerberg
 
+## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
+
+
+## Ariana Grande
+
+## [Tyler, the Creator's Style Is So Good, His Friends Are Stealing It](https://www.highsnobiety.com/p/tyler-the-creator-shorts-loafers-outfit/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 08:00:45 GMT*
+
+
+## Ariana Grande
+
+## [Is HOKA’s GORE-TEX Hybrid Puffer Boot Its Coziest Sneaker Yet?](https://www.highsnobiety.com/p/hoka-kaha-2-frost-moc-gore-tex/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 08:15:41 GMT*
+
+
+## Ariana Grande
+
+## [Nike, Yoon Ahn  Naomi Osaka Serve Up Tennis Magic](https://www.highsnobiety.com/p/yoon-ahn-nike-tennis-collab/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 09:00:02 GMT*
+
+
+## Ariana Grande
+
+## [Nike's Trusty Dad Shoe Has New Beautifully Rugged Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-roam-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 09:02:00 GMT*
+
+
+## Ariana Grande
+
+## [Vans’ Classic Slip-On Is Now More Jewelry Than Sneaker](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 09:07:58 GMT*
+
+
+## Ariana Grande
+
+## [Ice Studios' First New Balance Sneaker Is an Ice-Cold Must Already](https://www.highsnobiety.com/p/ice-studios-new-balance-collab/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 10:15:00 GMT*
+
+
+## Ariana Grande
+
+## [Nike’s Simple Mule Becomes Fluff-tastic](https://www.highsnobiety.com/p/nike-calm-mule-fluff/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 10:33:52 GMT*
+
+
+## Ariana Grande
+
+## [Nike's Skate-Worthy Jordan 4 Sneakers Look Very Pretty in Pink](https://www.highsnobiety.com/p/jordan-4-rm-sneakers-pink-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 14:15:00 GMT*
+
+
+## Ariana Grande
+
+## [Teddy Santis Saved His Most Delicious NB Dad Shoes for ALD](https://www.highsnobiety.com/p/aime-leon-dore-new-balance-990v4-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 15:38:33 GMT*
+
+
+## Ariana Grande
+
 ## [Shaboozey Dresses Exactly How Shaboozey Sounds](https://www.highsnobiety.com/p/shaboozey-camo-crocs-nyc-outfit/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Mon, 26 Aug 2024 17:27:55 GMT*
+
+
+## Ariana Grande
+
+## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 16:56:59 GMT*
 
 
 ## Ariana Grande
@@ -2701,96 +3007,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Ariana Grande
 
-## [Tyler, the Creator's Style Is So Good, His Friends Are Stealing It](https://www.highsnobiety.com/p/tyler-the-creator-shorts-loafers-outfit/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 08:00:45 GMT*
-
-
-## Ariana Grande
-
-## [Is HOKA’s GORE-TEX Hybrid Puffer Boot Its Coziest Sneaker Yet?](https://www.highsnobiety.com/p/hoka-kaha-2-frost-moc-gore-tex/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 08:15:41 GMT*
-
-
-## Ariana Grande
-
-## [Nike, Yoon Ahn  Naomi Osaka Serve Up Tennis Magic](https://www.highsnobiety.com/p/yoon-ahn-nike-tennis-collab/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 09:00:02 GMT*
-
-
-## Ariana Grande
-
-## [Nike's Trusty Dad Shoe Has New Beautifully Rugged Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-roam-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 09:02:00 GMT*
-
-
-## Ariana Grande
-
-## [Vans’ Classic Slip-On Has Never Looked This Luxe](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 09:07:58 GMT*
-
-
-## Ariana Grande
-
-## [Ice Studios' First New Balance Sneaker Is an Ice-Cold Must Already](https://www.highsnobiety.com/p/ice-studios-new-balance-collab/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 10:15:00 GMT*
-
-
-## Ariana Grande
-
-## [Nike’s Simple Mule Becomes Fluff-tastic](https://www.highsnobiety.com/p/nike-calm-mule-fluff/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 10:33:52 GMT*
-
-
-## Ariana Grande
-
-## [Nike's Skate-Worthy Jordan 4 Sneakers Look Very Pretty in Pink](https://www.highsnobiety.com/p/jordan-4-rm-sneakers-pink-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 14:15:00 GMT*
-
-
-## Ariana Grande
-
-## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 26 Aug 2024 16:56:59 GMT*
-
-
-## Ariana Grande
-
-## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
-
-
-## Ariana Grande
-
 ## [Nike's Beefed-Up Blazer Shoes Are Ready to Blaze the Trails](https://www.highsnobiety.com/p/nike-blazer-mid-roam-shoes/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2800,20 +3016,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Ariana Grande
 
-## [Shaboozey Dresses Exactly How Shaboozey Sounds](https://www.highsnobiety.com/p/shaboozey-camo-crocs-nyc-outfit/)
+## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 26 Aug 2024 17:27:55 GMT*
-
-
-## Livvy Dunne
-
-## [Nike's Napoli Sneaker Is Destined To Be a Fan Favorite](https://www.highsnobiety.com/p/nike-air-max-plus-tn-napoli/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 07:43:17 GMT*
+*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
 
 
 ## Livvy Dunne
@@ -2854,7 +3061,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Livvy Dunne
 
-## [Vans’ Classic Slip-On Has Never Looked This Luxe](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
+## [Vans’ Classic Slip-On Is Now More Jewelry Than Sneaker](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -2890,29 +3097,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Livvy Dunne
 
-## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
+## [Teddy Santis Saved His Most Delicious NB Dad Shoes for ALD](https://www.highsnobiety.com/p/aime-leon-dore-new-balance-990v4-where-to-buy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 26 Aug 2024 16:56:59 GMT*
-
-
-## Livvy Dunne
-
-## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
-
-
-## Livvy Dunne
-
-## [Nike's Beefed-Up Blazer Shoes Are Ready to Blaze the Trails](https://www.highsnobiety.com/p/nike-blazer-mid-roam-shoes/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 26 Aug 2024 19:45:59 GMT*
+*Published on: Tue, 27 Aug 2024 15:38:33 GMT*
 
 
 ## Livvy Dunne
@@ -2924,13 +3113,40 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 26 Aug 2024 17:27:55 GMT*
 
 
-## Ali Wong
+## Livvy Dunne
+
+## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 16:56:59 GMT*
+
+
+## Livvy Dunne
 
 ## [Nike's Napoli Sneaker Is Destined To Be a Fan Favorite](https://www.highsnobiety.com/p/nike-air-max-plus-tn-napoli/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Tue, 27 Aug 2024 07:43:17 GMT*
+
+
+## Livvy Dunne
+
+## [Nike's Beefed-Up Blazer Shoes Are Ready to Blaze the Trails](https://www.highsnobiety.com/p/nike-blazer-mid-roam-shoes/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 19:45:59 GMT*
+
+
+## Livvy Dunne
+
+## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
 
 
 ## Ali Wong
@@ -2971,7 +3187,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Ali Wong
 
-## [Vans’ Classic Slip-On Has Never Looked This Luxe](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
+## [Vans’ Classic Slip-On Is Now More Jewelry Than Sneaker](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -3007,6 +3223,24 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Ali Wong
 
+## [Teddy Santis Saved His Most Delicious NB Dad Shoes for ALD](https://www.highsnobiety.com/p/aime-leon-dore-new-balance-990v4-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 15:38:33 GMT*
+
+
+## Ali Wong
+
+## [Shaboozey Dresses Exactly How Shaboozey Sounds](https://www.highsnobiety.com/p/shaboozey-camo-crocs-nyc-outfit/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 17:27:55 GMT*
+
+
+## Ali Wong
+
 ## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3016,11 +3250,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Ali Wong
 
-## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
+## [Nike's Napoli Sneaker Is Destined To Be a Fan Favorite](https://www.highsnobiety.com/p/nike-air-max-plus-tn-napoli/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
+*Published on: Tue, 27 Aug 2024 07:43:17 GMT*
 
 
 ## Ali Wong
@@ -3034,11 +3268,110 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Ali Wong
 
+## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
+
+
+## Lizzo
+
+## [Tyler, the Creator's Style Is So Good, His Friends Are Stealing It](https://www.highsnobiety.com/p/tyler-the-creator-shorts-loafers-outfit/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 08:00:45 GMT*
+
+
+## Lizzo
+
+## [Is HOKA’s GORE-TEX Hybrid Puffer Boot Its Coziest Sneaker Yet?](https://www.highsnobiety.com/p/hoka-kaha-2-frost-moc-gore-tex/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 08:15:41 GMT*
+
+
+## Lizzo
+
+## [Nike, Yoon Ahn  Naomi Osaka Serve Up Tennis Magic](https://www.highsnobiety.com/p/yoon-ahn-nike-tennis-collab/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 09:00:02 GMT*
+
+
+## Lizzo
+
+## [Nike's Trusty Dad Shoe Has New Beautifully Rugged Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-roam-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 09:02:00 GMT*
+
+
+## Lizzo
+
+## [Vans’ Classic Slip-On Is Now More Jewelry Than Sneaker](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 09:07:58 GMT*
+
+
+## Lizzo
+
+## [Ice Studios' First New Balance Sneaker Is an Ice-Cold Must Already](https://www.highsnobiety.com/p/ice-studios-new-balance-collab/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 10:15:00 GMT*
+
+
+## Lizzo
+
+## [Nike’s Simple Mule Becomes Fluff-tastic](https://www.highsnobiety.com/p/nike-calm-mule-fluff/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 10:33:52 GMT*
+
+
+## Lizzo
+
+## [Nike's Skate-Worthy Jordan 4 Sneakers Look Very Pretty in Pink](https://www.highsnobiety.com/p/jordan-4-rm-sneakers-pink-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 14:15:00 GMT*
+
+
+## Lizzo
+
+## [Teddy Santis Saved His Most Delicious NB Dad Shoes for ALD](https://www.highsnobiety.com/p/aime-leon-dore-new-balance-990v4-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 15:38:33 GMT*
+
+
+## Lizzo
+
 ## [Shaboozey Dresses Exactly How Shaboozey Sounds](https://www.highsnobiety.com/p/shaboozey-camo-crocs-nyc-outfit/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Mon, 26 Aug 2024 17:27:55 GMT*
+
+
+## Lizzo
+
+## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 16:56:59 GMT*
 
 
 ## Lizzo
@@ -3052,96 +3385,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Lizzo
 
-## [Tyler, the Creator's Style Is So Good, His Friends Are Stealing It](https://www.highsnobiety.com/p/tyler-the-creator-shorts-loafers-outfit/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 08:00:45 GMT*
-
-
-## Lizzo
-
-## [Is HOKA’s GORE-TEX Hybrid Puffer Boot Its Coziest Sneaker Yet?](https://www.highsnobiety.com/p/hoka-kaha-2-frost-moc-gore-tex/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 08:15:41 GMT*
-
-
-## Lizzo
-
-## [Nike, Yoon Ahn  Naomi Osaka Serve Up Tennis Magic](https://www.highsnobiety.com/p/yoon-ahn-nike-tennis-collab/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 09:00:02 GMT*
-
-
-## Lizzo
-
-## [Nike's Trusty Dad Shoe Has New Beautifully Rugged Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-roam-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 09:02:00 GMT*
-
-
-## Lizzo
-
-## [Vans’ Classic Slip-On Has Never Looked This Luxe](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 09:07:58 GMT*
-
-
-## Lizzo
-
-## [Ice Studios' First New Balance Sneaker Is an Ice-Cold Must Already](https://www.highsnobiety.com/p/ice-studios-new-balance-collab/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 10:15:00 GMT*
-
-
-## Lizzo
-
-## [Nike’s Simple Mule Becomes Fluff-tastic](https://www.highsnobiety.com/p/nike-calm-mule-fluff/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 10:33:52 GMT*
-
-
-## Lizzo
-
-## [Nike's Skate-Worthy Jordan 4 Sneakers Look Very Pretty in Pink](https://www.highsnobiety.com/p/jordan-4-rm-sneakers-pink-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 14:15:00 GMT*
-
-
-## Lizzo
-
-## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 26 Aug 2024 16:56:59 GMT*
-
-
-## Lizzo
-
-## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
-
-
-## Lizzo
-
 ## [Nike's Beefed-Up Blazer Shoes Are Ready to Blaze the Trails](https://www.highsnobiety.com/p/nike-blazer-mid-roam-shoes/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3151,20 +3394,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Lizzo
 
-## [Shaboozey Dresses Exactly How Shaboozey Sounds](https://www.highsnobiety.com/p/shaboozey-camo-crocs-nyc-outfit/)
+## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 26 Aug 2024 17:27:55 GMT*
-
-
-## Alison Brie
-
-## [Nike's Napoli Sneaker Is Destined To Be a Fan Favorite](https://www.highsnobiety.com/p/nike-air-max-plus-tn-napoli/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 07:43:17 GMT*
+*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
 
 
 ## Alison Brie
@@ -3205,7 +3439,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Alison Brie
 
-## [Vans’ Classic Slip-On Has Never Looked This Luxe](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
+## [Vans’ Classic Slip-On Is Now More Jewelry Than Sneaker](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -3241,29 +3475,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Alison Brie
 
-## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
+## [Teddy Santis Saved His Most Delicious NB Dad Shoes for ALD](https://www.highsnobiety.com/p/aime-leon-dore-new-balance-990v4-where-to-buy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 26 Aug 2024 16:56:59 GMT*
-
-
-## Alison Brie
-
-## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
-
-
-## Alison Brie
-
-## [Nike's Beefed-Up Blazer Shoes Are Ready to Blaze the Trails](https://www.highsnobiety.com/p/nike-blazer-mid-roam-shoes/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 26 Aug 2024 19:45:59 GMT*
+*Published on: Tue, 27 Aug 2024 15:38:33 GMT*
 
 
 ## Alison Brie
@@ -3275,13 +3491,40 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 26 Aug 2024 17:27:55 GMT*
 
 
-## Lil Wayne
+## Alison Brie
+
+## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 16:56:59 GMT*
+
+
+## Alison Brie
 
 ## [Nike's Napoli Sneaker Is Destined To Be a Fan Favorite](https://www.highsnobiety.com/p/nike-air-max-plus-tn-napoli/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Tue, 27 Aug 2024 07:43:17 GMT*
+
+
+## Alison Brie
+
+## [Nike's Beefed-Up Blazer Shoes Are Ready to Blaze the Trails](https://www.highsnobiety.com/p/nike-blazer-mid-roam-shoes/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 19:45:59 GMT*
+
+
+## Alison Brie
+
+## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
 
 
 ## Lil Wayne
@@ -3322,7 +3565,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Lil Wayne
 
-## [Vans’ Classic Slip-On Has Never Looked This Luxe](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
+## [Vans’ Classic Slip-On Is Now More Jewelry Than Sneaker](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -3358,6 +3601,24 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Lil Wayne
 
+## [Teddy Santis Saved His Most Delicious NB Dad Shoes for ALD](https://www.highsnobiety.com/p/aime-leon-dore-new-balance-990v4-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 15:38:33 GMT*
+
+
+## Lil Wayne
+
+## [Shaboozey Dresses Exactly How Shaboozey Sounds](https://www.highsnobiety.com/p/shaboozey-camo-crocs-nyc-outfit/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 17:27:55 GMT*
+
+
+## Lil Wayne
+
 ## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3367,11 +3628,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Lil Wayne
 
-## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
+## [Nike's Napoli Sneaker Is Destined To Be a Fan Favorite](https://www.highsnobiety.com/p/nike-air-max-plus-tn-napoli/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
+*Published on: Tue, 27 Aug 2024 07:43:17 GMT*
 
 
 ## Lil Wayne
@@ -3385,11 +3646,110 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Lil Wayne
 
+## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
+
+
+## Adele
+
+## [Tyler, the Creator's Style Is So Good, His Friends Are Stealing It](https://www.highsnobiety.com/p/tyler-the-creator-shorts-loafers-outfit/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 08:00:45 GMT*
+
+
+## Adele
+
+## [Is HOKA’s GORE-TEX Hybrid Puffer Boot Its Coziest Sneaker Yet?](https://www.highsnobiety.com/p/hoka-kaha-2-frost-moc-gore-tex/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 08:15:41 GMT*
+
+
+## Adele
+
+## [Nike, Yoon Ahn  Naomi Osaka Serve Up Tennis Magic](https://www.highsnobiety.com/p/yoon-ahn-nike-tennis-collab/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 09:00:02 GMT*
+
+
+## Adele
+
+## [Nike's Trusty Dad Shoe Has New Beautifully Rugged Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-roam-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 09:02:00 GMT*
+
+
+## Adele
+
+## [Vans’ Classic Slip-On Is Now More Jewelry Than Sneaker](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 09:07:58 GMT*
+
+
+## Adele
+
+## [Ice Studios' First New Balance Sneaker Is an Ice-Cold Must Already](https://www.highsnobiety.com/p/ice-studios-new-balance-collab/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 10:15:00 GMT*
+
+
+## Adele
+
+## [Nike’s Simple Mule Becomes Fluff-tastic](https://www.highsnobiety.com/p/nike-calm-mule-fluff/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 10:33:52 GMT*
+
+
+## Adele
+
+## [Nike's Skate-Worthy Jordan 4 Sneakers Look Very Pretty in Pink](https://www.highsnobiety.com/p/jordan-4-rm-sneakers-pink-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 14:15:00 GMT*
+
+
+## Adele
+
+## [Teddy Santis Saved His Most Delicious NB Dad Shoes for ALD](https://www.highsnobiety.com/p/aime-leon-dore-new-balance-990v4-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 15:38:33 GMT*
+
+
+## Adele
+
 ## [Shaboozey Dresses Exactly How Shaboozey Sounds](https://www.highsnobiety.com/p/shaboozey-camo-crocs-nyc-outfit/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Mon, 26 Aug 2024 17:27:55 GMT*
+
+
+## Adele
+
+## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 16:56:59 GMT*
 
 
 ## Adele
@@ -3403,96 +3763,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Adele
 
-## [Tyler, the Creator's Style Is So Good, His Friends Are Stealing It](https://www.highsnobiety.com/p/tyler-the-creator-shorts-loafers-outfit/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 08:00:45 GMT*
-
-
-## Adele
-
-## [Is HOKA’s GORE-TEX Hybrid Puffer Boot Its Coziest Sneaker Yet?](https://www.highsnobiety.com/p/hoka-kaha-2-frost-moc-gore-tex/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 08:15:41 GMT*
-
-
-## Adele
-
-## [Nike, Yoon Ahn  Naomi Osaka Serve Up Tennis Magic](https://www.highsnobiety.com/p/yoon-ahn-nike-tennis-collab/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 09:00:02 GMT*
-
-
-## Adele
-
-## [Nike's Trusty Dad Shoe Has New Beautifully Rugged Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-roam-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 09:02:00 GMT*
-
-
-## Adele
-
-## [Vans’ Classic Slip-On Has Never Looked This Luxe](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 09:07:58 GMT*
-
-
-## Adele
-
-## [Ice Studios' First New Balance Sneaker Is an Ice-Cold Must Already](https://www.highsnobiety.com/p/ice-studios-new-balance-collab/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 10:15:00 GMT*
-
-
-## Adele
-
-## [Nike’s Simple Mule Becomes Fluff-tastic](https://www.highsnobiety.com/p/nike-calm-mule-fluff/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 10:33:52 GMT*
-
-
-## Adele
-
-## [Nike's Skate-Worthy Jordan 4 Sneakers Look Very Pretty in Pink](https://www.highsnobiety.com/p/jordan-4-rm-sneakers-pink-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 14:15:00 GMT*
-
-
-## Adele
-
-## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 26 Aug 2024 16:56:59 GMT*
-
-
-## Adele
-
-## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
-
-
-## Adele
-
 ## [Nike's Beefed-Up Blazer Shoes Are Ready to Blaze the Trails](https://www.highsnobiety.com/p/nike-blazer-mid-roam-shoes/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3502,20 +3772,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Adele
 
-## [Shaboozey Dresses Exactly How Shaboozey Sounds](https://www.highsnobiety.com/p/shaboozey-camo-crocs-nyc-outfit/)
+## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 26 Aug 2024 17:27:55 GMT*
-
-
-## Lindsay Lohan
-
-## [Nike's Napoli Sneaker Is Destined To Be a Fan Favorite](https://www.highsnobiety.com/p/nike-air-max-plus-tn-napoli/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 07:43:17 GMT*
+*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
 
 
 ## Lindsay Lohan
@@ -3556,7 +3817,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Lindsay Lohan
 
-## [Vans’ Classic Slip-On Has Never Looked This Luxe](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
+## [Vans’ Classic Slip-On Is Now More Jewelry Than Sneaker](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -3592,29 +3853,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Lindsay Lohan
 
-## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
+## [Teddy Santis Saved His Most Delicious NB Dad Shoes for ALD](https://www.highsnobiety.com/p/aime-leon-dore-new-balance-990v4-where-to-buy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 26 Aug 2024 16:56:59 GMT*
-
-
-## Lindsay Lohan
-
-## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
-
-
-## Lindsay Lohan
-
-## [Nike's Beefed-Up Blazer Shoes Are Ready to Blaze the Trails](https://www.highsnobiety.com/p/nike-blazer-mid-roam-shoes/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 26 Aug 2024 19:45:59 GMT*
+*Published on: Tue, 27 Aug 2024 15:38:33 GMT*
 
 
 ## Lindsay Lohan
@@ -3626,13 +3869,40 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 26 Aug 2024 17:27:55 GMT*
 
 
-## Addison Rae
+## Lindsay Lohan
+
+## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 16:56:59 GMT*
+
+
+## Lindsay Lohan
 
 ## [Nike's Napoli Sneaker Is Destined To Be a Fan Favorite](https://www.highsnobiety.com/p/nike-air-max-plus-tn-napoli/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Tue, 27 Aug 2024 07:43:17 GMT*
+
+
+## Lindsay Lohan
+
+## [Nike's Beefed-Up Blazer Shoes Are Ready to Blaze the Trails](https://www.highsnobiety.com/p/nike-blazer-mid-roam-shoes/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 19:45:59 GMT*
+
+
+## Lindsay Lohan
+
+## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
 
 
 ## Addison Rae
@@ -3673,7 +3943,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Addison Rae
 
-## [Vans’ Classic Slip-On Has Never Looked This Luxe](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
+## [Vans’ Classic Slip-On Is Now More Jewelry Than Sneaker](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -3709,6 +3979,24 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Addison Rae
 
+## [Teddy Santis Saved His Most Delicious NB Dad Shoes for ALD](https://www.highsnobiety.com/p/aime-leon-dore-new-balance-990v4-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 15:38:33 GMT*
+
+
+## Addison Rae
+
+## [Shaboozey Dresses Exactly How Shaboozey Sounds](https://www.highsnobiety.com/p/shaboozey-camo-crocs-nyc-outfit/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 17:27:55 GMT*
+
+
+## Addison Rae
+
 ## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3718,11 +4006,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Addison Rae
 
-## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
+## [Nike's Napoli Sneaker Is Destined To Be a Fan Favorite](https://www.highsnobiety.com/p/nike-air-max-plus-tn-napoli/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
+*Published on: Tue, 27 Aug 2024 07:43:17 GMT*
 
 
 ## Addison Rae
@@ -3736,11 +4024,110 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Addison Rae
 
+## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
+
+
+## Latto
+
+## [Tyler, the Creator's Style Is So Good, His Friends Are Stealing It](https://www.highsnobiety.com/p/tyler-the-creator-shorts-loafers-outfit/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 08:00:45 GMT*
+
+
+## Latto
+
+## [Is HOKA’s GORE-TEX Hybrid Puffer Boot Its Coziest Sneaker Yet?](https://www.highsnobiety.com/p/hoka-kaha-2-frost-moc-gore-tex/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 08:15:41 GMT*
+
+
+## Latto
+
+## [Nike, Yoon Ahn  Naomi Osaka Serve Up Tennis Magic](https://www.highsnobiety.com/p/yoon-ahn-nike-tennis-collab/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 09:00:02 GMT*
+
+
+## Latto
+
+## [Nike's Trusty Dad Shoe Has New Beautifully Rugged Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-roam-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 09:02:00 GMT*
+
+
+## Latto
+
+## [Vans’ Classic Slip-On Is Now More Jewelry Than Sneaker](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 09:07:58 GMT*
+
+
+## Latto
+
+## [Ice Studios' First New Balance Sneaker Is an Ice-Cold Must Already](https://www.highsnobiety.com/p/ice-studios-new-balance-collab/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 10:15:00 GMT*
+
+
+## Latto
+
+## [Nike’s Simple Mule Becomes Fluff-tastic](https://www.highsnobiety.com/p/nike-calm-mule-fluff/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 10:33:52 GMT*
+
+
+## Latto
+
+## [Nike's Skate-Worthy Jordan 4 Sneakers Look Very Pretty in Pink](https://www.highsnobiety.com/p/jordan-4-rm-sneakers-pink-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 14:15:00 GMT*
+
+
+## Latto
+
+## [Teddy Santis Saved His Most Delicious NB Dad Shoes for ALD](https://www.highsnobiety.com/p/aime-leon-dore-new-balance-990v4-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 15:38:33 GMT*
+
+
+## Latto
+
 ## [Shaboozey Dresses Exactly How Shaboozey Sounds](https://www.highsnobiety.com/p/shaboozey-camo-crocs-nyc-outfit/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Mon, 26 Aug 2024 17:27:55 GMT*
+
+
+## Latto
+
+## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 16:56:59 GMT*
 
 
 ## Latto
@@ -3754,96 +4141,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Latto
 
-## [Tyler, the Creator's Style Is So Good, His Friends Are Stealing It](https://www.highsnobiety.com/p/tyler-the-creator-shorts-loafers-outfit/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 08:00:45 GMT*
-
-
-## Latto
-
-## [Is HOKA’s GORE-TEX Hybrid Puffer Boot Its Coziest Sneaker Yet?](https://www.highsnobiety.com/p/hoka-kaha-2-frost-moc-gore-tex/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 08:15:41 GMT*
-
-
-## Latto
-
-## [Nike, Yoon Ahn  Naomi Osaka Serve Up Tennis Magic](https://www.highsnobiety.com/p/yoon-ahn-nike-tennis-collab/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 09:00:02 GMT*
-
-
-## Latto
-
-## [Nike's Trusty Dad Shoe Has New Beautifully Rugged Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-roam-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 09:02:00 GMT*
-
-
-## Latto
-
-## [Vans’ Classic Slip-On Has Never Looked This Luxe](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 09:07:58 GMT*
-
-
-## Latto
-
-## [Ice Studios' First New Balance Sneaker Is an Ice-Cold Must Already](https://www.highsnobiety.com/p/ice-studios-new-balance-collab/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 10:15:00 GMT*
-
-
-## Latto
-
-## [Nike’s Simple Mule Becomes Fluff-tastic](https://www.highsnobiety.com/p/nike-calm-mule-fluff/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 10:33:52 GMT*
-
-
-## Latto
-
-## [Nike's Skate-Worthy Jordan 4 Sneakers Look Very Pretty in Pink](https://www.highsnobiety.com/p/jordan-4-rm-sneakers-pink-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 14:15:00 GMT*
-
-
-## Latto
-
-## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 26 Aug 2024 16:56:59 GMT*
-
-
-## Latto
-
-## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
-
-
-## Latto
-
 ## [Nike's Beefed-Up Blazer Shoes Are Ready to Blaze the Trails](https://www.highsnobiety.com/p/nike-blazer-mid-roam-shoes/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3853,20 +4150,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Latto
 
-## [Shaboozey Dresses Exactly How Shaboozey Sounds](https://www.highsnobiety.com/p/shaboozey-camo-crocs-nyc-outfit/)
+## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 26 Aug 2024 17:27:55 GMT*
-
-
-## Aaron Paul
-
-## [Nike's Napoli Sneaker Is Destined To Be a Fan Favorite](https://www.highsnobiety.com/p/nike-air-max-plus-tn-napoli/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 07:43:17 GMT*
+*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
 
 
 ## Aaron Paul
@@ -3907,7 +4195,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Aaron Paul
 
-## [Vans’ Classic Slip-On Has Never Looked This Luxe](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
+## [Vans’ Classic Slip-On Is Now More Jewelry Than Sneaker](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -3943,29 +4231,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Aaron Paul
 
-## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
+## [Teddy Santis Saved His Most Delicious NB Dad Shoes for ALD](https://www.highsnobiety.com/p/aime-leon-dore-new-balance-990v4-where-to-buy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 26 Aug 2024 16:56:59 GMT*
-
-
-## Aaron Paul
-
-## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
-
-
-## Aaron Paul
-
-## [Nike's Beefed-Up Blazer Shoes Are Ready to Blaze the Trails](https://www.highsnobiety.com/p/nike-blazer-mid-roam-shoes/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 26 Aug 2024 19:45:59 GMT*
+*Published on: Tue, 27 Aug 2024 15:38:33 GMT*
 
 
 ## Aaron Paul
@@ -3977,13 +4247,40 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 26 Aug 2024 17:27:55 GMT*
 
 
-## LeBron James
+## Aaron Paul
+
+## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 16:56:59 GMT*
+
+
+## Aaron Paul
 
 ## [Nike's Napoli Sneaker Is Destined To Be a Fan Favorite](https://www.highsnobiety.com/p/nike-air-max-plus-tn-napoli/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Tue, 27 Aug 2024 07:43:17 GMT*
+
+
+## Aaron Paul
+
+## [Nike's Beefed-Up Blazer Shoes Are Ready to Blaze the Trails](https://www.highsnobiety.com/p/nike-blazer-mid-roam-shoes/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 19:45:59 GMT*
+
+
+## Aaron Paul
+
+## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
 
 
 ## LeBron James
@@ -4024,7 +4321,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## LeBron James
 
-## [Vans’ Classic Slip-On Has Never Looked This Luxe](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
+## [Vans’ Classic Slip-On Is Now More Jewelry Than Sneaker](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -4060,6 +4357,24 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## LeBron James
 
+## [Teddy Santis Saved His Most Delicious NB Dad Shoes for ALD](https://www.highsnobiety.com/p/aime-leon-dore-new-balance-990v4-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 15:38:33 GMT*
+
+
+## LeBron James
+
+## [Shaboozey Dresses Exactly How Shaboozey Sounds](https://www.highsnobiety.com/p/shaboozey-camo-crocs-nyc-outfit/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 17:27:55 GMT*
+
+
+## LeBron James
+
 ## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -4069,11 +4384,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## LeBron James
 
-## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
+## [Nike's Napoli Sneaker Is Destined To Be a Fan Favorite](https://www.highsnobiety.com/p/nike-air-max-plus-tn-napoli/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
+*Published on: Tue, 27 Aug 2024 07:43:17 GMT*
 
 
 ## LeBron James
@@ -4087,11 +4402,110 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## LeBron James
 
+## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
+
+
+## 50 Cent
+
+## [Tyler, the Creator's Style Is So Good, His Friends Are Stealing It](https://www.highsnobiety.com/p/tyler-the-creator-shorts-loafers-outfit/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 08:00:45 GMT*
+
+
+## 50 Cent
+
+## [Is HOKA’s GORE-TEX Hybrid Puffer Boot Its Coziest Sneaker Yet?](https://www.highsnobiety.com/p/hoka-kaha-2-frost-moc-gore-tex/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 08:15:41 GMT*
+
+
+## 50 Cent
+
+## [Nike, Yoon Ahn  Naomi Osaka Serve Up Tennis Magic](https://www.highsnobiety.com/p/yoon-ahn-nike-tennis-collab/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 09:00:02 GMT*
+
+
+## 50 Cent
+
+## [Nike's Trusty Dad Shoe Has New Beautifully Rugged Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-roam-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 09:02:00 GMT*
+
+
+## 50 Cent
+
+## [Vans’ Classic Slip-On Is Now More Jewelry Than Sneaker](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 09:07:58 GMT*
+
+
+## 50 Cent
+
+## [Ice Studios' First New Balance Sneaker Is an Ice-Cold Must Already](https://www.highsnobiety.com/p/ice-studios-new-balance-collab/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 10:15:00 GMT*
+
+
+## 50 Cent
+
+## [Nike’s Simple Mule Becomes Fluff-tastic](https://www.highsnobiety.com/p/nike-calm-mule-fluff/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 10:33:52 GMT*
+
+
+## 50 Cent
+
+## [Nike's Skate-Worthy Jordan 4 Sneakers Look Very Pretty in Pink](https://www.highsnobiety.com/p/jordan-4-rm-sneakers-pink-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 14:15:00 GMT*
+
+
+## 50 Cent
+
+## [Teddy Santis Saved His Most Delicious NB Dad Shoes for ALD](https://www.highsnobiety.com/p/aime-leon-dore-new-balance-990v4-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 15:38:33 GMT*
+
+
+## 50 Cent
+
 ## [Shaboozey Dresses Exactly How Shaboozey Sounds](https://www.highsnobiety.com/p/shaboozey-camo-crocs-nyc-outfit/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Mon, 26 Aug 2024 17:27:55 GMT*
+
+
+## 50 Cent
+
+## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 16:56:59 GMT*
 
 
 ## 50 Cent
@@ -4105,96 +4519,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## 50 Cent
 
-## [Tyler, the Creator's Style Is So Good, His Friends Are Stealing It](https://www.highsnobiety.com/p/tyler-the-creator-shorts-loafers-outfit/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 08:00:45 GMT*
-
-
-## 50 Cent
-
-## [Is HOKA’s GORE-TEX Hybrid Puffer Boot Its Coziest Sneaker Yet?](https://www.highsnobiety.com/p/hoka-kaha-2-frost-moc-gore-tex/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 08:15:41 GMT*
-
-
-## 50 Cent
-
-## [Nike, Yoon Ahn  Naomi Osaka Serve Up Tennis Magic](https://www.highsnobiety.com/p/yoon-ahn-nike-tennis-collab/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 09:00:02 GMT*
-
-
-## 50 Cent
-
-## [Nike's Trusty Dad Shoe Has New Beautifully Rugged Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-roam-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 09:02:00 GMT*
-
-
-## 50 Cent
-
-## [Vans’ Classic Slip-On Has Never Looked This Luxe](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 09:07:58 GMT*
-
-
-## 50 Cent
-
-## [Ice Studios' First New Balance Sneaker Is an Ice-Cold Must Already](https://www.highsnobiety.com/p/ice-studios-new-balance-collab/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 10:15:00 GMT*
-
-
-## 50 Cent
-
-## [Nike’s Simple Mule Becomes Fluff-tastic](https://www.highsnobiety.com/p/nike-calm-mule-fluff/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 10:33:52 GMT*
-
-
-## 50 Cent
-
-## [Nike's Skate-Worthy Jordan 4 Sneakers Look Very Pretty in Pink](https://www.highsnobiety.com/p/jordan-4-rm-sneakers-pink-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 14:15:00 GMT*
-
-
-## 50 Cent
-
-## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 26 Aug 2024 16:56:59 GMT*
-
-
-## 50 Cent
-
-## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
-
-
-## 50 Cent
-
 ## [Nike's Beefed-Up Blazer Shoes Are Ready to Blaze the Trails](https://www.highsnobiety.com/p/nike-blazer-mid-roam-shoes/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -4204,20 +4528,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## 50 Cent
 
-## [Shaboozey Dresses Exactly How Shaboozey Sounds](https://www.highsnobiety.com/p/shaboozey-camo-crocs-nyc-outfit/)
+## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 26 Aug 2024 17:27:55 GMT*
-
-
-## Kesha
-
-## [Nike's Napoli Sneaker Is Destined To Be a Fan Favorite](https://www.highsnobiety.com/p/nike-air-max-plus-tn-napoli/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 07:43:17 GMT*
+*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
 
 
 ## Kesha
@@ -4258,7 +4573,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Kesha
 
-## [Vans’ Classic Slip-On Has Never Looked This Luxe](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
+## [Vans’ Classic Slip-On Is Now More Jewelry Than Sneaker](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -4294,29 +4609,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Kesha
 
-## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
+## [Teddy Santis Saved His Most Delicious NB Dad Shoes for ALD](https://www.highsnobiety.com/p/aime-leon-dore-new-balance-990v4-where-to-buy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 26 Aug 2024 16:56:59 GMT*
-
-
-## Kesha
-
-## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
-
-
-## Kesha
-
-## [Nike's Beefed-Up Blazer Shoes Are Ready to Blaze the Trails](https://www.highsnobiety.com/p/nike-blazer-mid-roam-shoes/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 26 Aug 2024 19:45:59 GMT*
+*Published on: Tue, 27 Aug 2024 15:38:33 GMT*
 
 
 ## Kesha
@@ -4328,13 +4625,40 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 26 Aug 2024 17:27:55 GMT*
 
 
-## 21 Savage
+## Kesha
+
+## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 16:56:59 GMT*
+
+
+## Kesha
 
 ## [Nike's Napoli Sneaker Is Destined To Be a Fan Favorite](https://www.highsnobiety.com/p/nike-air-max-plus-tn-napoli/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Tue, 27 Aug 2024 07:43:17 GMT*
+
+
+## Kesha
+
+## [Nike's Beefed-Up Blazer Shoes Are Ready to Blaze the Trails](https://www.highsnobiety.com/p/nike-blazer-mid-roam-shoes/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 19:45:59 GMT*
+
+
+## Kesha
+
+## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
 
 
 ## 21 Savage
@@ -4375,7 +4699,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## 21 Savage
 
-## [Vans’ Classic Slip-On Has Never Looked This Luxe](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
+## [Vans’ Classic Slip-On Is Now More Jewelry Than Sneaker](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -4411,6 +4735,24 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## 21 Savage
 
+## [Teddy Santis Saved His Most Delicious NB Dad Shoes for ALD](https://www.highsnobiety.com/p/aime-leon-dore-new-balance-990v4-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 15:38:33 GMT*
+
+
+## 21 Savage
+
+## [Shaboozey Dresses Exactly How Shaboozey Sounds](https://www.highsnobiety.com/p/shaboozey-camo-crocs-nyc-outfit/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 17:27:55 GMT*
+
+
+## 21 Savage
+
 ## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -4420,11 +4762,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## 21 Savage
 
-## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
+## [Nike's Napoli Sneaker Is Destined To Be a Fan Favorite](https://www.highsnobiety.com/p/nike-air-max-plus-tn-napoli/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
+*Published on: Tue, 27 Aug 2024 07:43:17 GMT*
 
 
 ## 21 Savage
@@ -4438,11 +4780,110 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## 21 Savage
 
+## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
+
+
+## Larry David
+
+## [Tyler, the Creator's Style Is So Good, His Friends Are Stealing It](https://www.highsnobiety.com/p/tyler-the-creator-shorts-loafers-outfit/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 08:00:45 GMT*
+
+
+## Larry David
+
+## [Is HOKA’s GORE-TEX Hybrid Puffer Boot Its Coziest Sneaker Yet?](https://www.highsnobiety.com/p/hoka-kaha-2-frost-moc-gore-tex/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 08:15:41 GMT*
+
+
+## Larry David
+
+## [Nike, Yoon Ahn  Naomi Osaka Serve Up Tennis Magic](https://www.highsnobiety.com/p/yoon-ahn-nike-tennis-collab/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 09:00:02 GMT*
+
+
+## Larry David
+
+## [Nike's Trusty Dad Shoe Has New Beautifully Rugged Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-roam-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 09:02:00 GMT*
+
+
+## Larry David
+
+## [Vans’ Classic Slip-On Is Now More Jewelry Than Sneaker](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 09:07:58 GMT*
+
+
+## Larry David
+
+## [Ice Studios' First New Balance Sneaker Is an Ice-Cold Must Already](https://www.highsnobiety.com/p/ice-studios-new-balance-collab/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 10:15:00 GMT*
+
+
+## Larry David
+
+## [Nike’s Simple Mule Becomes Fluff-tastic](https://www.highsnobiety.com/p/nike-calm-mule-fluff/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 10:33:52 GMT*
+
+
+## Larry David
+
+## [Nike's Skate-Worthy Jordan 4 Sneakers Look Very Pretty in Pink](https://www.highsnobiety.com/p/jordan-4-rm-sneakers-pink-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 14:15:00 GMT*
+
+
+## Larry David
+
+## [Teddy Santis Saved His Most Delicious NB Dad Shoes for ALD](https://www.highsnobiety.com/p/aime-leon-dore-new-balance-990v4-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 15:38:33 GMT*
+
+
+## Larry David
+
 ## [Shaboozey Dresses Exactly How Shaboozey Sounds](https://www.highsnobiety.com/p/shaboozey-camo-crocs-nyc-outfit/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Mon, 26 Aug 2024 17:27:55 GMT*
+
+
+## Larry David
+
+## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 16:56:59 GMT*
 
 
 ## Larry David
@@ -4456,96 +4897,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Larry David
 
-## [Tyler, the Creator's Style Is So Good, His Friends Are Stealing It](https://www.highsnobiety.com/p/tyler-the-creator-shorts-loafers-outfit/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 08:00:45 GMT*
-
-
-## Larry David
-
-## [Is HOKA’s GORE-TEX Hybrid Puffer Boot Its Coziest Sneaker Yet?](https://www.highsnobiety.com/p/hoka-kaha-2-frost-moc-gore-tex/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 08:15:41 GMT*
-
-
-## Larry David
-
-## [Nike, Yoon Ahn  Naomi Osaka Serve Up Tennis Magic](https://www.highsnobiety.com/p/yoon-ahn-nike-tennis-collab/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 09:00:02 GMT*
-
-
-## Larry David
-
-## [Nike's Trusty Dad Shoe Has New Beautifully Rugged Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-roam-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 09:02:00 GMT*
-
-
-## Larry David
-
-## [Vans’ Classic Slip-On Has Never Looked This Luxe](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 09:07:58 GMT*
-
-
-## Larry David
-
-## [Ice Studios' First New Balance Sneaker Is an Ice-Cold Must Already](https://www.highsnobiety.com/p/ice-studios-new-balance-collab/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 10:15:00 GMT*
-
-
-## Larry David
-
-## [Nike’s Simple Mule Becomes Fluff-tastic](https://www.highsnobiety.com/p/nike-calm-mule-fluff/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 10:33:52 GMT*
-
-
-## Larry David
-
-## [Nike's Skate-Worthy Jordan 4 Sneakers Look Very Pretty in Pink](https://www.highsnobiety.com/p/jordan-4-rm-sneakers-pink-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 14:15:00 GMT*
-
-
-## Larry David
-
-## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 26 Aug 2024 16:56:59 GMT*
-
-
-## Larry David
-
-## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
-
-
-## Larry David
-
 ## [Nike's Beefed-Up Blazer Shoes Are Ready to Blaze the Trails](https://www.highsnobiety.com/p/nike-blazer-mid-roam-shoes/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -4555,20 +4906,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Larry David
 
-## [Shaboozey Dresses Exactly How Shaboozey Sounds](https://www.highsnobiety.com/p/shaboozey-camo-crocs-nyc-outfit/)
+## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 26 Aug 2024 17:27:55 GMT*
-
-
-## Seth Rogan
-
-## [Nike's Napoli Sneaker Is Destined To Be a Fan Favorite](https://www.highsnobiety.com/p/nike-air-max-plus-tn-napoli/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 07:43:17 GMT*
+*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
 
 
 ## Seth Rogan
@@ -4609,7 +4951,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Seth Rogan
 
-## [Vans’ Classic Slip-On Has Never Looked This Luxe](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
+## [Vans’ Classic Slip-On Is Now More Jewelry Than Sneaker](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -4645,29 +4987,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Seth Rogan
 
-## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
+## [Teddy Santis Saved His Most Delicious NB Dad Shoes for ALD](https://www.highsnobiety.com/p/aime-leon-dore-new-balance-990v4-where-to-buy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 26 Aug 2024 16:56:59 GMT*
-
-
-## Seth Rogan
-
-## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
-
-
-## Seth Rogan
-
-## [Nike's Beefed-Up Blazer Shoes Are Ready to Blaze the Trails](https://www.highsnobiety.com/p/nike-blazer-mid-roam-shoes/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 26 Aug 2024 19:45:59 GMT*
+*Published on: Tue, 27 Aug 2024 15:38:33 GMT*
 
 
 ## Seth Rogan
@@ -4679,13 +5003,40 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 26 Aug 2024 17:27:55 GMT*
 
 
-## Simone Biles
+## Seth Rogan
+
+## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 16:56:59 GMT*
+
+
+## Seth Rogan
 
 ## [Nike's Napoli Sneaker Is Destined To Be a Fan Favorite](https://www.highsnobiety.com/p/nike-air-max-plus-tn-napoli/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Tue, 27 Aug 2024 07:43:17 GMT*
+
+
+## Seth Rogan
+
+## [Nike's Beefed-Up Blazer Shoes Are Ready to Blaze the Trails](https://www.highsnobiety.com/p/nike-blazer-mid-roam-shoes/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 19:45:59 GMT*
+
+
+## Seth Rogan
+
+## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
 
 
 ## Simone Biles
@@ -4726,7 +5077,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Simone Biles
 
-## [Vans’ Classic Slip-On Has Never Looked This Luxe](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
+## [Vans’ Classic Slip-On Is Now More Jewelry Than Sneaker](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -4762,6 +5113,24 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Simone Biles
 
+## [Teddy Santis Saved His Most Delicious NB Dad Shoes for ALD](https://www.highsnobiety.com/p/aime-leon-dore-new-balance-990v4-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 15:38:33 GMT*
+
+
+## Simone Biles
+
+## [Shaboozey Dresses Exactly How Shaboozey Sounds](https://www.highsnobiety.com/p/shaboozey-camo-crocs-nyc-outfit/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 17:27:55 GMT*
+
+
+## Simone Biles
+
 ## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -4771,11 +5140,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Simone Biles
 
-## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
+## [Nike's Napoli Sneaker Is Destined To Be a Fan Favorite](https://www.highsnobiety.com/p/nike-air-max-plus-tn-napoli/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
+*Published on: Tue, 27 Aug 2024 07:43:17 GMT*
 
 
 ## Simone Biles
@@ -4789,11 +5158,110 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Simone Biles
 
+## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
+
+
+## Pete Davidson
+
+## [Tyler, the Creator's Style Is So Good, His Friends Are Stealing It](https://www.highsnobiety.com/p/tyler-the-creator-shorts-loafers-outfit/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 08:00:45 GMT*
+
+
+## Pete Davidson
+
+## [Is HOKA’s GORE-TEX Hybrid Puffer Boot Its Coziest Sneaker Yet?](https://www.highsnobiety.com/p/hoka-kaha-2-frost-moc-gore-tex/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 08:15:41 GMT*
+
+
+## Pete Davidson
+
+## [Nike, Yoon Ahn  Naomi Osaka Serve Up Tennis Magic](https://www.highsnobiety.com/p/yoon-ahn-nike-tennis-collab/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 09:00:02 GMT*
+
+
+## Pete Davidson
+
+## [Nike's Trusty Dad Shoe Has New Beautifully Rugged Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-roam-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 09:02:00 GMT*
+
+
+## Pete Davidson
+
+## [Vans’ Classic Slip-On Is Now More Jewelry Than Sneaker](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 09:07:58 GMT*
+
+
+## Pete Davidson
+
+## [Ice Studios' First New Balance Sneaker Is an Ice-Cold Must Already](https://www.highsnobiety.com/p/ice-studios-new-balance-collab/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 10:15:00 GMT*
+
+
+## Pete Davidson
+
+## [Nike’s Simple Mule Becomes Fluff-tastic](https://www.highsnobiety.com/p/nike-calm-mule-fluff/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 10:33:52 GMT*
+
+
+## Pete Davidson
+
+## [Nike's Skate-Worthy Jordan 4 Sneakers Look Very Pretty in Pink](https://www.highsnobiety.com/p/jordan-4-rm-sneakers-pink-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 14:15:00 GMT*
+
+
+## Pete Davidson
+
+## [Teddy Santis Saved His Most Delicious NB Dad Shoes for ALD](https://www.highsnobiety.com/p/aime-leon-dore-new-balance-990v4-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 15:38:33 GMT*
+
+
+## Pete Davidson
+
 ## [Shaboozey Dresses Exactly How Shaboozey Sounds](https://www.highsnobiety.com/p/shaboozey-camo-crocs-nyc-outfit/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Mon, 26 Aug 2024 17:27:55 GMT*
+
+
+## Pete Davidson
+
+## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 16:56:59 GMT*
 
 
 ## Pete Davidson
@@ -4807,96 +5275,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Pete Davidson
 
-## [Tyler, the Creator's Style Is So Good, His Friends Are Stealing It](https://www.highsnobiety.com/p/tyler-the-creator-shorts-loafers-outfit/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 08:00:45 GMT*
-
-
-## Pete Davidson
-
-## [Is HOKA’s GORE-TEX Hybrid Puffer Boot Its Coziest Sneaker Yet?](https://www.highsnobiety.com/p/hoka-kaha-2-frost-moc-gore-tex/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 08:15:41 GMT*
-
-
-## Pete Davidson
-
-## [Nike, Yoon Ahn  Naomi Osaka Serve Up Tennis Magic](https://www.highsnobiety.com/p/yoon-ahn-nike-tennis-collab/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 09:00:02 GMT*
-
-
-## Pete Davidson
-
-## [Nike's Trusty Dad Shoe Has New Beautifully Rugged Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-roam-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 09:02:00 GMT*
-
-
-## Pete Davidson
-
-## [Vans’ Classic Slip-On Has Never Looked This Luxe](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 09:07:58 GMT*
-
-
-## Pete Davidson
-
-## [Ice Studios' First New Balance Sneaker Is an Ice-Cold Must Already](https://www.highsnobiety.com/p/ice-studios-new-balance-collab/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 10:15:00 GMT*
-
-
-## Pete Davidson
-
-## [Nike’s Simple Mule Becomes Fluff-tastic](https://www.highsnobiety.com/p/nike-calm-mule-fluff/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 10:33:52 GMT*
-
-
-## Pete Davidson
-
-## [Nike's Skate-Worthy Jordan 4 Sneakers Look Very Pretty in Pink](https://www.highsnobiety.com/p/jordan-4-rm-sneakers-pink-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 14:15:00 GMT*
-
-
-## Pete Davidson
-
-## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 26 Aug 2024 16:56:59 GMT*
-
-
-## Pete Davidson
-
-## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
-
-
-## Pete Davidson
-
 ## [Nike's Beefed-Up Blazer Shoes Are Ready to Blaze the Trails](https://www.highsnobiety.com/p/nike-blazer-mid-roam-shoes/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -4906,20 +5284,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Pete Davidson
 
-## [Shaboozey Dresses Exactly How Shaboozey Sounds](https://www.highsnobiety.com/p/shaboozey-camo-crocs-nyc-outfit/)
+## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 26 Aug 2024 17:27:55 GMT*
-
-
-## Prince Harry
-
-## [Nike's Napoli Sneaker Is Destined To Be a Fan Favorite](https://www.highsnobiety.com/p/nike-air-max-plus-tn-napoli/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 07:43:17 GMT*
+*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
 
 
 ## Prince Harry
@@ -4960,7 +5329,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Prince Harry
 
-## [Vans’ Classic Slip-On Has Never Looked This Luxe](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
+## [Vans’ Classic Slip-On Is Now More Jewelry Than Sneaker](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -4996,29 +5365,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Prince Harry
 
-## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
+## [Teddy Santis Saved His Most Delicious NB Dad Shoes for ALD](https://www.highsnobiety.com/p/aime-leon-dore-new-balance-990v4-where-to-buy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 26 Aug 2024 16:56:59 GMT*
-
-
-## Prince Harry
-
-## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
-
-
-## Prince Harry
-
-## [Nike's Beefed-Up Blazer Shoes Are Ready to Blaze the Trails](https://www.highsnobiety.com/p/nike-blazer-mid-roam-shoes/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 26 Aug 2024 19:45:59 GMT*
+*Published on: Tue, 27 Aug 2024 15:38:33 GMT*
 
 
 ## Prince Harry
@@ -5030,13 +5381,40 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 26 Aug 2024 17:27:55 GMT*
 
 
-## Princess of Wales
+## Prince Harry
+
+## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 16:56:59 GMT*
+
+
+## Prince Harry
 
 ## [Nike's Napoli Sneaker Is Destined To Be a Fan Favorite](https://www.highsnobiety.com/p/nike-air-max-plus-tn-napoli/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Tue, 27 Aug 2024 07:43:17 GMT*
+
+
+## Prince Harry
+
+## [Nike's Beefed-Up Blazer Shoes Are Ready to Blaze the Trails](https://www.highsnobiety.com/p/nike-blazer-mid-roam-shoes/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 19:45:59 GMT*
+
+
+## Prince Harry
+
+## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
 
 
 ## Princess of Wales
@@ -5077,7 +5455,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Princess of Wales
 
-## [Vans’ Classic Slip-On Has Never Looked This Luxe](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
+## [Vans’ Classic Slip-On Is Now More Jewelry Than Sneaker](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -5113,6 +5491,24 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Princess of Wales
 
+## [Teddy Santis Saved His Most Delicious NB Dad Shoes for ALD](https://www.highsnobiety.com/p/aime-leon-dore-new-balance-990v4-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 15:38:33 GMT*
+
+
+## Princess of Wales
+
+## [Shaboozey Dresses Exactly How Shaboozey Sounds](https://www.highsnobiety.com/p/shaboozey-camo-crocs-nyc-outfit/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 17:27:55 GMT*
+
+
+## Princess of Wales
+
 ## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -5122,11 +5518,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Princess of Wales
 
-## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
+## [Nike's Napoli Sneaker Is Destined To Be a Fan Favorite](https://www.highsnobiety.com/p/nike-air-max-plus-tn-napoli/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
+*Published on: Tue, 27 Aug 2024 07:43:17 GMT*
 
 
 ## Princess of Wales
@@ -5140,11 +5536,110 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Princess of Wales
 
+## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
+
+
+## Rachel McAdams
+
+## [Tyler, the Creator's Style Is So Good, His Friends Are Stealing It](https://www.highsnobiety.com/p/tyler-the-creator-shorts-loafers-outfit/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 08:00:45 GMT*
+
+
+## Rachel McAdams
+
+## [Is HOKA’s GORE-TEX Hybrid Puffer Boot Its Coziest Sneaker Yet?](https://www.highsnobiety.com/p/hoka-kaha-2-frost-moc-gore-tex/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 08:15:41 GMT*
+
+
+## Rachel McAdams
+
+## [Nike, Yoon Ahn  Naomi Osaka Serve Up Tennis Magic](https://www.highsnobiety.com/p/yoon-ahn-nike-tennis-collab/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 09:00:02 GMT*
+
+
+## Rachel McAdams
+
+## [Nike's Trusty Dad Shoe Has New Beautifully Rugged Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-roam-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 09:02:00 GMT*
+
+
+## Rachel McAdams
+
+## [Vans’ Classic Slip-On Is Now More Jewelry Than Sneaker](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 09:07:58 GMT*
+
+
+## Rachel McAdams
+
+## [Ice Studios' First New Balance Sneaker Is an Ice-Cold Must Already](https://www.highsnobiety.com/p/ice-studios-new-balance-collab/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 10:15:00 GMT*
+
+
+## Rachel McAdams
+
+## [Nike’s Simple Mule Becomes Fluff-tastic](https://www.highsnobiety.com/p/nike-calm-mule-fluff/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 10:33:52 GMT*
+
+
+## Rachel McAdams
+
+## [Nike's Skate-Worthy Jordan 4 Sneakers Look Very Pretty in Pink](https://www.highsnobiety.com/p/jordan-4-rm-sneakers-pink-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 14:15:00 GMT*
+
+
+## Rachel McAdams
+
+## [Teddy Santis Saved His Most Delicious NB Dad Shoes for ALD](https://www.highsnobiety.com/p/aime-leon-dore-new-balance-990v4-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 15:38:33 GMT*
+
+
+## Rachel McAdams
+
 ## [Shaboozey Dresses Exactly How Shaboozey Sounds](https://www.highsnobiety.com/p/shaboozey-camo-crocs-nyc-outfit/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Mon, 26 Aug 2024 17:27:55 GMT*
+
+
+## Rachel McAdams
+
+## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 16:56:59 GMT*
 
 
 ## Rachel McAdams
@@ -5158,96 +5653,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Rachel McAdams
 
-## [Tyler, the Creator's Style Is So Good, His Friends Are Stealing It](https://www.highsnobiety.com/p/tyler-the-creator-shorts-loafers-outfit/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 08:00:45 GMT*
-
-
-## Rachel McAdams
-
-## [Is HOKA’s GORE-TEX Hybrid Puffer Boot Its Coziest Sneaker Yet?](https://www.highsnobiety.com/p/hoka-kaha-2-frost-moc-gore-tex/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 08:15:41 GMT*
-
-
-## Rachel McAdams
-
-## [Nike, Yoon Ahn  Naomi Osaka Serve Up Tennis Magic](https://www.highsnobiety.com/p/yoon-ahn-nike-tennis-collab/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 09:00:02 GMT*
-
-
-## Rachel McAdams
-
-## [Nike's Trusty Dad Shoe Has New Beautifully Rugged Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-roam-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 09:02:00 GMT*
-
-
-## Rachel McAdams
-
-## [Vans’ Classic Slip-On Has Never Looked This Luxe](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 09:07:58 GMT*
-
-
-## Rachel McAdams
-
-## [Ice Studios' First New Balance Sneaker Is an Ice-Cold Must Already](https://www.highsnobiety.com/p/ice-studios-new-balance-collab/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 10:15:00 GMT*
-
-
-## Rachel McAdams
-
-## [Nike’s Simple Mule Becomes Fluff-tastic](https://www.highsnobiety.com/p/nike-calm-mule-fluff/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 10:33:52 GMT*
-
-
-## Rachel McAdams
-
-## [Nike's Skate-Worthy Jordan 4 Sneakers Look Very Pretty in Pink](https://www.highsnobiety.com/p/jordan-4-rm-sneakers-pink-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 14:15:00 GMT*
-
-
-## Rachel McAdams
-
-## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 26 Aug 2024 16:56:59 GMT*
-
-
-## Rachel McAdams
-
-## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
-
-
-## Rachel McAdams
-
 ## [Nike's Beefed-Up Blazer Shoes Are Ready to Blaze the Trails](https://www.highsnobiety.com/p/nike-blazer-mid-roam-shoes/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -5257,20 +5662,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Rachel McAdams
 
-## [Shaboozey Dresses Exactly How Shaboozey Sounds](https://www.highsnobiety.com/p/shaboozey-camo-crocs-nyc-outfit/)
+## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 26 Aug 2024 17:27:55 GMT*
-
-
-## Reneé Rapp
-
-## [Nike's Napoli Sneaker Is Destined To Be a Fan Favorite](https://www.highsnobiety.com/p/nike-air-max-plus-tn-napoli/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 07:43:17 GMT*
+*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
 
 
 ## Reneé Rapp
@@ -5311,7 +5707,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Reneé Rapp
 
-## [Vans’ Classic Slip-On Has Never Looked This Luxe](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
+## [Vans’ Classic Slip-On Is Now More Jewelry Than Sneaker](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -5347,29 +5743,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Reneé Rapp
 
-## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
+## [Teddy Santis Saved His Most Delicious NB Dad Shoes for ALD](https://www.highsnobiety.com/p/aime-leon-dore-new-balance-990v4-where-to-buy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 26 Aug 2024 16:56:59 GMT*
-
-
-## Reneé Rapp
-
-## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
-
-
-## Reneé Rapp
-
-## [Nike's Beefed-Up Blazer Shoes Are Ready to Blaze the Trails](https://www.highsnobiety.com/p/nike-blazer-mid-roam-shoes/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 26 Aug 2024 19:45:59 GMT*
+*Published on: Tue, 27 Aug 2024 15:38:33 GMT*
 
 
 ## Reneé Rapp
@@ -5381,13 +5759,40 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 26 Aug 2024 17:27:55 GMT*
 
 
-## Rick Ross
+## Reneé Rapp
+
+## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 16:56:59 GMT*
+
+
+## Reneé Rapp
 
 ## [Nike's Napoli Sneaker Is Destined To Be a Fan Favorite](https://www.highsnobiety.com/p/nike-air-max-plus-tn-napoli/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Tue, 27 Aug 2024 07:43:17 GMT*
+
+
+## Reneé Rapp
+
+## [Nike's Beefed-Up Blazer Shoes Are Ready to Blaze the Trails](https://www.highsnobiety.com/p/nike-blazer-mid-roam-shoes/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 19:45:59 GMT*
+
+
+## Reneé Rapp
+
+## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
 
 
 ## Rick Ross
@@ -5428,7 +5833,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Rick Ross
 
-## [Vans’ Classic Slip-On Has Never Looked This Luxe](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
+## [Vans’ Classic Slip-On Is Now More Jewelry Than Sneaker](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -5464,6 +5869,24 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Rick Ross
 
+## [Teddy Santis Saved His Most Delicious NB Dad Shoes for ALD](https://www.highsnobiety.com/p/aime-leon-dore-new-balance-990v4-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 15:38:33 GMT*
+
+
+## Rick Ross
+
+## [Shaboozey Dresses Exactly How Shaboozey Sounds](https://www.highsnobiety.com/p/shaboozey-camo-crocs-nyc-outfit/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 17:27:55 GMT*
+
+
+## Rick Ross
+
 ## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -5473,11 +5896,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Rick Ross
 
-## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
+## [Nike's Napoli Sneaker Is Destined To Be a Fan Favorite](https://www.highsnobiety.com/p/nike-air-max-plus-tn-napoli/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
+*Published on: Tue, 27 Aug 2024 07:43:17 GMT*
 
 
 ## Rick Ross
@@ -5491,11 +5914,110 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Rick Ross
 
+## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
+
+
+## Sam Ashgari
+
+## [Tyler, the Creator's Style Is So Good, His Friends Are Stealing It](https://www.highsnobiety.com/p/tyler-the-creator-shorts-loafers-outfit/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 08:00:45 GMT*
+
+
+## Sam Ashgari
+
+## [Is HOKA’s GORE-TEX Hybrid Puffer Boot Its Coziest Sneaker Yet?](https://www.highsnobiety.com/p/hoka-kaha-2-frost-moc-gore-tex/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 08:15:41 GMT*
+
+
+## Sam Ashgari
+
+## [Nike, Yoon Ahn  Naomi Osaka Serve Up Tennis Magic](https://www.highsnobiety.com/p/yoon-ahn-nike-tennis-collab/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 09:00:02 GMT*
+
+
+## Sam Ashgari
+
+## [Nike's Trusty Dad Shoe Has New Beautifully Rugged Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-roam-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 09:02:00 GMT*
+
+
+## Sam Ashgari
+
+## [Vans’ Classic Slip-On Is Now More Jewelry Than Sneaker](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 09:07:58 GMT*
+
+
+## Sam Ashgari
+
+## [Ice Studios' First New Balance Sneaker Is an Ice-Cold Must Already](https://www.highsnobiety.com/p/ice-studios-new-balance-collab/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 10:15:00 GMT*
+
+
+## Sam Ashgari
+
+## [Nike’s Simple Mule Becomes Fluff-tastic](https://www.highsnobiety.com/p/nike-calm-mule-fluff/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 10:33:52 GMT*
+
+
+## Sam Ashgari
+
+## [Nike's Skate-Worthy Jordan 4 Sneakers Look Very Pretty in Pink](https://www.highsnobiety.com/p/jordan-4-rm-sneakers-pink-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 14:15:00 GMT*
+
+
+## Sam Ashgari
+
+## [Teddy Santis Saved His Most Delicious NB Dad Shoes for ALD](https://www.highsnobiety.com/p/aime-leon-dore-new-balance-990v4-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 15:38:33 GMT*
+
+
+## Sam Ashgari
+
 ## [Shaboozey Dresses Exactly How Shaboozey Sounds](https://www.highsnobiety.com/p/shaboozey-camo-crocs-nyc-outfit/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Mon, 26 Aug 2024 17:27:55 GMT*
+
+
+## Sam Ashgari
+
+## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 16:56:59 GMT*
 
 
 ## Sam Ashgari
@@ -5509,96 +6031,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Sam Ashgari
 
-## [Tyler, the Creator's Style Is So Good, His Friends Are Stealing It](https://www.highsnobiety.com/p/tyler-the-creator-shorts-loafers-outfit/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 08:00:45 GMT*
-
-
-## Sam Ashgari
-
-## [Is HOKA’s GORE-TEX Hybrid Puffer Boot Its Coziest Sneaker Yet?](https://www.highsnobiety.com/p/hoka-kaha-2-frost-moc-gore-tex/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 08:15:41 GMT*
-
-
-## Sam Ashgari
-
-## [Nike, Yoon Ahn  Naomi Osaka Serve Up Tennis Magic](https://www.highsnobiety.com/p/yoon-ahn-nike-tennis-collab/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 09:00:02 GMT*
-
-
-## Sam Ashgari
-
-## [Nike's Trusty Dad Shoe Has New Beautifully Rugged Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-roam-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 09:02:00 GMT*
-
-
-## Sam Ashgari
-
-## [Vans’ Classic Slip-On Has Never Looked This Luxe](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 09:07:58 GMT*
-
-
-## Sam Ashgari
-
-## [Ice Studios' First New Balance Sneaker Is an Ice-Cold Must Already](https://www.highsnobiety.com/p/ice-studios-new-balance-collab/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 10:15:00 GMT*
-
-
-## Sam Ashgari
-
-## [Nike’s Simple Mule Becomes Fluff-tastic](https://www.highsnobiety.com/p/nike-calm-mule-fluff/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 10:33:52 GMT*
-
-
-## Sam Ashgari
-
-## [Nike's Skate-Worthy Jordan 4 Sneakers Look Very Pretty in Pink](https://www.highsnobiety.com/p/jordan-4-rm-sneakers-pink-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 14:15:00 GMT*
-
-
-## Sam Ashgari
-
-## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 26 Aug 2024 16:56:59 GMT*
-
-
-## Sam Ashgari
-
-## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
-
-
-## Sam Ashgari
-
 ## [Nike's Beefed-Up Blazer Shoes Are Ready to Blaze the Trails](https://www.highsnobiety.com/p/nike-blazer-mid-roam-shoes/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -5608,20 +6040,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Sam Ashgari
 
-## [Shaboozey Dresses Exactly How Shaboozey Sounds](https://www.highsnobiety.com/p/shaboozey-camo-crocs-nyc-outfit/)
+## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 26 Aug 2024 17:27:55 GMT*
-
-
-## Sandra Oh
-
-## [Nike's Napoli Sneaker Is Destined To Be a Fan Favorite](https://www.highsnobiety.com/p/nike-air-max-plus-tn-napoli/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 07:43:17 GMT*
+*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
 
 
 ## Sandra Oh
@@ -5662,7 +6085,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Sandra Oh
 
-## [Vans’ Classic Slip-On Has Never Looked This Luxe](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
+## [Vans’ Classic Slip-On Is Now More Jewelry Than Sneaker](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -5698,29 +6121,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Sandra Oh
 
-## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
+## [Teddy Santis Saved His Most Delicious NB Dad Shoes for ALD](https://www.highsnobiety.com/p/aime-leon-dore-new-balance-990v4-where-to-buy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 26 Aug 2024 16:56:59 GMT*
-
-
-## Sandra Oh
-
-## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
-
-
-## Sandra Oh
-
-## [Nike's Beefed-Up Blazer Shoes Are Ready to Blaze the Trails](https://www.highsnobiety.com/p/nike-blazer-mid-roam-shoes/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 26 Aug 2024 19:45:59 GMT*
+*Published on: Tue, 27 Aug 2024 15:38:33 GMT*
 
 
 ## Sandra Oh
@@ -5732,13 +6137,40 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 26 Aug 2024 17:27:55 GMT*
 
 
-## Donald Trump
+## Sandra Oh
+
+## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 16:56:59 GMT*
+
+
+## Sandra Oh
 
 ## [Nike's Napoli Sneaker Is Destined To Be a Fan Favorite](https://www.highsnobiety.com/p/nike-air-max-plus-tn-napoli/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Tue, 27 Aug 2024 07:43:17 GMT*
+
+
+## Sandra Oh
+
+## [Nike's Beefed-Up Blazer Shoes Are Ready to Blaze the Trails](https://www.highsnobiety.com/p/nike-blazer-mid-roam-shoes/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 19:45:59 GMT*
+
+
+## Sandra Oh
+
+## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
 
 
 ## Donald Trump
@@ -5779,7 +6211,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Donald Trump
 
-## [Vans’ Classic Slip-On Has Never Looked This Luxe](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
+## [Vans’ Classic Slip-On Is Now More Jewelry Than Sneaker](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -5815,6 +6247,24 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Donald Trump
 
+## [Teddy Santis Saved His Most Delicious NB Dad Shoes for ALD](https://www.highsnobiety.com/p/aime-leon-dore-new-balance-990v4-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 15:38:33 GMT*
+
+
+## Donald Trump
+
+## [Shaboozey Dresses Exactly How Shaboozey Sounds](https://www.highsnobiety.com/p/shaboozey-camo-crocs-nyc-outfit/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 17:27:55 GMT*
+
+
+## Donald Trump
+
 ## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -5824,11 +6274,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Donald Trump
 
-## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
+## [Nike's Napoli Sneaker Is Destined To Be a Fan Favorite](https://www.highsnobiety.com/p/nike-air-max-plus-tn-napoli/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
+*Published on: Tue, 27 Aug 2024 07:43:17 GMT*
 
 
 ## Donald Trump
@@ -5842,11 +6292,110 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Donald Trump
 
+## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
+
+
+## Diddy
+
+## [Tyler, the Creator's Style Is So Good, His Friends Are Stealing It](https://www.highsnobiety.com/p/tyler-the-creator-shorts-loafers-outfit/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 08:00:45 GMT*
+
+
+## Diddy
+
+## [Is HOKA’s GORE-TEX Hybrid Puffer Boot Its Coziest Sneaker Yet?](https://www.highsnobiety.com/p/hoka-kaha-2-frost-moc-gore-tex/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 08:15:41 GMT*
+
+
+## Diddy
+
+## [Nike, Yoon Ahn  Naomi Osaka Serve Up Tennis Magic](https://www.highsnobiety.com/p/yoon-ahn-nike-tennis-collab/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 09:00:02 GMT*
+
+
+## Diddy
+
+## [Nike's Trusty Dad Shoe Has New Beautifully Rugged Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-roam-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 09:02:00 GMT*
+
+
+## Diddy
+
+## [Vans’ Classic Slip-On Is Now More Jewelry Than Sneaker](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 09:07:58 GMT*
+
+
+## Diddy
+
+## [Ice Studios' First New Balance Sneaker Is an Ice-Cold Must Already](https://www.highsnobiety.com/p/ice-studios-new-balance-collab/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 10:15:00 GMT*
+
+
+## Diddy
+
+## [Nike’s Simple Mule Becomes Fluff-tastic](https://www.highsnobiety.com/p/nike-calm-mule-fluff/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 10:33:52 GMT*
+
+
+## Diddy
+
+## [Nike's Skate-Worthy Jordan 4 Sneakers Look Very Pretty in Pink](https://www.highsnobiety.com/p/jordan-4-rm-sneakers-pink-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 14:15:00 GMT*
+
+
+## Diddy
+
+## [Teddy Santis Saved His Most Delicious NB Dad Shoes for ALD](https://www.highsnobiety.com/p/aime-leon-dore-new-balance-990v4-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 15:38:33 GMT*
+
+
+## Diddy
+
 ## [Shaboozey Dresses Exactly How Shaboozey Sounds](https://www.highsnobiety.com/p/shaboozey-camo-crocs-nyc-outfit/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Mon, 26 Aug 2024 17:27:55 GMT*
+
+
+## Diddy
+
+## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 16:56:59 GMT*
 
 
 ## Diddy
@@ -5860,96 +6409,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Diddy
 
-## [Tyler, the Creator's Style Is So Good, His Friends Are Stealing It](https://www.highsnobiety.com/p/tyler-the-creator-shorts-loafers-outfit/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 08:00:45 GMT*
-
-
-## Diddy
-
-## [Is HOKA’s GORE-TEX Hybrid Puffer Boot Its Coziest Sneaker Yet?](https://www.highsnobiety.com/p/hoka-kaha-2-frost-moc-gore-tex/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 08:15:41 GMT*
-
-
-## Diddy
-
-## [Nike, Yoon Ahn  Naomi Osaka Serve Up Tennis Magic](https://www.highsnobiety.com/p/yoon-ahn-nike-tennis-collab/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 09:00:02 GMT*
-
-
-## Diddy
-
-## [Nike's Trusty Dad Shoe Has New Beautifully Rugged Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-roam-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 09:02:00 GMT*
-
-
-## Diddy
-
-## [Vans’ Classic Slip-On Has Never Looked This Luxe](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 09:07:58 GMT*
-
-
-## Diddy
-
-## [Ice Studios' First New Balance Sneaker Is an Ice-Cold Must Already](https://www.highsnobiety.com/p/ice-studios-new-balance-collab/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 10:15:00 GMT*
-
-
-## Diddy
-
-## [Nike’s Simple Mule Becomes Fluff-tastic](https://www.highsnobiety.com/p/nike-calm-mule-fluff/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 10:33:52 GMT*
-
-
-## Diddy
-
-## [Nike's Skate-Worthy Jordan 4 Sneakers Look Very Pretty in Pink](https://www.highsnobiety.com/p/jordan-4-rm-sneakers-pink-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 14:15:00 GMT*
-
-
-## Diddy
-
-## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 26 Aug 2024 16:56:59 GMT*
-
-
-## Diddy
-
-## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
-
-
-## Diddy
-
 ## [Nike's Beefed-Up Blazer Shoes Are Ready to Blaze the Trails](https://www.highsnobiety.com/p/nike-blazer-mid-roam-shoes/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -5959,20 +6418,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Diddy
 
-## [Shaboozey Dresses Exactly How Shaboozey Sounds](https://www.highsnobiety.com/p/shaboozey-camo-crocs-nyc-outfit/)
+## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 26 Aug 2024 17:27:55 GMT*
-
-
-## City Girls
-
-## [Nike's Napoli Sneaker Is Destined To Be a Fan Favorite](https://www.highsnobiety.com/p/nike-air-max-plus-tn-napoli/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 07:43:17 GMT*
+*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
 
 
 ## City Girls
@@ -6013,7 +6463,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## City Girls
 
-## [Vans’ Classic Slip-On Has Never Looked This Luxe](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
+## [Vans’ Classic Slip-On Is Now More Jewelry Than Sneaker](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -6049,29 +6499,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## City Girls
 
-## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
+## [Teddy Santis Saved His Most Delicious NB Dad Shoes for ALD](https://www.highsnobiety.com/p/aime-leon-dore-new-balance-990v4-where-to-buy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 26 Aug 2024 16:56:59 GMT*
-
-
-## City Girls
-
-## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
-
-
-## City Girls
-
-## [Nike's Beefed-Up Blazer Shoes Are Ready to Blaze the Trails](https://www.highsnobiety.com/p/nike-blazer-mid-roam-shoes/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 26 Aug 2024 19:45:59 GMT*
+*Published on: Tue, 27 Aug 2024 15:38:33 GMT*
 
 
 ## City Girls
@@ -6083,13 +6515,40 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 26 Aug 2024 17:27:55 GMT*
 
 
-## Chloe Bailey
+## City Girls
+
+## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 16:56:59 GMT*
+
+
+## City Girls
 
 ## [Nike's Napoli Sneaker Is Destined To Be a Fan Favorite](https://www.highsnobiety.com/p/nike-air-max-plus-tn-napoli/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Tue, 27 Aug 2024 07:43:17 GMT*
+
+
+## City Girls
+
+## [Nike's Beefed-Up Blazer Shoes Are Ready to Blaze the Trails](https://www.highsnobiety.com/p/nike-blazer-mid-roam-shoes/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 19:45:59 GMT*
+
+
+## City Girls
+
+## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
 
 
 ## Chloe Bailey
@@ -6130,7 +6589,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Chloe Bailey
 
-## [Vans’ Classic Slip-On Has Never Looked This Luxe](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
+## [Vans’ Classic Slip-On Is Now More Jewelry Than Sneaker](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -6166,6 +6625,24 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Chloe Bailey
 
+## [Teddy Santis Saved His Most Delicious NB Dad Shoes for ALD](https://www.highsnobiety.com/p/aime-leon-dore-new-balance-990v4-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 15:38:33 GMT*
+
+
+## Chloe Bailey
+
+## [Shaboozey Dresses Exactly How Shaboozey Sounds](https://www.highsnobiety.com/p/shaboozey-camo-crocs-nyc-outfit/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 17:27:55 GMT*
+
+
+## Chloe Bailey
+
 ## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -6175,11 +6652,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Chloe Bailey
 
-## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
+## [Nike's Napoli Sneaker Is Destined To Be a Fan Favorite](https://www.highsnobiety.com/p/nike-air-max-plus-tn-napoli/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
+*Published on: Tue, 27 Aug 2024 07:43:17 GMT*
 
 
 ## Chloe Bailey
@@ -6193,11 +6670,110 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Chloe Bailey
 
+## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
+
+
+## Charli D Amelio
+
+## [Tyler, the Creator's Style Is So Good, His Friends Are Stealing It](https://www.highsnobiety.com/p/tyler-the-creator-shorts-loafers-outfit/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 08:00:45 GMT*
+
+
+## Charli D Amelio
+
+## [Is HOKA’s GORE-TEX Hybrid Puffer Boot Its Coziest Sneaker Yet?](https://www.highsnobiety.com/p/hoka-kaha-2-frost-moc-gore-tex/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 08:15:41 GMT*
+
+
+## Charli D Amelio
+
+## [Nike, Yoon Ahn  Naomi Osaka Serve Up Tennis Magic](https://www.highsnobiety.com/p/yoon-ahn-nike-tennis-collab/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 09:00:02 GMT*
+
+
+## Charli D Amelio
+
+## [Nike's Trusty Dad Shoe Has New Beautifully Rugged Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-roam-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 09:02:00 GMT*
+
+
+## Charli D Amelio
+
+## [Vans’ Classic Slip-On Is Now More Jewelry Than Sneaker](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 09:07:58 GMT*
+
+
+## Charli D Amelio
+
+## [Ice Studios' First New Balance Sneaker Is an Ice-Cold Must Already](https://www.highsnobiety.com/p/ice-studios-new-balance-collab/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 10:15:00 GMT*
+
+
+## Charli D Amelio
+
+## [Nike’s Simple Mule Becomes Fluff-tastic](https://www.highsnobiety.com/p/nike-calm-mule-fluff/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 10:33:52 GMT*
+
+
+## Charli D Amelio
+
+## [Nike's Skate-Worthy Jordan 4 Sneakers Look Very Pretty in Pink](https://www.highsnobiety.com/p/jordan-4-rm-sneakers-pink-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 14:15:00 GMT*
+
+
+## Charli D Amelio
+
+## [Teddy Santis Saved His Most Delicious NB Dad Shoes for ALD](https://www.highsnobiety.com/p/aime-leon-dore-new-balance-990v4-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 15:38:33 GMT*
+
+
+## Charli D Amelio
+
 ## [Shaboozey Dresses Exactly How Shaboozey Sounds](https://www.highsnobiety.com/p/shaboozey-camo-crocs-nyc-outfit/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Mon, 26 Aug 2024 17:27:55 GMT*
+
+
+## Charli D Amelio
+
+## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 16:56:59 GMT*
 
 
 ## Charli D Amelio
@@ -6211,96 +6787,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Charli D Amelio
 
-## [Tyler, the Creator's Style Is So Good, His Friends Are Stealing It](https://www.highsnobiety.com/p/tyler-the-creator-shorts-loafers-outfit/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 08:00:45 GMT*
-
-
-## Charli D Amelio
-
-## [Is HOKA’s GORE-TEX Hybrid Puffer Boot Its Coziest Sneaker Yet?](https://www.highsnobiety.com/p/hoka-kaha-2-frost-moc-gore-tex/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 08:15:41 GMT*
-
-
-## Charli D Amelio
-
-## [Nike, Yoon Ahn  Naomi Osaka Serve Up Tennis Magic](https://www.highsnobiety.com/p/yoon-ahn-nike-tennis-collab/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 09:00:02 GMT*
-
-
-## Charli D Amelio
-
-## [Nike's Trusty Dad Shoe Has New Beautifully Rugged Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-roam-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 09:02:00 GMT*
-
-
-## Charli D Amelio
-
-## [Vans’ Classic Slip-On Has Never Looked This Luxe](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 09:07:58 GMT*
-
-
-## Charli D Amelio
-
-## [Ice Studios' First New Balance Sneaker Is an Ice-Cold Must Already](https://www.highsnobiety.com/p/ice-studios-new-balance-collab/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 10:15:00 GMT*
-
-
-## Charli D Amelio
-
-## [Nike’s Simple Mule Becomes Fluff-tastic](https://www.highsnobiety.com/p/nike-calm-mule-fluff/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 10:33:52 GMT*
-
-
-## Charli D Amelio
-
-## [Nike's Skate-Worthy Jordan 4 Sneakers Look Very Pretty in Pink](https://www.highsnobiety.com/p/jordan-4-rm-sneakers-pink-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 14:15:00 GMT*
-
-
-## Charli D Amelio
-
-## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 26 Aug 2024 16:56:59 GMT*
-
-
-## Charli D Amelio
-
-## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
-
-
-## Charli D Amelio
-
 ## [Nike's Beefed-Up Blazer Shoes Are Ready to Blaze the Trails](https://www.highsnobiety.com/p/nike-blazer-mid-roam-shoes/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -6310,20 +6796,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Charli D Amelio
 
-## [Shaboozey Dresses Exactly How Shaboozey Sounds](https://www.highsnobiety.com/p/shaboozey-camo-crocs-nyc-outfit/)
+## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 26 Aug 2024 17:27:55 GMT*
-
-
-## Cardi B
-
-## [Nike's Napoli Sneaker Is Destined To Be a Fan Favorite](https://www.highsnobiety.com/p/nike-air-max-plus-tn-napoli/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 07:43:17 GMT*
+*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
 
 
 ## Cardi B
@@ -6364,7 +6841,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Cardi B
 
-## [Vans’ Classic Slip-On Has Never Looked This Luxe](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
+## [Vans’ Classic Slip-On Is Now More Jewelry Than Sneaker](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -6400,29 +6877,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Cardi B
 
-## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
+## [Teddy Santis Saved His Most Delicious NB Dad Shoes for ALD](https://www.highsnobiety.com/p/aime-leon-dore-new-balance-990v4-where-to-buy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 26 Aug 2024 16:56:59 GMT*
-
-
-## Cardi B
-
-## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
-
-
-## Cardi B
-
-## [Nike's Beefed-Up Blazer Shoes Are Ready to Blaze the Trails](https://www.highsnobiety.com/p/nike-blazer-mid-roam-shoes/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 26 Aug 2024 19:45:59 GMT*
+*Published on: Tue, 27 Aug 2024 15:38:33 GMT*
 
 
 ## Cardi B
@@ -6434,13 +6893,40 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 26 Aug 2024 17:27:55 GMT*
 
 
-## Bryan Cranston
+## Cardi B
+
+## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 16:56:59 GMT*
+
+
+## Cardi B
 
 ## [Nike's Napoli Sneaker Is Destined To Be a Fan Favorite](https://www.highsnobiety.com/p/nike-air-max-plus-tn-napoli/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Tue, 27 Aug 2024 07:43:17 GMT*
+
+
+## Cardi B
+
+## [Nike's Beefed-Up Blazer Shoes Are Ready to Blaze the Trails](https://www.highsnobiety.com/p/nike-blazer-mid-roam-shoes/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 19:45:59 GMT*
+
+
+## Cardi B
+
+## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
 
 
 ## Bryan Cranston
@@ -6481,7 +6967,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Bryan Cranston
 
-## [Vans’ Classic Slip-On Has Never Looked This Luxe](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
+## [Vans’ Classic Slip-On Is Now More Jewelry Than Sneaker](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -6517,6 +7003,24 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Bryan Cranston
 
+## [Teddy Santis Saved His Most Delicious NB Dad Shoes for ALD](https://www.highsnobiety.com/p/aime-leon-dore-new-balance-990v4-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 15:38:33 GMT*
+
+
+## Bryan Cranston
+
+## [Shaboozey Dresses Exactly How Shaboozey Sounds](https://www.highsnobiety.com/p/shaboozey-camo-crocs-nyc-outfit/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 17:27:55 GMT*
+
+
+## Bryan Cranston
+
 ## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -6526,11 +7030,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Bryan Cranston
 
-## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
+## [Nike's Napoli Sneaker Is Destined To Be a Fan Favorite](https://www.highsnobiety.com/p/nike-air-max-plus-tn-napoli/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
+*Published on: Tue, 27 Aug 2024 07:43:17 GMT*
 
 
 ## Bryan Cranston
@@ -6544,11 +7048,110 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Bryan Cranston
 
+## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
+
+
+## Brielle Biermann
+
+## [Tyler, the Creator's Style Is So Good, His Friends Are Stealing It](https://www.highsnobiety.com/p/tyler-the-creator-shorts-loafers-outfit/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 08:00:45 GMT*
+
+
+## Brielle Biermann
+
+## [Is HOKA’s GORE-TEX Hybrid Puffer Boot Its Coziest Sneaker Yet?](https://www.highsnobiety.com/p/hoka-kaha-2-frost-moc-gore-tex/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 08:15:41 GMT*
+
+
+## Brielle Biermann
+
+## [Nike, Yoon Ahn  Naomi Osaka Serve Up Tennis Magic](https://www.highsnobiety.com/p/yoon-ahn-nike-tennis-collab/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 09:00:02 GMT*
+
+
+## Brielle Biermann
+
+## [Nike's Trusty Dad Shoe Has New Beautifully Rugged Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-roam-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 09:02:00 GMT*
+
+
+## Brielle Biermann
+
+## [Vans’ Classic Slip-On Is Now More Jewelry Than Sneaker](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 09:07:58 GMT*
+
+
+## Brielle Biermann
+
+## [Ice Studios' First New Balance Sneaker Is an Ice-Cold Must Already](https://www.highsnobiety.com/p/ice-studios-new-balance-collab/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 10:15:00 GMT*
+
+
+## Brielle Biermann
+
+## [Nike’s Simple Mule Becomes Fluff-tastic](https://www.highsnobiety.com/p/nike-calm-mule-fluff/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 10:33:52 GMT*
+
+
+## Brielle Biermann
+
+## [Nike's Skate-Worthy Jordan 4 Sneakers Look Very Pretty in Pink](https://www.highsnobiety.com/p/jordan-4-rm-sneakers-pink-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 14:15:00 GMT*
+
+
+## Brielle Biermann
+
+## [Teddy Santis Saved His Most Delicious NB Dad Shoes for ALD](https://www.highsnobiety.com/p/aime-leon-dore-new-balance-990v4-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 15:38:33 GMT*
+
+
+## Brielle Biermann
+
 ## [Shaboozey Dresses Exactly How Shaboozey Sounds](https://www.highsnobiety.com/p/shaboozey-camo-crocs-nyc-outfit/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Mon, 26 Aug 2024 17:27:55 GMT*
+
+
+## Brielle Biermann
+
+## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 16:56:59 GMT*
 
 
 ## Brielle Biermann
@@ -6562,96 +7165,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Brielle Biermann
 
-## [Tyler, the Creator's Style Is So Good, His Friends Are Stealing It](https://www.highsnobiety.com/p/tyler-the-creator-shorts-loafers-outfit/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 08:00:45 GMT*
-
-
-## Brielle Biermann
-
-## [Is HOKA’s GORE-TEX Hybrid Puffer Boot Its Coziest Sneaker Yet?](https://www.highsnobiety.com/p/hoka-kaha-2-frost-moc-gore-tex/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 08:15:41 GMT*
-
-
-## Brielle Biermann
-
-## [Nike, Yoon Ahn  Naomi Osaka Serve Up Tennis Magic](https://www.highsnobiety.com/p/yoon-ahn-nike-tennis-collab/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 09:00:02 GMT*
-
-
-## Brielle Biermann
-
-## [Nike's Trusty Dad Shoe Has New Beautifully Rugged Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-roam-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 09:02:00 GMT*
-
-
-## Brielle Biermann
-
-## [Vans’ Classic Slip-On Has Never Looked This Luxe](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 09:07:58 GMT*
-
-
-## Brielle Biermann
-
-## [Ice Studios' First New Balance Sneaker Is an Ice-Cold Must Already](https://www.highsnobiety.com/p/ice-studios-new-balance-collab/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 10:15:00 GMT*
-
-
-## Brielle Biermann
-
-## [Nike’s Simple Mule Becomes Fluff-tastic](https://www.highsnobiety.com/p/nike-calm-mule-fluff/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 10:33:52 GMT*
-
-
-## Brielle Biermann
-
-## [Nike's Skate-Worthy Jordan 4 Sneakers Look Very Pretty in Pink](https://www.highsnobiety.com/p/jordan-4-rm-sneakers-pink-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 14:15:00 GMT*
-
-
-## Brielle Biermann
-
-## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 26 Aug 2024 16:56:59 GMT*
-
-
-## Brielle Biermann
-
-## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
-
-
-## Brielle Biermann
-
 ## [Nike's Beefed-Up Blazer Shoes Are Ready to Blaze the Trails](https://www.highsnobiety.com/p/nike-blazer-mid-roam-shoes/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -6661,20 +7174,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Brielle Biermann
 
-## [Shaboozey Dresses Exactly How Shaboozey Sounds](https://www.highsnobiety.com/p/shaboozey-camo-crocs-nyc-outfit/)
+## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 26 Aug 2024 17:27:55 GMT*
-
-
-## Dua Lipa
-
-## [Nike's Napoli Sneaker Is Destined To Be a Fan Favorite](https://www.highsnobiety.com/p/nike-air-max-plus-tn-napoli/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 07:43:17 GMT*
+*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
 
 
 ## Dua Lipa
@@ -6715,7 +7219,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Dua Lipa
 
-## [Vans’ Classic Slip-On Has Never Looked This Luxe](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
+## [Vans’ Classic Slip-On Is Now More Jewelry Than Sneaker](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -6751,29 +7255,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Dua Lipa
 
-## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
+## [Teddy Santis Saved His Most Delicious NB Dad Shoes for ALD](https://www.highsnobiety.com/p/aime-leon-dore-new-balance-990v4-where-to-buy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 26 Aug 2024 16:56:59 GMT*
-
-
-## Dua Lipa
-
-## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
-
-
-## Dua Lipa
-
-## [Nike's Beefed-Up Blazer Shoes Are Ready to Blaze the Trails](https://www.highsnobiety.com/p/nike-blazer-mid-roam-shoes/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 26 Aug 2024 19:45:59 GMT*
+*Published on: Tue, 27 Aug 2024 15:38:33 GMT*
 
 
 ## Dua Lipa
@@ -6785,13 +7271,40 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 26 Aug 2024 17:27:55 GMT*
 
 
-## Drake
+## Dua Lipa
+
+## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 16:56:59 GMT*
+
+
+## Dua Lipa
 
 ## [Nike's Napoli Sneaker Is Destined To Be a Fan Favorite](https://www.highsnobiety.com/p/nike-air-max-plus-tn-napoli/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Tue, 27 Aug 2024 07:43:17 GMT*
+
+
+## Dua Lipa
+
+## [Nike's Beefed-Up Blazer Shoes Are Ready to Blaze the Trails](https://www.highsnobiety.com/p/nike-blazer-mid-roam-shoes/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 19:45:59 GMT*
+
+
+## Dua Lipa
+
+## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
 
 
 ## Drake
@@ -6832,7 +7345,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Drake
 
-## [Vans’ Classic Slip-On Has Never Looked This Luxe](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
+## [Vans’ Classic Slip-On Is Now More Jewelry Than Sneaker](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -6868,6 +7381,24 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Drake
 
+## [Teddy Santis Saved His Most Delicious NB Dad Shoes for ALD](https://www.highsnobiety.com/p/aime-leon-dore-new-balance-990v4-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 15:38:33 GMT*
+
+
+## Drake
+
+## [Shaboozey Dresses Exactly How Shaboozey Sounds](https://www.highsnobiety.com/p/shaboozey-camo-crocs-nyc-outfit/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 17:27:55 GMT*
+
+
+## Drake
+
 ## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -6877,11 +7408,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Drake
 
-## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
+## [Nike's Napoli Sneaker Is Destined To Be a Fan Favorite](https://www.highsnobiety.com/p/nike-air-max-plus-tn-napoli/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
+*Published on: Tue, 27 Aug 2024 07:43:17 GMT*
 
 
 ## Drake
@@ -6895,11 +7426,110 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Drake
 
+## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
+
+
+## Jenner
+
+## [Tyler, the Creator's Style Is So Good, His Friends Are Stealing It](https://www.highsnobiety.com/p/tyler-the-creator-shorts-loafers-outfit/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 08:00:45 GMT*
+
+
+## Jenner
+
+## [Is HOKA’s GORE-TEX Hybrid Puffer Boot Its Coziest Sneaker Yet?](https://www.highsnobiety.com/p/hoka-kaha-2-frost-moc-gore-tex/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 08:15:41 GMT*
+
+
+## Jenner
+
+## [Nike, Yoon Ahn  Naomi Osaka Serve Up Tennis Magic](https://www.highsnobiety.com/p/yoon-ahn-nike-tennis-collab/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 09:00:02 GMT*
+
+
+## Jenner
+
+## [Nike's Trusty Dad Shoe Has New Beautifully Rugged Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-roam-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 09:02:00 GMT*
+
+
+## Jenner
+
+## [Vans’ Classic Slip-On Is Now More Jewelry Than Sneaker](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 09:07:58 GMT*
+
+
+## Jenner
+
+## [Ice Studios' First New Balance Sneaker Is an Ice-Cold Must Already](https://www.highsnobiety.com/p/ice-studios-new-balance-collab/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 10:15:00 GMT*
+
+
+## Jenner
+
+## [Nike’s Simple Mule Becomes Fluff-tastic](https://www.highsnobiety.com/p/nike-calm-mule-fluff/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 10:33:52 GMT*
+
+
+## Jenner
+
+## [Nike's Skate-Worthy Jordan 4 Sneakers Look Very Pretty in Pink](https://www.highsnobiety.com/p/jordan-4-rm-sneakers-pink-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 14:15:00 GMT*
+
+
+## Jenner
+
+## [Teddy Santis Saved His Most Delicious NB Dad Shoes for ALD](https://www.highsnobiety.com/p/aime-leon-dore-new-balance-990v4-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 15:38:33 GMT*
+
+
+## Jenner
+
 ## [Shaboozey Dresses Exactly How Shaboozey Sounds](https://www.highsnobiety.com/p/shaboozey-camo-crocs-nyc-outfit/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Mon, 26 Aug 2024 17:27:55 GMT*
+
+
+## Jenner
+
+## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 16:56:59 GMT*
 
 
 ## Jenner
@@ -6913,96 +7543,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Jenner
 
-## [Tyler, the Creator's Style Is So Good, His Friends Are Stealing It](https://www.highsnobiety.com/p/tyler-the-creator-shorts-loafers-outfit/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 08:00:45 GMT*
-
-
-## Jenner
-
-## [Is HOKA’s GORE-TEX Hybrid Puffer Boot Its Coziest Sneaker Yet?](https://www.highsnobiety.com/p/hoka-kaha-2-frost-moc-gore-tex/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 08:15:41 GMT*
-
-
-## Jenner
-
-## [Nike, Yoon Ahn  Naomi Osaka Serve Up Tennis Magic](https://www.highsnobiety.com/p/yoon-ahn-nike-tennis-collab/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 09:00:02 GMT*
-
-
-## Jenner
-
-## [Nike's Trusty Dad Shoe Has New Beautifully Rugged Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-roam-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 09:02:00 GMT*
-
-
-## Jenner
-
-## [Vans’ Classic Slip-On Has Never Looked This Luxe](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 09:07:58 GMT*
-
-
-## Jenner
-
-## [Ice Studios' First New Balance Sneaker Is an Ice-Cold Must Already](https://www.highsnobiety.com/p/ice-studios-new-balance-collab/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 10:15:00 GMT*
-
-
-## Jenner
-
-## [Nike’s Simple Mule Becomes Fluff-tastic](https://www.highsnobiety.com/p/nike-calm-mule-fluff/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 10:33:52 GMT*
-
-
-## Jenner
-
-## [Nike's Skate-Worthy Jordan 4 Sneakers Look Very Pretty in Pink](https://www.highsnobiety.com/p/jordan-4-rm-sneakers-pink-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 14:15:00 GMT*
-
-
-## Jenner
-
-## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 26 Aug 2024 16:56:59 GMT*
-
-
-## Jenner
-
-## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
-
-
-## Jenner
-
 ## [Nike's Beefed-Up Blazer Shoes Are Ready to Blaze the Trails](https://www.highsnobiety.com/p/nike-blazer-mid-roam-shoes/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -7012,20 +7552,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Jenner
 
-## [Shaboozey Dresses Exactly How Shaboozey Sounds](https://www.highsnobiety.com/p/shaboozey-camo-crocs-nyc-outfit/)
+## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 26 Aug 2024 17:27:55 GMT*
-
-
-## J. Cole
-
-## [Nike's Napoli Sneaker Is Destined To Be a Fan Favorite](https://www.highsnobiety.com/p/nike-air-max-plus-tn-napoli/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 07:43:17 GMT*
+*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
 
 
 ## J. Cole
@@ -7066,7 +7597,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## J. Cole
 
-## [Vans’ Classic Slip-On Has Never Looked This Luxe](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
+## [Vans’ Classic Slip-On Is Now More Jewelry Than Sneaker](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -7102,29 +7633,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## J. Cole
 
-## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
+## [Teddy Santis Saved His Most Delicious NB Dad Shoes for ALD](https://www.highsnobiety.com/p/aime-leon-dore-new-balance-990v4-where-to-buy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 26 Aug 2024 16:56:59 GMT*
-
-
-## J. Cole
-
-## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
-
-
-## J. Cole
-
-## [Nike's Beefed-Up Blazer Shoes Are Ready to Blaze the Trails](https://www.highsnobiety.com/p/nike-blazer-mid-roam-shoes/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 26 Aug 2024 19:45:59 GMT*
+*Published on: Tue, 27 Aug 2024 15:38:33 GMT*
 
 
 ## J. Cole
@@ -7136,13 +7649,40 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 26 Aug 2024 17:27:55 GMT*
 
 
-## Jerrod Carmichael
+## J. Cole
+
+## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 16:56:59 GMT*
+
+
+## J. Cole
 
 ## [Nike's Napoli Sneaker Is Destined To Be a Fan Favorite](https://www.highsnobiety.com/p/nike-air-max-plus-tn-napoli/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Tue, 27 Aug 2024 07:43:17 GMT*
+
+
+## J. Cole
+
+## [Nike's Beefed-Up Blazer Shoes Are Ready to Blaze the Trails](https://www.highsnobiety.com/p/nike-blazer-mid-roam-shoes/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 19:45:59 GMT*
+
+
+## J. Cole
+
+## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
 
 
 ## Jerrod Carmichael
@@ -7183,7 +7723,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Jerrod Carmichael
 
-## [Vans’ Classic Slip-On Has Never Looked This Luxe](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
+## [Vans’ Classic Slip-On Is Now More Jewelry Than Sneaker](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -7219,6 +7759,24 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Jerrod Carmichael
 
+## [Teddy Santis Saved His Most Delicious NB Dad Shoes for ALD](https://www.highsnobiety.com/p/aime-leon-dore-new-balance-990v4-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 15:38:33 GMT*
+
+
+## Jerrod Carmichael
+
+## [Shaboozey Dresses Exactly How Shaboozey Sounds](https://www.highsnobiety.com/p/shaboozey-camo-crocs-nyc-outfit/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 17:27:55 GMT*
+
+
+## Jerrod Carmichael
+
 ## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -7228,11 +7786,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Jerrod Carmichael
 
-## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
+## [Nike's Napoli Sneaker Is Destined To Be a Fan Favorite](https://www.highsnobiety.com/p/nike-air-max-plus-tn-napoli/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
+*Published on: Tue, 27 Aug 2024 07:43:17 GMT*
 
 
 ## Jerrod Carmichael
@@ -7246,11 +7804,110 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Jerrod Carmichael
 
+## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
+
+
+## Jennifer Lawrence
+
+## [Tyler, the Creator's Style Is So Good, His Friends Are Stealing It](https://www.highsnobiety.com/p/tyler-the-creator-shorts-loafers-outfit/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 08:00:45 GMT*
+
+
+## Jennifer Lawrence
+
+## [Is HOKA’s GORE-TEX Hybrid Puffer Boot Its Coziest Sneaker Yet?](https://www.highsnobiety.com/p/hoka-kaha-2-frost-moc-gore-tex/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 08:15:41 GMT*
+
+
+## Jennifer Lawrence
+
+## [Nike, Yoon Ahn  Naomi Osaka Serve Up Tennis Magic](https://www.highsnobiety.com/p/yoon-ahn-nike-tennis-collab/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 09:00:02 GMT*
+
+
+## Jennifer Lawrence
+
+## [Nike's Trusty Dad Shoe Has New Beautifully Rugged Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-roam-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 09:02:00 GMT*
+
+
+## Jennifer Lawrence
+
+## [Vans’ Classic Slip-On Is Now More Jewelry Than Sneaker](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 09:07:58 GMT*
+
+
+## Jennifer Lawrence
+
+## [Ice Studios' First New Balance Sneaker Is an Ice-Cold Must Already](https://www.highsnobiety.com/p/ice-studios-new-balance-collab/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 10:15:00 GMT*
+
+
+## Jennifer Lawrence
+
+## [Nike’s Simple Mule Becomes Fluff-tastic](https://www.highsnobiety.com/p/nike-calm-mule-fluff/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 10:33:52 GMT*
+
+
+## Jennifer Lawrence
+
+## [Nike's Skate-Worthy Jordan 4 Sneakers Look Very Pretty in Pink](https://www.highsnobiety.com/p/jordan-4-rm-sneakers-pink-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 14:15:00 GMT*
+
+
+## Jennifer Lawrence
+
+## [Teddy Santis Saved His Most Delicious NB Dad Shoes for ALD](https://www.highsnobiety.com/p/aime-leon-dore-new-balance-990v4-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 15:38:33 GMT*
+
+
+## Jennifer Lawrence
+
 ## [Shaboozey Dresses Exactly How Shaboozey Sounds](https://www.highsnobiety.com/p/shaboozey-camo-crocs-nyc-outfit/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Mon, 26 Aug 2024 17:27:55 GMT*
+
+
+## Jennifer Lawrence
+
+## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 16:56:59 GMT*
 
 
 ## Jennifer Lawrence
@@ -7264,96 +7921,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Jennifer Lawrence
 
-## [Tyler, the Creator's Style Is So Good, His Friends Are Stealing It](https://www.highsnobiety.com/p/tyler-the-creator-shorts-loafers-outfit/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 08:00:45 GMT*
-
-
-## Jennifer Lawrence
-
-## [Is HOKA’s GORE-TEX Hybrid Puffer Boot Its Coziest Sneaker Yet?](https://www.highsnobiety.com/p/hoka-kaha-2-frost-moc-gore-tex/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 08:15:41 GMT*
-
-
-## Jennifer Lawrence
-
-## [Nike, Yoon Ahn  Naomi Osaka Serve Up Tennis Magic](https://www.highsnobiety.com/p/yoon-ahn-nike-tennis-collab/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 09:00:02 GMT*
-
-
-## Jennifer Lawrence
-
-## [Nike's Trusty Dad Shoe Has New Beautifully Rugged Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-roam-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 09:02:00 GMT*
-
-
-## Jennifer Lawrence
-
-## [Vans’ Classic Slip-On Has Never Looked This Luxe](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 09:07:58 GMT*
-
-
-## Jennifer Lawrence
-
-## [Ice Studios' First New Balance Sneaker Is an Ice-Cold Must Already](https://www.highsnobiety.com/p/ice-studios-new-balance-collab/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 10:15:00 GMT*
-
-
-## Jennifer Lawrence
-
-## [Nike’s Simple Mule Becomes Fluff-tastic](https://www.highsnobiety.com/p/nike-calm-mule-fluff/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 10:33:52 GMT*
-
-
-## Jennifer Lawrence
-
-## [Nike's Skate-Worthy Jordan 4 Sneakers Look Very Pretty in Pink](https://www.highsnobiety.com/p/jordan-4-rm-sneakers-pink-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 14:15:00 GMT*
-
-
-## Jennifer Lawrence
-
-## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 26 Aug 2024 16:56:59 GMT*
-
-
-## Jennifer Lawrence
-
-## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
-
-
-## Jennifer Lawrence
-
 ## [Nike's Beefed-Up Blazer Shoes Are Ready to Blaze the Trails](https://www.highsnobiety.com/p/nike-blazer-mid-roam-shoes/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -7363,20 +7930,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Jennifer Lawrence
 
-## [Shaboozey Dresses Exactly How Shaboozey Sounds](https://www.highsnobiety.com/p/shaboozey-camo-crocs-nyc-outfit/)
+## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 26 Aug 2024 17:27:55 GMT*
-
-
-## Joe Biden
-
-## [Nike's Napoli Sneaker Is Destined To Be a Fan Favorite](https://www.highsnobiety.com/p/nike-air-max-plus-tn-napoli/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 07:43:17 GMT*
+*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
 
 
 ## Joe Biden
@@ -7417,7 +7975,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Joe Biden
 
-## [Vans’ Classic Slip-On Has Never Looked This Luxe](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
+## [Vans’ Classic Slip-On Is Now More Jewelry Than Sneaker](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -7453,29 +8011,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Joe Biden
 
-## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
+## [Teddy Santis Saved His Most Delicious NB Dad Shoes for ALD](https://www.highsnobiety.com/p/aime-leon-dore-new-balance-990v4-where-to-buy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 26 Aug 2024 16:56:59 GMT*
-
-
-## Joe Biden
-
-## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
-
-
-## Joe Biden
-
-## [Nike's Beefed-Up Blazer Shoes Are Ready to Blaze the Trails](https://www.highsnobiety.com/p/nike-blazer-mid-roam-shoes/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 26 Aug 2024 19:45:59 GMT*
+*Published on: Tue, 27 Aug 2024 15:38:33 GMT*
 
 
 ## Joe Biden
@@ -7487,13 +8027,40 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 26 Aug 2024 17:27:55 GMT*
 
 
-## J.K. Simmons
+## Joe Biden
+
+## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 16:56:59 GMT*
+
+
+## Joe Biden
 
 ## [Nike's Napoli Sneaker Is Destined To Be a Fan Favorite](https://www.highsnobiety.com/p/nike-air-max-plus-tn-napoli/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Tue, 27 Aug 2024 07:43:17 GMT*
+
+
+## Joe Biden
+
+## [Nike's Beefed-Up Blazer Shoes Are Ready to Blaze the Trails](https://www.highsnobiety.com/p/nike-blazer-mid-roam-shoes/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 19:45:59 GMT*
+
+
+## Joe Biden
+
+## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
 
 
 ## J.K. Simmons
@@ -7534,7 +8101,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## J.K. Simmons
 
-## [Vans’ Classic Slip-On Has Never Looked This Luxe](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
+## [Vans’ Classic Slip-On Is Now More Jewelry Than Sneaker](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -7570,6 +8137,24 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## J.K. Simmons
 
+## [Teddy Santis Saved His Most Delicious NB Dad Shoes for ALD](https://www.highsnobiety.com/p/aime-leon-dore-new-balance-990v4-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 15:38:33 GMT*
+
+
+## J.K. Simmons
+
+## [Shaboozey Dresses Exactly How Shaboozey Sounds](https://www.highsnobiety.com/p/shaboozey-camo-crocs-nyc-outfit/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 17:27:55 GMT*
+
+
+## J.K. Simmons
+
 ## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -7579,11 +8164,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## J.K. Simmons
 
-## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
+## [Nike's Napoli Sneaker Is Destined To Be a Fan Favorite](https://www.highsnobiety.com/p/nike-air-max-plus-tn-napoli/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
+*Published on: Tue, 27 Aug 2024 07:43:17 GMT*
 
 
 ## J.K. Simmons
@@ -7597,11 +8182,110 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## J.K. Simmons
 
+## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
+
+
+## Kamala Harris
+
+## [Tyler, the Creator's Style Is So Good, His Friends Are Stealing It](https://www.highsnobiety.com/p/tyler-the-creator-shorts-loafers-outfit/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 08:00:45 GMT*
+
+
+## Kamala Harris
+
+## [Is HOKA’s GORE-TEX Hybrid Puffer Boot Its Coziest Sneaker Yet?](https://www.highsnobiety.com/p/hoka-kaha-2-frost-moc-gore-tex/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 08:15:41 GMT*
+
+
+## Kamala Harris
+
+## [Nike, Yoon Ahn  Naomi Osaka Serve Up Tennis Magic](https://www.highsnobiety.com/p/yoon-ahn-nike-tennis-collab/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 09:00:02 GMT*
+
+
+## Kamala Harris
+
+## [Nike's Trusty Dad Shoe Has New Beautifully Rugged Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-roam-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 09:02:00 GMT*
+
+
+## Kamala Harris
+
+## [Vans’ Classic Slip-On Is Now More Jewelry Than Sneaker](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 09:07:58 GMT*
+
+
+## Kamala Harris
+
+## [Ice Studios' First New Balance Sneaker Is an Ice-Cold Must Already](https://www.highsnobiety.com/p/ice-studios-new-balance-collab/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 10:15:00 GMT*
+
+
+## Kamala Harris
+
+## [Nike’s Simple Mule Becomes Fluff-tastic](https://www.highsnobiety.com/p/nike-calm-mule-fluff/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 10:33:52 GMT*
+
+
+## Kamala Harris
+
+## [Nike's Skate-Worthy Jordan 4 Sneakers Look Very Pretty in Pink](https://www.highsnobiety.com/p/jordan-4-rm-sneakers-pink-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 14:15:00 GMT*
+
+
+## Kamala Harris
+
+## [Teddy Santis Saved His Most Delicious NB Dad Shoes for ALD](https://www.highsnobiety.com/p/aime-leon-dore-new-balance-990v4-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 15:38:33 GMT*
+
+
+## Kamala Harris
+
 ## [Shaboozey Dresses Exactly How Shaboozey Sounds](https://www.highsnobiety.com/p/shaboozey-camo-crocs-nyc-outfit/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Mon, 26 Aug 2024 17:27:55 GMT*
+
+
+## Kamala Harris
+
+## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 16:56:59 GMT*
 
 
 ## Kamala Harris
@@ -7615,96 +8299,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Kamala Harris
 
-## [Tyler, the Creator's Style Is So Good, His Friends Are Stealing It](https://www.highsnobiety.com/p/tyler-the-creator-shorts-loafers-outfit/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 08:00:45 GMT*
-
-
-## Kamala Harris
-
-## [Is HOKA’s GORE-TEX Hybrid Puffer Boot Its Coziest Sneaker Yet?](https://www.highsnobiety.com/p/hoka-kaha-2-frost-moc-gore-tex/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 08:15:41 GMT*
-
-
-## Kamala Harris
-
-## [Nike, Yoon Ahn  Naomi Osaka Serve Up Tennis Magic](https://www.highsnobiety.com/p/yoon-ahn-nike-tennis-collab/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 09:00:02 GMT*
-
-
-## Kamala Harris
-
-## [Nike's Trusty Dad Shoe Has New Beautifully Rugged Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-roam-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 09:02:00 GMT*
-
-
-## Kamala Harris
-
-## [Vans’ Classic Slip-On Has Never Looked This Luxe](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 09:07:58 GMT*
-
-
-## Kamala Harris
-
-## [Ice Studios' First New Balance Sneaker Is an Ice-Cold Must Already](https://www.highsnobiety.com/p/ice-studios-new-balance-collab/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 10:15:00 GMT*
-
-
-## Kamala Harris
-
-## [Nike’s Simple Mule Becomes Fluff-tastic](https://www.highsnobiety.com/p/nike-calm-mule-fluff/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 10:33:52 GMT*
-
-
-## Kamala Harris
-
-## [Nike's Skate-Worthy Jordan 4 Sneakers Look Very Pretty in Pink](https://www.highsnobiety.com/p/jordan-4-rm-sneakers-pink-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 14:15:00 GMT*
-
-
-## Kamala Harris
-
-## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 26 Aug 2024 16:56:59 GMT*
-
-
-## Kamala Harris
-
-## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
-
-
-## Kamala Harris
-
 ## [Nike's Beefed-Up Blazer Shoes Are Ready to Blaze the Trails](https://www.highsnobiety.com/p/nike-blazer-mid-roam-shoes/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -7714,20 +8308,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Kamala Harris
 
-## [Shaboozey Dresses Exactly How Shaboozey Sounds](https://www.highsnobiety.com/p/shaboozey-camo-crocs-nyc-outfit/)
+## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 26 Aug 2024 17:27:55 GMT*
-
-
-## John C Reilly
-
-## [Nike's Napoli Sneaker Is Destined To Be a Fan Favorite](https://www.highsnobiety.com/p/nike-air-max-plus-tn-napoli/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 07:43:17 GMT*
+*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
 
 
 ## John C Reilly
@@ -7768,7 +8353,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## John C Reilly
 
-## [Vans’ Classic Slip-On Has Never Looked This Luxe](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
+## [Vans’ Classic Slip-On Is Now More Jewelry Than Sneaker](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -7804,29 +8389,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## John C Reilly
 
-## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
+## [Teddy Santis Saved His Most Delicious NB Dad Shoes for ALD](https://www.highsnobiety.com/p/aime-leon-dore-new-balance-990v4-where-to-buy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 26 Aug 2024 16:56:59 GMT*
-
-
-## John C Reilly
-
-## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
-
-
-## John C Reilly
-
-## [Nike's Beefed-Up Blazer Shoes Are Ready to Blaze the Trails](https://www.highsnobiety.com/p/nike-blazer-mid-roam-shoes/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 26 Aug 2024 19:45:59 GMT*
+*Published on: Tue, 27 Aug 2024 15:38:33 GMT*
 
 
 ## John C Reilly
@@ -7838,13 +8405,40 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 26 Aug 2024 17:27:55 GMT*
 
 
-## Kardashian
+## John C Reilly
+
+## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 16:56:59 GMT*
+
+
+## John C Reilly
 
 ## [Nike's Napoli Sneaker Is Destined To Be a Fan Favorite](https://www.highsnobiety.com/p/nike-air-max-plus-tn-napoli/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Tue, 27 Aug 2024 07:43:17 GMT*
+
+
+## John C Reilly
+
+## [Nike's Beefed-Up Blazer Shoes Are Ready to Blaze the Trails](https://www.highsnobiety.com/p/nike-blazer-mid-roam-shoes/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 19:45:59 GMT*
+
+
+## John C Reilly
+
+## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
 
 
 ## Kardashian
@@ -7885,7 +8479,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Kardashian
 
-## [Vans’ Classic Slip-On Has Never Looked This Luxe](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
+## [Vans’ Classic Slip-On Is Now More Jewelry Than Sneaker](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -7921,6 +8515,24 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Kardashian
 
+## [Teddy Santis Saved His Most Delicious NB Dad Shoes for ALD](https://www.highsnobiety.com/p/aime-leon-dore-new-balance-990v4-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 15:38:33 GMT*
+
+
+## Kardashian
+
+## [Shaboozey Dresses Exactly How Shaboozey Sounds](https://www.highsnobiety.com/p/shaboozey-camo-crocs-nyc-outfit/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 17:27:55 GMT*
+
+
+## Kardashian
+
 ## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -7930,11 +8542,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Kardashian
 
-## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
+## [Nike's Napoli Sneaker Is Destined To Be a Fan Favorite](https://www.highsnobiety.com/p/nike-air-max-plus-tn-napoli/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
+*Published on: Tue, 27 Aug 2024 07:43:17 GMT*
 
 
 ## Kardashian
@@ -7948,11 +8560,110 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Kardashian
 
+## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
+
+
+## Kanye
+
+## [Tyler, the Creator's Style Is So Good, His Friends Are Stealing It](https://www.highsnobiety.com/p/tyler-the-creator-shorts-loafers-outfit/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 08:00:45 GMT*
+
+
+## Kanye
+
+## [Is HOKA’s GORE-TEX Hybrid Puffer Boot Its Coziest Sneaker Yet?](https://www.highsnobiety.com/p/hoka-kaha-2-frost-moc-gore-tex/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 08:15:41 GMT*
+
+
+## Kanye
+
+## [Nike, Yoon Ahn  Naomi Osaka Serve Up Tennis Magic](https://www.highsnobiety.com/p/yoon-ahn-nike-tennis-collab/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 09:00:02 GMT*
+
+
+## Kanye
+
+## [Nike's Trusty Dad Shoe Has New Beautifully Rugged Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-roam-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 09:02:00 GMT*
+
+
+## Kanye
+
+## [Vans’ Classic Slip-On Is Now More Jewelry Than Sneaker](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 09:07:58 GMT*
+
+
+## Kanye
+
+## [Ice Studios' First New Balance Sneaker Is an Ice-Cold Must Already](https://www.highsnobiety.com/p/ice-studios-new-balance-collab/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 10:15:00 GMT*
+
+
+## Kanye
+
+## [Nike’s Simple Mule Becomes Fluff-tastic](https://www.highsnobiety.com/p/nike-calm-mule-fluff/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 10:33:52 GMT*
+
+
+## Kanye
+
+## [Nike's Skate-Worthy Jordan 4 Sneakers Look Very Pretty in Pink](https://www.highsnobiety.com/p/jordan-4-rm-sneakers-pink-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 14:15:00 GMT*
+
+
+## Kanye
+
+## [Teddy Santis Saved His Most Delicious NB Dad Shoes for ALD](https://www.highsnobiety.com/p/aime-leon-dore-new-balance-990v4-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 15:38:33 GMT*
+
+
+## Kanye
+
 ## [Shaboozey Dresses Exactly How Shaboozey Sounds](https://www.highsnobiety.com/p/shaboozey-camo-crocs-nyc-outfit/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Mon, 26 Aug 2024 17:27:55 GMT*
+
+
+## Kanye
+
+## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 16:56:59 GMT*
 
 
 ## Kanye
@@ -7966,96 +8677,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Kanye
 
-## [Tyler, the Creator's Style Is So Good, His Friends Are Stealing It](https://www.highsnobiety.com/p/tyler-the-creator-shorts-loafers-outfit/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 08:00:45 GMT*
-
-
-## Kanye
-
-## [Is HOKA’s GORE-TEX Hybrid Puffer Boot Its Coziest Sneaker Yet?](https://www.highsnobiety.com/p/hoka-kaha-2-frost-moc-gore-tex/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 08:15:41 GMT*
-
-
-## Kanye
-
-## [Nike, Yoon Ahn  Naomi Osaka Serve Up Tennis Magic](https://www.highsnobiety.com/p/yoon-ahn-nike-tennis-collab/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 09:00:02 GMT*
-
-
-## Kanye
-
-## [Nike's Trusty Dad Shoe Has New Beautifully Rugged Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-roam-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 09:02:00 GMT*
-
-
-## Kanye
-
-## [Vans’ Classic Slip-On Has Never Looked This Luxe](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 09:07:58 GMT*
-
-
-## Kanye
-
-## [Ice Studios' First New Balance Sneaker Is an Ice-Cold Must Already](https://www.highsnobiety.com/p/ice-studios-new-balance-collab/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 10:15:00 GMT*
-
-
-## Kanye
-
-## [Nike’s Simple Mule Becomes Fluff-tastic](https://www.highsnobiety.com/p/nike-calm-mule-fluff/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 10:33:52 GMT*
-
-
-## Kanye
-
-## [Nike's Skate-Worthy Jordan 4 Sneakers Look Very Pretty in Pink](https://www.highsnobiety.com/p/jordan-4-rm-sneakers-pink-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 14:15:00 GMT*
-
-
-## Kanye
-
-## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 26 Aug 2024 16:56:59 GMT*
-
-
-## Kanye
-
-## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
-
-
-## Kanye
-
 ## [Nike's Beefed-Up Blazer Shoes Are Ready to Blaze the Trails](https://www.highsnobiety.com/p/nike-blazer-mid-roam-shoes/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -8065,20 +8686,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Kanye
 
-## [Shaboozey Dresses Exactly How Shaboozey Sounds](https://www.highsnobiety.com/p/shaboozey-camo-crocs-nyc-outfit/)
+## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 26 Aug 2024 17:27:55 GMT*
-
-
-## Zendaya
-
-## [Nike's Napoli Sneaker Is Destined To Be a Fan Favorite](https://www.highsnobiety.com/p/nike-air-max-plus-tn-napoli/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 07:43:17 GMT*
+*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
 
 
 ## Zendaya
@@ -8119,7 +8731,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Zendaya
 
-## [Vans’ Classic Slip-On Has Never Looked This Luxe](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
+## [Vans’ Classic Slip-On Is Now More Jewelry Than Sneaker](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -8155,29 +8767,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Zendaya
 
-## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
+## [Teddy Santis Saved His Most Delicious NB Dad Shoes for ALD](https://www.highsnobiety.com/p/aime-leon-dore-new-balance-990v4-where-to-buy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 26 Aug 2024 16:56:59 GMT*
-
-
-## Zendaya
-
-## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
-
-
-## Zendaya
-
-## [Nike's Beefed-Up Blazer Shoes Are Ready to Blaze the Trails](https://www.highsnobiety.com/p/nike-blazer-mid-roam-shoes/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 26 Aug 2024 19:45:59 GMT*
+*Published on: Tue, 27 Aug 2024 15:38:33 GMT*
 
 
 ## Zendaya
@@ -8189,13 +8783,40 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 26 Aug 2024 17:27:55 GMT*
 
 
-## Will Ferrell
+## Zendaya
+
+## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 16:56:59 GMT*
+
+
+## Zendaya
 
 ## [Nike's Napoli Sneaker Is Destined To Be a Fan Favorite](https://www.highsnobiety.com/p/nike-air-max-plus-tn-napoli/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Tue, 27 Aug 2024 07:43:17 GMT*
+
+
+## Zendaya
+
+## [Nike's Beefed-Up Blazer Shoes Are Ready to Blaze the Trails](https://www.highsnobiety.com/p/nike-blazer-mid-roam-shoes/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 19:45:59 GMT*
+
+
+## Zendaya
+
+## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
 
 
 ## Will Ferrell
@@ -8236,7 +8857,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Will Ferrell
 
-## [Vans’ Classic Slip-On Has Never Looked This Luxe](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
+## [Vans’ Classic Slip-On Is Now More Jewelry Than Sneaker](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -8272,6 +8893,24 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Will Ferrell
 
+## [Teddy Santis Saved His Most Delicious NB Dad Shoes for ALD](https://www.highsnobiety.com/p/aime-leon-dore-new-balance-990v4-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 15:38:33 GMT*
+
+
+## Will Ferrell
+
+## [Shaboozey Dresses Exactly How Shaboozey Sounds](https://www.highsnobiety.com/p/shaboozey-camo-crocs-nyc-outfit/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 17:27:55 GMT*
+
+
+## Will Ferrell
+
 ## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -8281,11 +8920,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Will Ferrell
 
-## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
+## [Nike's Napoli Sneaker Is Destined To Be a Fan Favorite](https://www.highsnobiety.com/p/nike-air-max-plus-tn-napoli/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
+*Published on: Tue, 27 Aug 2024 07:43:17 GMT*
 
 
 ## Will Ferrell
@@ -8299,11 +8938,110 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Will Ferrell
 
+## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
+
+
+## Zazie Beetz
+
+## [Tyler, the Creator's Style Is So Good, His Friends Are Stealing It](https://www.highsnobiety.com/p/tyler-the-creator-shorts-loafers-outfit/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 08:00:45 GMT*
+
+
+## Zazie Beetz
+
+## [Is HOKA’s GORE-TEX Hybrid Puffer Boot Its Coziest Sneaker Yet?](https://www.highsnobiety.com/p/hoka-kaha-2-frost-moc-gore-tex/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 08:15:41 GMT*
+
+
+## Zazie Beetz
+
+## [Nike, Yoon Ahn  Naomi Osaka Serve Up Tennis Magic](https://www.highsnobiety.com/p/yoon-ahn-nike-tennis-collab/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 09:00:02 GMT*
+
+
+## Zazie Beetz
+
+## [Nike's Trusty Dad Shoe Has New Beautifully Rugged Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-roam-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 09:02:00 GMT*
+
+
+## Zazie Beetz
+
+## [Vans’ Classic Slip-On Is Now More Jewelry Than Sneaker](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 09:07:58 GMT*
+
+
+## Zazie Beetz
+
+## [Ice Studios' First New Balance Sneaker Is an Ice-Cold Must Already](https://www.highsnobiety.com/p/ice-studios-new-balance-collab/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 10:15:00 GMT*
+
+
+## Zazie Beetz
+
+## [Nike’s Simple Mule Becomes Fluff-tastic](https://www.highsnobiety.com/p/nike-calm-mule-fluff/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 10:33:52 GMT*
+
+
+## Zazie Beetz
+
+## [Nike's Skate-Worthy Jordan 4 Sneakers Look Very Pretty in Pink](https://www.highsnobiety.com/p/jordan-4-rm-sneakers-pink-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 14:15:00 GMT*
+
+
+## Zazie Beetz
+
+## [Teddy Santis Saved His Most Delicious NB Dad Shoes for ALD](https://www.highsnobiety.com/p/aime-leon-dore-new-balance-990v4-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 15:38:33 GMT*
+
+
+## Zazie Beetz
+
 ## [Shaboozey Dresses Exactly How Shaboozey Sounds](https://www.highsnobiety.com/p/shaboozey-camo-crocs-nyc-outfit/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Mon, 26 Aug 2024 17:27:55 GMT*
+
+
+## Zazie Beetz
+
+## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 16:56:59 GMT*
 
 
 ## Zazie Beetz
@@ -8317,96 +9055,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Zazie Beetz
 
-## [Tyler, the Creator's Style Is So Good, His Friends Are Stealing It](https://www.highsnobiety.com/p/tyler-the-creator-shorts-loafers-outfit/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 08:00:45 GMT*
-
-
-## Zazie Beetz
-
-## [Is HOKA’s GORE-TEX Hybrid Puffer Boot Its Coziest Sneaker Yet?](https://www.highsnobiety.com/p/hoka-kaha-2-frost-moc-gore-tex/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 08:15:41 GMT*
-
-
-## Zazie Beetz
-
-## [Nike, Yoon Ahn  Naomi Osaka Serve Up Tennis Magic](https://www.highsnobiety.com/p/yoon-ahn-nike-tennis-collab/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 09:00:02 GMT*
-
-
-## Zazie Beetz
-
-## [Nike's Trusty Dad Shoe Has New Beautifully Rugged Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-roam-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 09:02:00 GMT*
-
-
-## Zazie Beetz
-
-## [Vans’ Classic Slip-On Has Never Looked This Luxe](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 09:07:58 GMT*
-
-
-## Zazie Beetz
-
-## [Ice Studios' First New Balance Sneaker Is an Ice-Cold Must Already](https://www.highsnobiety.com/p/ice-studios-new-balance-collab/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 10:15:00 GMT*
-
-
-## Zazie Beetz
-
-## [Nike’s Simple Mule Becomes Fluff-tastic](https://www.highsnobiety.com/p/nike-calm-mule-fluff/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 10:33:52 GMT*
-
-
-## Zazie Beetz
-
-## [Nike's Skate-Worthy Jordan 4 Sneakers Look Very Pretty in Pink](https://www.highsnobiety.com/p/jordan-4-rm-sneakers-pink-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 14:15:00 GMT*
-
-
-## Zazie Beetz
-
-## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 26 Aug 2024 16:56:59 GMT*
-
-
-## Zazie Beetz
-
-## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
-
-
-## Zazie Beetz
-
 ## [Nike's Beefed-Up Blazer Shoes Are Ready to Blaze the Trails](https://www.highsnobiety.com/p/nike-blazer-mid-roam-shoes/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -8416,20 +9064,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Zazie Beetz
 
-## [Shaboozey Dresses Exactly How Shaboozey Sounds](https://www.highsnobiety.com/p/shaboozey-camo-crocs-nyc-outfit/)
+## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 26 Aug 2024 17:27:55 GMT*
-
-
-## Bob Odenkirk
-
-## [Nike's Napoli Sneaker Is Destined To Be a Fan Favorite](https://www.highsnobiety.com/p/nike-air-max-plus-tn-napoli/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 07:43:17 GMT*
+*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
 
 
 ## Bob Odenkirk
@@ -8470,7 +9109,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Bob Odenkirk
 
-## [Vans’ Classic Slip-On Has Never Looked This Luxe](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
+## [Vans’ Classic Slip-On Is Now More Jewelry Than Sneaker](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -8506,29 +9145,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Bob Odenkirk
 
-## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
+## [Teddy Santis Saved His Most Delicious NB Dad Shoes for ALD](https://www.highsnobiety.com/p/aime-leon-dore-new-balance-990v4-where-to-buy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 26 Aug 2024 16:56:59 GMT*
-
-
-## Bob Odenkirk
-
-## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
-
-
-## Bob Odenkirk
-
-## [Nike's Beefed-Up Blazer Shoes Are Ready to Blaze the Trails](https://www.highsnobiety.com/p/nike-blazer-mid-roam-shoes/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 26 Aug 2024 19:45:59 GMT*
+*Published on: Tue, 27 Aug 2024 15:38:33 GMT*
 
 
 ## Bob Odenkirk
@@ -8540,13 +9161,40 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 26 Aug 2024 17:27:55 GMT*
 
 
-## Brad Pitt
+## Bob Odenkirk
+
+## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 16:56:59 GMT*
+
+
+## Bob Odenkirk
 
 ## [Nike's Napoli Sneaker Is Destined To Be a Fan Favorite](https://www.highsnobiety.com/p/nike-air-max-plus-tn-napoli/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Tue, 27 Aug 2024 07:43:17 GMT*
+
+
+## Bob Odenkirk
+
+## [Nike's Beefed-Up Blazer Shoes Are Ready to Blaze the Trails](https://www.highsnobiety.com/p/nike-blazer-mid-roam-shoes/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 19:45:59 GMT*
+
+
+## Bob Odenkirk
+
+## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
 
 
 ## Brad Pitt
@@ -8587,7 +9235,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Brad Pitt
 
-## [Vans’ Classic Slip-On Has Never Looked This Luxe](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
+## [Vans’ Classic Slip-On Is Now More Jewelry Than Sneaker](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -8623,6 +9271,24 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Brad Pitt
 
+## [Teddy Santis Saved His Most Delicious NB Dad Shoes for ALD](https://www.highsnobiety.com/p/aime-leon-dore-new-balance-990v4-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 15:38:33 GMT*
+
+
+## Brad Pitt
+
+## [Shaboozey Dresses Exactly How Shaboozey Sounds](https://www.highsnobiety.com/p/shaboozey-camo-crocs-nyc-outfit/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 17:27:55 GMT*
+
+
+## Brad Pitt
+
 ## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -8632,11 +9298,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Brad Pitt
 
-## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
+## [Nike's Napoli Sneaker Is Destined To Be a Fan Favorite](https://www.highsnobiety.com/p/nike-air-max-plus-tn-napoli/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
+*Published on: Tue, 27 Aug 2024 07:43:17 GMT*
 
 
 ## Brad Pitt
@@ -8650,11 +9316,110 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Brad Pitt
 
+## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
+
+
+## Beyoncé
+
+## [Tyler, the Creator's Style Is So Good, His Friends Are Stealing It](https://www.highsnobiety.com/p/tyler-the-creator-shorts-loafers-outfit/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 08:00:45 GMT*
+
+
+## Beyoncé
+
+## [Is HOKA’s GORE-TEX Hybrid Puffer Boot Its Coziest Sneaker Yet?](https://www.highsnobiety.com/p/hoka-kaha-2-frost-moc-gore-tex/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 08:15:41 GMT*
+
+
+## Beyoncé
+
+## [Nike, Yoon Ahn  Naomi Osaka Serve Up Tennis Magic](https://www.highsnobiety.com/p/yoon-ahn-nike-tennis-collab/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 09:00:02 GMT*
+
+
+## Beyoncé
+
+## [Nike's Trusty Dad Shoe Has New Beautifully Rugged Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-roam-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 09:02:00 GMT*
+
+
+## Beyoncé
+
+## [Vans’ Classic Slip-On Is Now More Jewelry Than Sneaker](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 09:07:58 GMT*
+
+
+## Beyoncé
+
+## [Ice Studios' First New Balance Sneaker Is an Ice-Cold Must Already](https://www.highsnobiety.com/p/ice-studios-new-balance-collab/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 10:15:00 GMT*
+
+
+## Beyoncé
+
+## [Nike’s Simple Mule Becomes Fluff-tastic](https://www.highsnobiety.com/p/nike-calm-mule-fluff/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 10:33:52 GMT*
+
+
+## Beyoncé
+
+## [Nike's Skate-Worthy Jordan 4 Sneakers Look Very Pretty in Pink](https://www.highsnobiety.com/p/jordan-4-rm-sneakers-pink-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 14:15:00 GMT*
+
+
+## Beyoncé
+
+## [Teddy Santis Saved His Most Delicious NB Dad Shoes for ALD](https://www.highsnobiety.com/p/aime-leon-dore-new-balance-990v4-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 15:38:33 GMT*
+
+
+## Beyoncé
+
 ## [Shaboozey Dresses Exactly How Shaboozey Sounds](https://www.highsnobiety.com/p/shaboozey-camo-crocs-nyc-outfit/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Mon, 26 Aug 2024 17:27:55 GMT*
+
+
+## Beyoncé
+
+## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 16:56:59 GMT*
 
 
 ## Beyoncé
@@ -8668,96 +9433,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Beyoncé
 
-## [Tyler, the Creator's Style Is So Good, His Friends Are Stealing It](https://www.highsnobiety.com/p/tyler-the-creator-shorts-loafers-outfit/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 08:00:45 GMT*
-
-
-## Beyoncé
-
-## [Is HOKA’s GORE-TEX Hybrid Puffer Boot Its Coziest Sneaker Yet?](https://www.highsnobiety.com/p/hoka-kaha-2-frost-moc-gore-tex/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 08:15:41 GMT*
-
-
-## Beyoncé
-
-## [Nike, Yoon Ahn  Naomi Osaka Serve Up Tennis Magic](https://www.highsnobiety.com/p/yoon-ahn-nike-tennis-collab/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 09:00:02 GMT*
-
-
-## Beyoncé
-
-## [Nike's Trusty Dad Shoe Has New Beautifully Rugged Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-roam-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 09:02:00 GMT*
-
-
-## Beyoncé
-
-## [Vans’ Classic Slip-On Has Never Looked This Luxe](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 09:07:58 GMT*
-
-
-## Beyoncé
-
-## [Ice Studios' First New Balance Sneaker Is an Ice-Cold Must Already](https://www.highsnobiety.com/p/ice-studios-new-balance-collab/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 10:15:00 GMT*
-
-
-## Beyoncé
-
-## [Nike’s Simple Mule Becomes Fluff-tastic](https://www.highsnobiety.com/p/nike-calm-mule-fluff/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 10:33:52 GMT*
-
-
-## Beyoncé
-
-## [Nike's Skate-Worthy Jordan 4 Sneakers Look Very Pretty in Pink](https://www.highsnobiety.com/p/jordan-4-rm-sneakers-pink-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 14:15:00 GMT*
-
-
-## Beyoncé
-
-## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 26 Aug 2024 16:56:59 GMT*
-
-
-## Beyoncé
-
-## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
-
-
-## Beyoncé
-
 ## [Nike's Beefed-Up Blazer Shoes Are Ready to Blaze the Trails](https://www.highsnobiety.com/p/nike-blazer-mid-roam-shoes/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -8767,20 +9442,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Beyoncé
 
-## [Shaboozey Dresses Exactly How Shaboozey Sounds](https://www.highsnobiety.com/p/shaboozey-camo-crocs-nyc-outfit/)
+## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 26 Aug 2024 17:27:55 GMT*
-
-
-## Bia
-
-## [Nike's Napoli Sneaker Is Destined To Be a Fan Favorite](https://www.highsnobiety.com/p/nike-air-max-plus-tn-napoli/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 07:43:17 GMT*
+*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
 
 
 ## Bia
@@ -8821,7 +9487,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Bia
 
-## [Vans’ Classic Slip-On Has Never Looked This Luxe](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
+## [Vans’ Classic Slip-On Is Now More Jewelry Than Sneaker](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -8857,29 +9523,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Bia
 
-## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
+## [Teddy Santis Saved His Most Delicious NB Dad Shoes for ALD](https://www.highsnobiety.com/p/aime-leon-dore-new-balance-990v4-where-to-buy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 26 Aug 2024 16:56:59 GMT*
-
-
-## Bia
-
-## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
-
-
-## Bia
-
-## [Nike's Beefed-Up Blazer Shoes Are Ready to Blaze the Trails](https://www.highsnobiety.com/p/nike-blazer-mid-roam-shoes/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 26 Aug 2024 19:45:59 GMT*
+*Published on: Tue, 27 Aug 2024 15:38:33 GMT*
 
 
 ## Bia
@@ -8891,13 +9539,40 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 26 Aug 2024 17:27:55 GMT*
 
 
-## Avantika
+## Bia
+
+## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 16:56:59 GMT*
+
+
+## Bia
 
 ## [Nike's Napoli Sneaker Is Destined To Be a Fan Favorite](https://www.highsnobiety.com/p/nike-air-max-plus-tn-napoli/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Tue, 27 Aug 2024 07:43:17 GMT*
+
+
+## Bia
+
+## [Nike's Beefed-Up Blazer Shoes Are Ready to Blaze the Trails](https://www.highsnobiety.com/p/nike-blazer-mid-roam-shoes/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 19:45:59 GMT*
+
+
+## Bia
+
+## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
 
 
 ## Avantika
@@ -8938,7 +9613,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Avantika
 
-## [Vans’ Classic Slip-On Has Never Looked This Luxe](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
+## [Vans’ Classic Slip-On Is Now More Jewelry Than Sneaker](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -8974,6 +9649,24 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Avantika
 
+## [Teddy Santis Saved His Most Delicious NB Dad Shoes for ALD](https://www.highsnobiety.com/p/aime-leon-dore-new-balance-990v4-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 15:38:33 GMT*
+
+
+## Avantika
+
+## [Shaboozey Dresses Exactly How Shaboozey Sounds](https://www.highsnobiety.com/p/shaboozey-camo-crocs-nyc-outfit/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 17:27:55 GMT*
+
+
+## Avantika
+
 ## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -8983,11 +9676,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Avantika
 
-## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
+## [Nike's Napoli Sneaker Is Destined To Be a Fan Favorite](https://www.highsnobiety.com/p/nike-air-max-plus-tn-napoli/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
+*Published on: Tue, 27 Aug 2024 07:43:17 GMT*
 
 
 ## Avantika
@@ -9001,11 +9694,110 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Avantika
 
+## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
+
+
+## Bernie Sanders
+
+## [Tyler, the Creator's Style Is So Good, His Friends Are Stealing It](https://www.highsnobiety.com/p/tyler-the-creator-shorts-loafers-outfit/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 08:00:45 GMT*
+
+
+## Bernie Sanders
+
+## [Is HOKA’s GORE-TEX Hybrid Puffer Boot Its Coziest Sneaker Yet?](https://www.highsnobiety.com/p/hoka-kaha-2-frost-moc-gore-tex/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 08:15:41 GMT*
+
+
+## Bernie Sanders
+
+## [Nike, Yoon Ahn  Naomi Osaka Serve Up Tennis Magic](https://www.highsnobiety.com/p/yoon-ahn-nike-tennis-collab/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 09:00:02 GMT*
+
+
+## Bernie Sanders
+
+## [Nike's Trusty Dad Shoe Has New Beautifully Rugged Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-roam-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 09:02:00 GMT*
+
+
+## Bernie Sanders
+
+## [Vans’ Classic Slip-On Is Now More Jewelry Than Sneaker](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 09:07:58 GMT*
+
+
+## Bernie Sanders
+
+## [Ice Studios' First New Balance Sneaker Is an Ice-Cold Must Already](https://www.highsnobiety.com/p/ice-studios-new-balance-collab/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 10:15:00 GMT*
+
+
+## Bernie Sanders
+
+## [Nike’s Simple Mule Becomes Fluff-tastic](https://www.highsnobiety.com/p/nike-calm-mule-fluff/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 10:33:52 GMT*
+
+
+## Bernie Sanders
+
+## [Nike's Skate-Worthy Jordan 4 Sneakers Look Very Pretty in Pink](https://www.highsnobiety.com/p/jordan-4-rm-sneakers-pink-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 14:15:00 GMT*
+
+
+## Bernie Sanders
+
+## [Teddy Santis Saved His Most Delicious NB Dad Shoes for ALD](https://www.highsnobiety.com/p/aime-leon-dore-new-balance-990v4-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 15:38:33 GMT*
+
+
+## Bernie Sanders
+
 ## [Shaboozey Dresses Exactly How Shaboozey Sounds](https://www.highsnobiety.com/p/shaboozey-camo-crocs-nyc-outfit/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Mon, 26 Aug 2024 17:27:55 GMT*
+
+
+## Bernie Sanders
+
+## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 16:56:59 GMT*
 
 
 ## Bernie Sanders
@@ -9019,96 +9811,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Bernie Sanders
 
-## [Tyler, the Creator's Style Is So Good, His Friends Are Stealing It](https://www.highsnobiety.com/p/tyler-the-creator-shorts-loafers-outfit/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 08:00:45 GMT*
-
-
-## Bernie Sanders
-
-## [Is HOKA’s GORE-TEX Hybrid Puffer Boot Its Coziest Sneaker Yet?](https://www.highsnobiety.com/p/hoka-kaha-2-frost-moc-gore-tex/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 08:15:41 GMT*
-
-
-## Bernie Sanders
-
-## [Nike, Yoon Ahn  Naomi Osaka Serve Up Tennis Magic](https://www.highsnobiety.com/p/yoon-ahn-nike-tennis-collab/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 09:00:02 GMT*
-
-
-## Bernie Sanders
-
-## [Nike's Trusty Dad Shoe Has New Beautifully Rugged Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-roam-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 09:02:00 GMT*
-
-
-## Bernie Sanders
-
-## [Vans’ Classic Slip-On Has Never Looked This Luxe](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 09:07:58 GMT*
-
-
-## Bernie Sanders
-
-## [Ice Studios' First New Balance Sneaker Is an Ice-Cold Must Already](https://www.highsnobiety.com/p/ice-studios-new-balance-collab/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 10:15:00 GMT*
-
-
-## Bernie Sanders
-
-## [Nike’s Simple Mule Becomes Fluff-tastic](https://www.highsnobiety.com/p/nike-calm-mule-fluff/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 10:33:52 GMT*
-
-
-## Bernie Sanders
-
-## [Nike's Skate-Worthy Jordan 4 Sneakers Look Very Pretty in Pink](https://www.highsnobiety.com/p/jordan-4-rm-sneakers-pink-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 14:15:00 GMT*
-
-
-## Bernie Sanders
-
-## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 26 Aug 2024 16:56:59 GMT*
-
-
-## Bernie Sanders
-
-## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
-
-
-## Bernie Sanders
-
 ## [Nike's Beefed-Up Blazer Shoes Are Ready to Blaze the Trails](https://www.highsnobiety.com/p/nike-blazer-mid-roam-shoes/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -9118,20 +9820,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Bernie Sanders
 
-## [Shaboozey Dresses Exactly How Shaboozey Sounds](https://www.highsnobiety.com/p/shaboozey-camo-crocs-nyc-outfit/)
+## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 26 Aug 2024 17:27:55 GMT*
-
-
-## Big Sean
-
-## [Nike's Napoli Sneaker Is Destined To Be a Fan Favorite](https://www.highsnobiety.com/p/nike-air-max-plus-tn-napoli/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 07:43:17 GMT*
+*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
 
 
 ## Big Sean
@@ -9172,7 +9865,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Big Sean
 
-## [Vans’ Classic Slip-On Has Never Looked This Luxe](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
+## [Vans’ Classic Slip-On Is Now More Jewelry Than Sneaker](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -9208,29 +9901,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Big Sean
 
-## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
+## [Teddy Santis Saved His Most Delicious NB Dad Shoes for ALD](https://www.highsnobiety.com/p/aime-leon-dore-new-balance-990v4-where-to-buy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 26 Aug 2024 16:56:59 GMT*
-
-
-## Big Sean
-
-## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
-
-
-## Big Sean
-
-## [Nike's Beefed-Up Blazer Shoes Are Ready to Blaze the Trails](https://www.highsnobiety.com/p/nike-blazer-mid-roam-shoes/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 26 Aug 2024 19:45:59 GMT*
+*Published on: Tue, 27 Aug 2024 15:38:33 GMT*
 
 
 ## Big Sean
@@ -9242,13 +9917,40 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 26 Aug 2024 17:27:55 GMT*
 
 
-## BlockBoy JB
+## Big Sean
+
+## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 16:56:59 GMT*
+
+
+## Big Sean
 
 ## [Nike's Napoli Sneaker Is Destined To Be a Fan Favorite](https://www.highsnobiety.com/p/nike-air-max-plus-tn-napoli/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Tue, 27 Aug 2024 07:43:17 GMT*
+
+
+## Big Sean
+
+## [Nike's Beefed-Up Blazer Shoes Are Ready to Blaze the Trails](https://www.highsnobiety.com/p/nike-blazer-mid-roam-shoes/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 19:45:59 GMT*
+
+
+## Big Sean
+
+## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
 
 
 ## BlockBoy JB
@@ -9289,7 +9991,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## BlockBoy JB
 
-## [Vans’ Classic Slip-On Has Never Looked This Luxe](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
+## [Vans’ Classic Slip-On Is Now More Jewelry Than Sneaker](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -9325,29 +10027,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## BlockBoy JB
 
-## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
+## [Teddy Santis Saved His Most Delicious NB Dad Shoes for ALD](https://www.highsnobiety.com/p/aime-leon-dore-new-balance-990v4-where-to-buy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 26 Aug 2024 16:56:59 GMT*
-
-
-## BlockBoy JB
-
-## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
-
-
-## BlockBoy JB
-
-## [Nike's Beefed-Up Blazer Shoes Are Ready to Blaze the Trails](https://www.highsnobiety.com/p/nike-blazer-mid-roam-shoes/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 26 Aug 2024 19:45:59 GMT*
+*Published on: Tue, 27 Aug 2024 15:38:33 GMT*
 
 
 ## BlockBoy JB
@@ -9359,13 +10043,40 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 26 Aug 2024 17:27:55 GMT*
 
 
-## Biden
+## BlockBoy JB
+
+## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 16:56:59 GMT*
+
+
+## BlockBoy JB
 
 ## [Nike's Napoli Sneaker Is Destined To Be a Fan Favorite](https://www.highsnobiety.com/p/nike-air-max-plus-tn-napoli/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Tue, 27 Aug 2024 07:43:17 GMT*
+
+
+## BlockBoy JB
+
+## [Nike's Beefed-Up Blazer Shoes Are Ready to Blaze the Trails](https://www.highsnobiety.com/p/nike-blazer-mid-roam-shoes/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 19:45:59 GMT*
+
+
+## BlockBoy JB
+
+## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
 
 
 ## Biden
@@ -9406,7 +10117,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Biden
 
-## [Vans’ Classic Slip-On Has Never Looked This Luxe](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
+## [Vans’ Classic Slip-On Is Now More Jewelry Than Sneaker](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -9442,29 +10153,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Biden
 
-## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
+## [Teddy Santis Saved His Most Delicious NB Dad Shoes for ALD](https://www.highsnobiety.com/p/aime-leon-dore-new-balance-990v4-where-to-buy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 26 Aug 2024 16:56:59 GMT*
-
-
-## Biden
-
-## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
-
-
-## Biden
-
-## [Nike's Beefed-Up Blazer Shoes Are Ready to Blaze the Trails](https://www.highsnobiety.com/p/nike-blazer-mid-roam-shoes/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 26 Aug 2024 19:45:59 GMT*
+*Published on: Tue, 27 Aug 2024 15:38:33 GMT*
 
 
 ## Biden
@@ -9476,13 +10169,40 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 26 Aug 2024 17:27:55 GMT*
 
 
-## Bieber
+## Biden
+
+## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 16:56:59 GMT*
+
+
+## Biden
 
 ## [Nike's Napoli Sneaker Is Destined To Be a Fan Favorite](https://www.highsnobiety.com/p/nike-air-max-plus-tn-napoli/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Tue, 27 Aug 2024 07:43:17 GMT*
+
+
+## Biden
+
+## [Nike's Beefed-Up Blazer Shoes Are Ready to Blaze the Trails](https://www.highsnobiety.com/p/nike-blazer-mid-roam-shoes/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 19:45:59 GMT*
+
+
+## Biden
+
+## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
 
 
 ## Bieber
@@ -9523,7 +10243,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Bieber
 
-## [Vans’ Classic Slip-On Has Never Looked This Luxe](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
+## [Vans’ Classic Slip-On Is Now More Jewelry Than Sneaker](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -9559,29 +10279,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Bieber
 
-## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
+## [Teddy Santis Saved His Most Delicious NB Dad Shoes for ALD](https://www.highsnobiety.com/p/aime-leon-dore-new-balance-990v4-where-to-buy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 26 Aug 2024 16:56:59 GMT*
-
-
-## Bieber
-
-## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
-
-
-## Bieber
-
-## [Nike's Beefed-Up Blazer Shoes Are Ready to Blaze the Trails](https://www.highsnobiety.com/p/nike-blazer-mid-roam-shoes/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 26 Aug 2024 19:45:59 GMT*
+*Published on: Tue, 27 Aug 2024 15:38:33 GMT*
 
 
 ## Bieber
@@ -9593,13 +10295,40 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 26 Aug 2024 17:27:55 GMT*
 
 
-## Paulina Porizkov
+## Bieber
+
+## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 16:56:59 GMT*
+
+
+## Bieber
 
 ## [Nike's Napoli Sneaker Is Destined To Be a Fan Favorite](https://www.highsnobiety.com/p/nike-air-max-plus-tn-napoli/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Tue, 27 Aug 2024 07:43:17 GMT*
+
+
+## Bieber
+
+## [Nike's Beefed-Up Blazer Shoes Are Ready to Blaze the Trails](https://www.highsnobiety.com/p/nike-blazer-mid-roam-shoes/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 19:45:59 GMT*
+
+
+## Bieber
+
+## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
 
 
 ## Paulina Porizkov
@@ -9640,7 +10369,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Paulina Porizkov
 
-## [Vans’ Classic Slip-On Has Never Looked This Luxe](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
+## [Vans’ Classic Slip-On Is Now More Jewelry Than Sneaker](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -9676,29 +10405,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Paulina Porizkov
 
-## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
+## [Teddy Santis Saved His Most Delicious NB Dad Shoes for ALD](https://www.highsnobiety.com/p/aime-leon-dore-new-balance-990v4-where-to-buy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 26 Aug 2024 16:56:59 GMT*
-
-
-## Paulina Porizkov
-
-## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
-
-
-## Paulina Porizkov
-
-## [Nike's Beefed-Up Blazer Shoes Are Ready to Blaze the Trails](https://www.highsnobiety.com/p/nike-blazer-mid-roam-shoes/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 26 Aug 2024 19:45:59 GMT*
+*Published on: Tue, 27 Aug 2024 15:38:33 GMT*
 
 
 ## Paulina Porizkov
@@ -9710,13 +10421,40 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 26 Aug 2024 17:27:55 GMT*
 
 
-## Paris Hilton
+## Paulina Porizkov
+
+## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 16:56:59 GMT*
+
+
+## Paulina Porizkov
 
 ## [Nike's Napoli Sneaker Is Destined To Be a Fan Favorite](https://www.highsnobiety.com/p/nike-air-max-plus-tn-napoli/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Tue, 27 Aug 2024 07:43:17 GMT*
+
+
+## Paulina Porizkov
+
+## [Nike's Beefed-Up Blazer Shoes Are Ready to Blaze the Trails](https://www.highsnobiety.com/p/nike-blazer-mid-roam-shoes/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 19:45:59 GMT*
+
+
+## Paulina Porizkov
+
+## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
 
 
 ## Paris Hilton
@@ -9757,7 +10495,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Paris Hilton
 
-## [Vans’ Classic Slip-On Has Never Looked This Luxe](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
+## [Vans’ Classic Slip-On Is Now More Jewelry Than Sneaker](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -9793,29 +10531,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Paris Hilton
 
-## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
+## [Teddy Santis Saved His Most Delicious NB Dad Shoes for ALD](https://www.highsnobiety.com/p/aime-leon-dore-new-balance-990v4-where-to-buy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 26 Aug 2024 16:56:59 GMT*
-
-
-## Paris Hilton
-
-## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
-
-
-## Paris Hilton
-
-## [Nike's Beefed-Up Blazer Shoes Are Ready to Blaze the Trails](https://www.highsnobiety.com/p/nike-blazer-mid-roam-shoes/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 26 Aug 2024 19:45:59 GMT*
+*Published on: Tue, 27 Aug 2024 15:38:33 GMT*
 
 
 ## Paris Hilton
@@ -9827,13 +10547,40 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Mon, 26 Aug 2024 17:27:55 GMT*
 
 
-## Metro Boomin
+## Paris Hilton
+
+## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 16:56:59 GMT*
+
+
+## Paris Hilton
 
 ## [Nike's Napoli Sneaker Is Destined To Be a Fan Favorite](https://www.highsnobiety.com/p/nike-air-max-plus-tn-napoli/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Tue, 27 Aug 2024 07:43:17 GMT*
+
+
+## Paris Hilton
+
+## [Nike's Beefed-Up Blazer Shoes Are Ready to Blaze the Trails](https://www.highsnobiety.com/p/nike-blazer-mid-roam-shoes/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 19:45:59 GMT*
+
+
+## Paris Hilton
+
+## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
 
 
 ## Metro Boomin
@@ -9874,7 +10621,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Metro Boomin
 
-## [Vans’ Classic Slip-On Has Never Looked This Luxe](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
+## [Vans’ Classic Slip-On Is Now More Jewelry Than Sneaker](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -9910,6 +10657,24 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Metro Boomin
 
+## [Teddy Santis Saved His Most Delicious NB Dad Shoes for ALD](https://www.highsnobiety.com/p/aime-leon-dore-new-balance-990v4-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 15:38:33 GMT*
+
+
+## Metro Boomin
+
+## [Shaboozey Dresses Exactly How Shaboozey Sounds](https://www.highsnobiety.com/p/shaboozey-camo-crocs-nyc-outfit/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 17:27:55 GMT*
+
+
+## Metro Boomin
+
 ## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -9919,11 +10684,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Metro Boomin
 
-## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
+## [Nike's Napoli Sneaker Is Destined To Be a Fan Favorite](https://www.highsnobiety.com/p/nike-air-max-plus-tn-napoli/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
+*Published on: Tue, 27 Aug 2024 07:43:17 GMT*
 
 
 ## Metro Boomin
@@ -9937,20 +10702,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Metro Boomin
 
-## [Shaboozey Dresses Exactly How Shaboozey Sounds](https://www.highsnobiety.com/p/shaboozey-camo-crocs-nyc-outfit/)
+## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 26 Aug 2024 17:27:55 GMT*
-
-
-## Meghan Markle
-
-## [Nike's Napoli Sneaker Is Destined To Be a Fan Favorite](https://www.highsnobiety.com/p/nike-air-max-plus-tn-napoli/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 07:43:17 GMT*
+*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
 
 
 ## Meghan Markle
@@ -9991,7 +10747,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Meghan Markle
 
-## [Vans’ Classic Slip-On Has Never Looked This Luxe](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
+## [Vans’ Classic Slip-On Is Now More Jewelry Than Sneaker](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -10027,6 +10783,24 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Meghan Markle
 
+## [Teddy Santis Saved His Most Delicious NB Dad Shoes for ALD](https://www.highsnobiety.com/p/aime-leon-dore-new-balance-990v4-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 15:38:33 GMT*
+
+
+## Meghan Markle
+
+## [Shaboozey Dresses Exactly How Shaboozey Sounds](https://www.highsnobiety.com/p/shaboozey-camo-crocs-nyc-outfit/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 17:27:55 GMT*
+
+
+## Meghan Markle
+
 ## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -10036,11 +10810,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Meghan Markle
 
-## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
+## [Nike's Napoli Sneaker Is Destined To Be a Fan Favorite](https://www.highsnobiety.com/p/nike-air-max-plus-tn-napoli/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
+*Published on: Tue, 27 Aug 2024 07:43:17 GMT*
 
 
 ## Meghan Markle
@@ -10054,20 +10828,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Meghan Markle
 
-## [Shaboozey Dresses Exactly How Shaboozey Sounds](https://www.highsnobiety.com/p/shaboozey-camo-crocs-nyc-outfit/)
+## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 26 Aug 2024 17:27:55 GMT*
-
-
-## Megan Thee Stallion
-
-## [Nike's Napoli Sneaker Is Destined To Be a Fan Favorite](https://www.highsnobiety.com/p/nike-air-max-plus-tn-napoli/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 07:43:17 GMT*
+*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
 
 
 ## Megan Thee Stallion
@@ -10108,7 +10873,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Megan Thee Stallion
 
-## [Vans’ Classic Slip-On Has Never Looked This Luxe](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
+## [Vans’ Classic Slip-On Is Now More Jewelry Than Sneaker](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -10144,6 +10909,24 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Megan Thee Stallion
 
+## [Teddy Santis Saved His Most Delicious NB Dad Shoes for ALD](https://www.highsnobiety.com/p/aime-leon-dore-new-balance-990v4-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 15:38:33 GMT*
+
+
+## Megan Thee Stallion
+
+## [Shaboozey Dresses Exactly How Shaboozey Sounds](https://www.highsnobiety.com/p/shaboozey-camo-crocs-nyc-outfit/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 17:27:55 GMT*
+
+
+## Megan Thee Stallion
+
 ## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -10153,11 +10936,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Megan Thee Stallion
 
-## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
+## [Nike's Napoli Sneaker Is Destined To Be a Fan Favorite](https://www.highsnobiety.com/p/nike-air-max-plus-tn-napoli/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
+*Published on: Tue, 27 Aug 2024 07:43:17 GMT*
 
 
 ## Megan Thee Stallion
@@ -10171,20 +10954,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Megan Thee Stallion
 
-## [Shaboozey Dresses Exactly How Shaboozey Sounds](https://www.highsnobiety.com/p/shaboozey-camo-crocs-nyc-outfit/)
+## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 26 Aug 2024 17:27:55 GMT*
-
-
-## Maya Rudolph
-
-## [Nike's Napoli Sneaker Is Destined To Be a Fan Favorite](https://www.highsnobiety.com/p/nike-air-max-plus-tn-napoli/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 07:43:17 GMT*
+*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
 
 
 ## Maya Rudolph
@@ -10225,7 +10999,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Maya Rudolph
 
-## [Vans’ Classic Slip-On Has Never Looked This Luxe](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
+## [Vans’ Classic Slip-On Is Now More Jewelry Than Sneaker](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -10261,6 +11035,24 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Maya Rudolph
 
+## [Teddy Santis Saved His Most Delicious NB Dad Shoes for ALD](https://www.highsnobiety.com/p/aime-leon-dore-new-balance-990v4-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 15:38:33 GMT*
+
+
+## Maya Rudolph
+
+## [Shaboozey Dresses Exactly How Shaboozey Sounds](https://www.highsnobiety.com/p/shaboozey-camo-crocs-nyc-outfit/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 17:27:55 GMT*
+
+
+## Maya Rudolph
+
 ## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -10270,11 +11062,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Maya Rudolph
 
-## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
+## [Nike's Napoli Sneaker Is Destined To Be a Fan Favorite](https://www.highsnobiety.com/p/nike-air-max-plus-tn-napoli/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
+*Published on: Tue, 27 Aug 2024 07:43:17 GMT*
 
 
 ## Maya Rudolph
@@ -10288,20 +11080,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Maya Rudolph
 
-## [Shaboozey Dresses Exactly How Shaboozey Sounds](https://www.highsnobiety.com/p/shaboozey-camo-crocs-nyc-outfit/)
+## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 26 Aug 2024 17:27:55 GMT*
-
-
-## Olivia Rodrigo
-
-## [Nike's Napoli Sneaker Is Destined To Be a Fan Favorite](https://www.highsnobiety.com/p/nike-air-max-plus-tn-napoli/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 07:43:17 GMT*
+*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
 
 
 ## Olivia Rodrigo
@@ -10342,7 +11125,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Olivia Rodrigo
 
-## [Vans’ Classic Slip-On Has Never Looked This Luxe](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
+## [Vans’ Classic Slip-On Is Now More Jewelry Than Sneaker](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -10378,6 +11161,24 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Olivia Rodrigo
 
+## [Teddy Santis Saved His Most Delicious NB Dad Shoes for ALD](https://www.highsnobiety.com/p/aime-leon-dore-new-balance-990v4-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 15:38:33 GMT*
+
+
+## Olivia Rodrigo
+
+## [Shaboozey Dresses Exactly How Shaboozey Sounds](https://www.highsnobiety.com/p/shaboozey-camo-crocs-nyc-outfit/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 17:27:55 GMT*
+
+
+## Olivia Rodrigo
+
 ## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -10387,11 +11188,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Olivia Rodrigo
 
-## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
+## [Nike's Napoli Sneaker Is Destined To Be a Fan Favorite](https://www.highsnobiety.com/p/nike-air-max-plus-tn-napoli/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
+*Published on: Tue, 27 Aug 2024 07:43:17 GMT*
 
 
 ## Olivia Rodrigo
@@ -10405,20 +11206,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Olivia Rodrigo
 
-## [Shaboozey Dresses Exactly How Shaboozey Sounds](https://www.highsnobiety.com/p/shaboozey-camo-crocs-nyc-outfit/)
+## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 26 Aug 2024 17:27:55 GMT*
-
-
-## Obama
-
-## [Nike's Napoli Sneaker Is Destined To Be a Fan Favorite](https://www.highsnobiety.com/p/nike-air-max-plus-tn-napoli/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 07:43:17 GMT*
+*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
 
 
 ## Obama
@@ -10459,7 +11251,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Obama
 
-## [Vans’ Classic Slip-On Has Never Looked This Luxe](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
+## [Vans’ Classic Slip-On Is Now More Jewelry Than Sneaker](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -10495,6 +11287,24 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Obama
 
+## [Teddy Santis Saved His Most Delicious NB Dad Shoes for ALD](https://www.highsnobiety.com/p/aime-leon-dore-new-balance-990v4-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 15:38:33 GMT*
+
+
+## Obama
+
+## [Shaboozey Dresses Exactly How Shaboozey Sounds](https://www.highsnobiety.com/p/shaboozey-camo-crocs-nyc-outfit/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 17:27:55 GMT*
+
+
+## Obama
+
 ## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -10504,11 +11314,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Obama
 
-## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
+## [Nike's Napoli Sneaker Is Destined To Be a Fan Favorite](https://www.highsnobiety.com/p/nike-air-max-plus-tn-napoli/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
+*Published on: Tue, 27 Aug 2024 07:43:17 GMT*
 
 
 ## Obama
@@ -10522,20 +11332,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Obama
 
-## [Shaboozey Dresses Exactly How Shaboozey Sounds](https://www.highsnobiety.com/p/shaboozey-camo-crocs-nyc-outfit/)
+## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 26 Aug 2024 17:27:55 GMT*
-
-
-## Nicki Minaj
-
-## [Nike's Napoli Sneaker Is Destined To Be a Fan Favorite](https://www.highsnobiety.com/p/nike-air-max-plus-tn-napoli/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 07:43:17 GMT*
+*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
 
 
 ## Nicki Minaj
@@ -10576,7 +11377,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Nicki Minaj
 
-## [Vans’ Classic Slip-On Has Never Looked This Luxe](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
+## [Vans’ Classic Slip-On Is Now More Jewelry Than Sneaker](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -10612,6 +11413,24 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Nicki Minaj
 
+## [Teddy Santis Saved His Most Delicious NB Dad Shoes for ALD](https://www.highsnobiety.com/p/aime-leon-dore-new-balance-990v4-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 15:38:33 GMT*
+
+
+## Nicki Minaj
+
+## [Shaboozey Dresses Exactly How Shaboozey Sounds](https://www.highsnobiety.com/p/shaboozey-camo-crocs-nyc-outfit/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 17:27:55 GMT*
+
+
+## Nicki Minaj
+
 ## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -10621,11 +11440,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Nicki Minaj
 
-## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
+## [Nike's Napoli Sneaker Is Destined To Be a Fan Favorite](https://www.highsnobiety.com/p/nike-air-max-plus-tn-napoli/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
+*Published on: Tue, 27 Aug 2024 07:43:17 GMT*
 
 
 ## Nicki Minaj
@@ -10639,20 +11458,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Nicki Minaj
 
-## [Shaboozey Dresses Exactly How Shaboozey Sounds](https://www.highsnobiety.com/p/shaboozey-camo-crocs-nyc-outfit/)
+## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 26 Aug 2024 17:27:55 GMT*
-
-
-## MrBeast
-
-## [Nike's Napoli Sneaker Is Destined To Be a Fan Favorite](https://www.highsnobiety.com/p/nike-air-max-plus-tn-napoli/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 27 Aug 2024 07:43:17 GMT*
+*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
 
 
 ## MrBeast
@@ -10693,7 +11503,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## MrBeast
 
-## [Vans’ Classic Slip-On Has Never Looked This Luxe](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
+## [Vans’ Classic Slip-On Is Now More Jewelry Than Sneaker](https://www.highsnobiety.com/p/vans-mattias-golling-classic-slip-on-pearl/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -10729,6 +11539,24 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## MrBeast
 
+## [Teddy Santis Saved His Most Delicious NB Dad Shoes for ALD](https://www.highsnobiety.com/p/aime-leon-dore-new-balance-990v4-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 27 Aug 2024 15:38:33 GMT*
+
+
+## MrBeast
+
+## [Shaboozey Dresses Exactly How Shaboozey Sounds](https://www.highsnobiety.com/p/shaboozey-camo-crocs-nyc-outfit/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 26 Aug 2024 17:27:55 GMT*
+
+
+## MrBeast
+
 ## [PUMA's Spiky Monstrous Sneaker Has a Soft Side ](https://www.highsnobiety.com/p/puma-mostro-mary-jane-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -10738,11 +11566,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## MrBeast
 
-## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
+## [Nike's Napoli Sneaker Is Destined To Be a Fan Favorite](https://www.highsnobiety.com/p/nike-air-max-plus-tn-napoli/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
+*Published on: Tue, 27 Aug 2024 07:43:17 GMT*
 
 
 ## MrBeast
@@ -10756,10 +11584,10 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## MrBeast
 
-## [Shaboozey Dresses Exactly How Shaboozey Sounds](https://www.highsnobiety.com/p/shaboozey-camo-crocs-nyc-outfit/)
+## [The Best Fall Sneakers to Add to Your Rotation](https://www.highsnobiety.com/p/best-fall-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 26 Aug 2024 17:27:55 GMT*
+*Published on: Mon, 26 Aug 2024 16:39:02 GMT*
 
 
