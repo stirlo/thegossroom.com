@@ -91,15 +91,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Tim Cook
 
-## [Fendi's New Mad Sneaker Is Architecture for Your Feet](https://www.highsnobiety.com/p/fendi-mad-architects-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 02 Sep 2024 17:27:53 GMT*
-
-
-## Tim Cook
-
 ## [adidas' Classic Jabbar Sneaker Returns with Bold Energy ](https://www.highsnobiety.com/p/atmos-adidas-jabbar-low-sneaker-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -208,15 +199,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Taylor Swift
 
-## [Fendi's New Mad Sneaker Is Architecture for Your Feet](https://www.highsnobiety.com/p/fendi-mad-architects-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 02 Sep 2024 17:27:53 GMT*
-
-
-## Taylor Swift
-
 ## [adidas' Classic Jabbar Sneaker Returns with Bold Energy ](https://www.highsnobiety.com/p/atmos-adidas-jabbar-low-sneaker-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -325,15 +307,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Tom Brady
 
-## [Fendi's New Mad Sneaker Is Architecture for Your Feet](https://www.highsnobiety.com/p/fendi-mad-architects-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 02 Sep 2024 17:27:53 GMT*
-
-
-## Tom Brady
-
 ## [adidas' Classic Jabbar Sneaker Returns with Bold Energy ](https://www.highsnobiety.com/p/atmos-adidas-jabbar-low-sneaker-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -442,15 +415,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Tina Fey
 
-## [Fendi's New Mad Sneaker Is Architecture for Your Feet](https://www.highsnobiety.com/p/fendi-mad-architects-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 02 Sep 2024 17:27:53 GMT*
-
-
-## Tina Fey
-
 ## [adidas' Classic Jabbar Sneaker Returns with Bold Energy ](https://www.highsnobiety.com/p/atmos-adidas-jabbar-low-sneaker-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -559,15 +523,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Steven Yuen
 
-## [Fendi's New Mad Sneaker Is Architecture for Your Feet](https://www.highsnobiety.com/p/fendi-mad-architects-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 02 Sep 2024 17:27:53 GMT*
-
-
-## Steven Yuen
-
 ## [adidas' Classic Jabbar Sneaker Returns with Bold Energy ](https://www.highsnobiety.com/p/atmos-adidas-jabbar-low-sneaker-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -676,15 +631,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Sommer Ray
 
-## [Fendi's New Mad Sneaker Is Architecture for Your Feet](https://www.highsnobiety.com/p/fendi-mad-architects-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 02 Sep 2024 17:27:53 GMT*
-
-
-## Sommer Ray
-
 ## [adidas' Classic Jabbar Sneaker Returns with Bold Energy ](https://www.highsnobiety.com/p/atmos-adidas-jabbar-low-sneaker-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -793,15 +739,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Sza
 
-## [Fendi's New Mad Sneaker Is Architecture for Your Feet](https://www.highsnobiety.com/p/fendi-mad-architects-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 02 Sep 2024 17:27:53 GMT*
-
-
-## Sza
-
 ## [adidas' Classic Jabbar Sneaker Returns with Bold Energy ](https://www.highsnobiety.com/p/atmos-adidas-jabbar-low-sneaker-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -910,15 +847,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Sydney Sweeney
 
-## [Fendi's New Mad Sneaker Is Architecture for Your Feet](https://www.highsnobiety.com/p/fendi-mad-architects-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 02 Sep 2024 17:27:53 GMT*
-
-
-## Sydney Sweeney
-
 ## [adidas' Classic Jabbar Sneaker Returns with Bold Energy ](https://www.highsnobiety.com/p/atmos-adidas-jabbar-low-sneaker-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1027,15 +955,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Walton Goggins
 
-## [Fendi's New Mad Sneaker Is Architecture for Your Feet](https://www.highsnobiety.com/p/fendi-mad-architects-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 02 Sep 2024 17:27:53 GMT*
-
-
-## Walton Goggins
-
 ## [adidas' Classic Jabbar Sneaker Returns with Bold Energy ](https://www.highsnobiety.com/p/atmos-adidas-jabbar-low-sneaker-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1144,15 +1063,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Tom Holland
 
-## [Fendi's New Mad Sneaker Is Architecture for Your Feet](https://www.highsnobiety.com/p/fendi-mad-architects-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 02 Sep 2024 17:27:53 GMT*
-
-
-## Tom Holland
-
 ## [adidas' Classic Jabbar Sneaker Returns with Bold Energy ](https://www.highsnobiety.com/p/atmos-adidas-jabbar-low-sneaker-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1261,15 +1171,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Gucci Mane
 
-## [Fendi's New Mad Sneaker Is Architecture for Your Feet](https://www.highsnobiety.com/p/fendi-mad-architects-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 02 Sep 2024 17:27:53 GMT*
-
-
-## Gucci Mane
-
 ## [adidas' Classic Jabbar Sneaker Returns with Bold Energy ](https://www.highsnobiety.com/p/atmos-adidas-jabbar-low-sneaker-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1378,15 +1279,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Harry Styles
 
-## [Fendi's New Mad Sneaker Is Architecture for Your Feet](https://www.highsnobiety.com/p/fendi-mad-architects-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 02 Sep 2024 17:27:53 GMT*
-
-
-## Harry Styles
-
 ## [adidas' Classic Jabbar Sneaker Returns with Bold Energy ](https://www.highsnobiety.com/p/atmos-adidas-jabbar-low-sneaker-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1495,15 +1387,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Jake Paul
 
-## [Fendi's New Mad Sneaker Is Architecture for Your Feet](https://www.highsnobiety.com/p/fendi-mad-architects-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 02 Sep 2024 17:27:53 GMT*
-
-
-## Jake Paul
-
 ## [adidas' Classic Jabbar Sneaker Returns with Bold Energy ](https://www.highsnobiety.com/p/atmos-adidas-jabbar-low-sneaker-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1612,15 +1495,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Jameela Jamil
 
-## [Fendi's New Mad Sneaker Is Architecture for Your Feet](https://www.highsnobiety.com/p/fendi-mad-architects-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 02 Sep 2024 17:27:53 GMT*
-
-
-## Jameela Jamil
-
 ## [adidas' Classic Jabbar Sneaker Returns with Bold Energy ](https://www.highsnobiety.com/p/atmos-adidas-jabbar-low-sneaker-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1729,15 +1603,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Elon Musk
 
-## [Fendi's New Mad Sneaker Is Architecture for Your Feet](https://www.highsnobiety.com/p/fendi-mad-architects-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 02 Sep 2024 17:27:53 GMT*
-
-
-## Elon Musk
-
 ## [adidas' Classic Jabbar Sneaker Returns with Bold Energy ](https://www.highsnobiety.com/p/atmos-adidas-jabbar-low-sneaker-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1846,15 +1711,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Gabrielle Union
 
-## [Fendi's New Mad Sneaker Is Architecture for Your Feet](https://www.highsnobiety.com/p/fendi-mad-architects-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 02 Sep 2024 17:27:53 GMT*
-
-
-## Gabrielle Union
-
 ## [adidas' Classic Jabbar Sneaker Returns with Bold Energy ](https://www.highsnobiety.com/p/atmos-adidas-jabbar-low-sneaker-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1963,15 +1819,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Giancarlo Esposito
 
-## [Fendi's New Mad Sneaker Is Architecture for Your Feet](https://www.highsnobiety.com/p/fendi-mad-architects-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 02 Sep 2024 17:27:53 GMT*
-
-
-## Giancarlo Esposito
-
 ## [adidas' Classic Jabbar Sneaker Returns with Bold Energy ](https://www.highsnobiety.com/p/atmos-adidas-jabbar-low-sneaker-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2080,15 +1927,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Gillian Jacobs
 
-## [Fendi's New Mad Sneaker Is Architecture for Your Feet](https://www.highsnobiety.com/p/fendi-mad-architects-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 02 Sep 2024 17:27:53 GMT*
-
-
-## Gillian Jacobs
-
 ## [adidas' Classic Jabbar Sneaker Returns with Bold Energy ](https://www.highsnobiety.com/p/atmos-adidas-jabbar-low-sneaker-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2197,15 +2035,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Jason Mantzoukas
 
-## [Fendi's New Mad Sneaker Is Architecture for Your Feet](https://www.highsnobiety.com/p/fendi-mad-architects-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 02 Sep 2024 17:27:53 GMT*
-
-
-## Jason Mantzoukas
-
 ## [adidas' Classic Jabbar Sneaker Returns with Bold Energy ](https://www.highsnobiety.com/p/atmos-adidas-jabbar-low-sneaker-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2314,15 +2143,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## JB Smoove
 
-## [Fendi's New Mad Sneaker Is Architecture for Your Feet](https://www.highsnobiety.com/p/fendi-mad-architects-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 02 Sep 2024 17:27:53 GMT*
-
-
-## JB Smoove
-
 ## [adidas' Classic Jabbar Sneaker Returns with Bold Energy ](https://www.highsnobiety.com/p/atmos-adidas-jabbar-low-sneaker-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2431,15 +2251,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Madison Pettis
 
-## [Fendi's New Mad Sneaker Is Architecture for Your Feet](https://www.highsnobiety.com/p/fendi-mad-architects-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 02 Sep 2024 17:27:53 GMT*
-
-
-## Madison Pettis
-
 ## [adidas' Classic Jabbar Sneaker Returns with Bold Energy ](https://www.highsnobiety.com/p/atmos-adidas-jabbar-low-sneaker-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2548,15 +2359,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Austin Butler
 
-## [Fendi's New Mad Sneaker Is Architecture for Your Feet](https://www.highsnobiety.com/p/fendi-mad-architects-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 02 Sep 2024 17:27:53 GMT*
-
-
-## Austin Butler
-
 ## [adidas' Classic Jabbar Sneaker Returns with Bold Energy ](https://www.highsnobiety.com/p/atmos-adidas-jabbar-low-sneaker-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2665,15 +2467,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Mark Zuckerberg
 
-## [Fendi's New Mad Sneaker Is Architecture for Your Feet](https://www.highsnobiety.com/p/fendi-mad-architects-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 02 Sep 2024 17:27:53 GMT*
-
-
-## Mark Zuckerberg
-
 ## [adidas' Classic Jabbar Sneaker Returns with Bold Energy ](https://www.highsnobiety.com/p/atmos-adidas-jabbar-low-sneaker-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2782,15 +2575,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Ariana Grande
 
-## [Fendi's New Mad Sneaker Is Architecture for Your Feet](https://www.highsnobiety.com/p/fendi-mad-architects-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 02 Sep 2024 17:27:53 GMT*
-
-
-## Ariana Grande
-
 ## [adidas' Classic Jabbar Sneaker Returns with Bold Energy ](https://www.highsnobiety.com/p/atmos-adidas-jabbar-low-sneaker-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2899,15 +2683,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Livvy Dunne
 
-## [Fendi's New Mad Sneaker Is Architecture for Your Feet](https://www.highsnobiety.com/p/fendi-mad-architects-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 02 Sep 2024 17:27:53 GMT*
-
-
-## Livvy Dunne
-
 ## [adidas' Classic Jabbar Sneaker Returns with Bold Energy ](https://www.highsnobiety.com/p/atmos-adidas-jabbar-low-sneaker-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3016,15 +2791,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Ali Wong
 
-## [Fendi's New Mad Sneaker Is Architecture for Your Feet](https://www.highsnobiety.com/p/fendi-mad-architects-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 02 Sep 2024 17:27:53 GMT*
-
-
-## Ali Wong
-
 ## [adidas' Classic Jabbar Sneaker Returns with Bold Energy ](https://www.highsnobiety.com/p/atmos-adidas-jabbar-low-sneaker-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3133,15 +2899,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Lizzo
 
-## [Fendi's New Mad Sneaker Is Architecture for Your Feet](https://www.highsnobiety.com/p/fendi-mad-architects-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 02 Sep 2024 17:27:53 GMT*
-
-
-## Lizzo
-
 ## [adidas' Classic Jabbar Sneaker Returns with Bold Energy ](https://www.highsnobiety.com/p/atmos-adidas-jabbar-low-sneaker-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3250,15 +3007,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Alison Brie
 
-## [Fendi's New Mad Sneaker Is Architecture for Your Feet](https://www.highsnobiety.com/p/fendi-mad-architects-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 02 Sep 2024 17:27:53 GMT*
-
-
-## Alison Brie
-
 ## [adidas' Classic Jabbar Sneaker Returns with Bold Energy ](https://www.highsnobiety.com/p/atmos-adidas-jabbar-low-sneaker-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3367,15 +3115,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Lil Wayne
 
-## [Fendi's New Mad Sneaker Is Architecture for Your Feet](https://www.highsnobiety.com/p/fendi-mad-architects-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 02 Sep 2024 17:27:53 GMT*
-
-
-## Lil Wayne
-
 ## [adidas' Classic Jabbar Sneaker Returns with Bold Energy ](https://www.highsnobiety.com/p/atmos-adidas-jabbar-low-sneaker-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3484,15 +3223,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Adele
 
-## [Fendi's New Mad Sneaker Is Architecture for Your Feet](https://www.highsnobiety.com/p/fendi-mad-architects-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 02 Sep 2024 17:27:53 GMT*
-
-
-## Adele
-
 ## [adidas' Classic Jabbar Sneaker Returns with Bold Energy ](https://www.highsnobiety.com/p/atmos-adidas-jabbar-low-sneaker-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3601,15 +3331,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Lindsay Lohan
 
-## [Fendi's New Mad Sneaker Is Architecture for Your Feet](https://www.highsnobiety.com/p/fendi-mad-architects-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 02 Sep 2024 17:27:53 GMT*
-
-
-## Lindsay Lohan
-
 ## [adidas' Classic Jabbar Sneaker Returns with Bold Energy ](https://www.highsnobiety.com/p/atmos-adidas-jabbar-low-sneaker-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3718,15 +3439,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Addison Rae
 
-## [Fendi's New Mad Sneaker Is Architecture for Your Feet](https://www.highsnobiety.com/p/fendi-mad-architects-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 02 Sep 2024 17:27:53 GMT*
-
-
-## Addison Rae
-
 ## [adidas' Classic Jabbar Sneaker Returns with Bold Energy ](https://www.highsnobiety.com/p/atmos-adidas-jabbar-low-sneaker-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3835,15 +3547,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Latto
 
-## [Fendi's New Mad Sneaker Is Architecture for Your Feet](https://www.highsnobiety.com/p/fendi-mad-architects-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 02 Sep 2024 17:27:53 GMT*
-
-
-## Latto
-
 ## [adidas' Classic Jabbar Sneaker Returns with Bold Energy ](https://www.highsnobiety.com/p/atmos-adidas-jabbar-low-sneaker-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3952,15 +3655,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Aaron Paul
 
-## [Fendi's New Mad Sneaker Is Architecture for Your Feet](https://www.highsnobiety.com/p/fendi-mad-architects-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 02 Sep 2024 17:27:53 GMT*
-
-
-## Aaron Paul
-
 ## [adidas' Classic Jabbar Sneaker Returns with Bold Energy ](https://www.highsnobiety.com/p/atmos-adidas-jabbar-low-sneaker-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -4069,15 +3763,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## LeBron James
 
-## [Fendi's New Mad Sneaker Is Architecture for Your Feet](https://www.highsnobiety.com/p/fendi-mad-architects-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 02 Sep 2024 17:27:53 GMT*
-
-
-## LeBron James
-
 ## [adidas' Classic Jabbar Sneaker Returns with Bold Energy ](https://www.highsnobiety.com/p/atmos-adidas-jabbar-low-sneaker-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -4186,15 +3871,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## 50 Cent
 
-## [Fendi's New Mad Sneaker Is Architecture for Your Feet](https://www.highsnobiety.com/p/fendi-mad-architects-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 02 Sep 2024 17:27:53 GMT*
-
-
-## 50 Cent
-
 ## [adidas' Classic Jabbar Sneaker Returns with Bold Energy ](https://www.highsnobiety.com/p/atmos-adidas-jabbar-low-sneaker-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -4303,15 +3979,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Kesha
 
-## [Fendi's New Mad Sneaker Is Architecture for Your Feet](https://www.highsnobiety.com/p/fendi-mad-architects-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 02 Sep 2024 17:27:53 GMT*
-
-
-## Kesha
-
 ## [adidas' Classic Jabbar Sneaker Returns with Bold Energy ](https://www.highsnobiety.com/p/atmos-adidas-jabbar-low-sneaker-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -4420,15 +4087,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## 21 Savage
 
-## [Fendi's New Mad Sneaker Is Architecture for Your Feet](https://www.highsnobiety.com/p/fendi-mad-architects-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 02 Sep 2024 17:27:53 GMT*
-
-
-## 21 Savage
-
 ## [adidas' Classic Jabbar Sneaker Returns with Bold Energy ](https://www.highsnobiety.com/p/atmos-adidas-jabbar-low-sneaker-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -4537,15 +4195,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Larry David
 
-## [Fendi's New Mad Sneaker Is Architecture for Your Feet](https://www.highsnobiety.com/p/fendi-mad-architects-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 02 Sep 2024 17:27:53 GMT*
-
-
-## Larry David
-
 ## [adidas' Classic Jabbar Sneaker Returns with Bold Energy ](https://www.highsnobiety.com/p/atmos-adidas-jabbar-low-sneaker-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -4654,15 +4303,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Seth Rogan
 
-## [Fendi's New Mad Sneaker Is Architecture for Your Feet](https://www.highsnobiety.com/p/fendi-mad-architects-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 02 Sep 2024 17:27:53 GMT*
-
-
-## Seth Rogan
-
 ## [adidas' Classic Jabbar Sneaker Returns with Bold Energy ](https://www.highsnobiety.com/p/atmos-adidas-jabbar-low-sneaker-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -4771,15 +4411,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Simone Biles
 
-## [Fendi's New Mad Sneaker Is Architecture for Your Feet](https://www.highsnobiety.com/p/fendi-mad-architects-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 02 Sep 2024 17:27:53 GMT*
-
-
-## Simone Biles
-
 ## [adidas' Classic Jabbar Sneaker Returns with Bold Energy ](https://www.highsnobiety.com/p/atmos-adidas-jabbar-low-sneaker-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -4888,15 +4519,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Pete Davidson
 
-## [Fendi's New Mad Sneaker Is Architecture for Your Feet](https://www.highsnobiety.com/p/fendi-mad-architects-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 02 Sep 2024 17:27:53 GMT*
-
-
-## Pete Davidson
-
 ## [adidas' Classic Jabbar Sneaker Returns with Bold Energy ](https://www.highsnobiety.com/p/atmos-adidas-jabbar-low-sneaker-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -5005,15 +4627,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Prince Harry
 
-## [Fendi's New Mad Sneaker Is Architecture for Your Feet](https://www.highsnobiety.com/p/fendi-mad-architects-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 02 Sep 2024 17:27:53 GMT*
-
-
-## Prince Harry
-
 ## [adidas' Classic Jabbar Sneaker Returns with Bold Energy ](https://www.highsnobiety.com/p/atmos-adidas-jabbar-low-sneaker-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -5122,15 +4735,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Princess of Wales
 
-## [Fendi's New Mad Sneaker Is Architecture for Your Feet](https://www.highsnobiety.com/p/fendi-mad-architects-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 02 Sep 2024 17:27:53 GMT*
-
-
-## Princess of Wales
-
 ## [adidas' Classic Jabbar Sneaker Returns with Bold Energy ](https://www.highsnobiety.com/p/atmos-adidas-jabbar-low-sneaker-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -5239,15 +4843,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Rachel McAdams
 
-## [Fendi's New Mad Sneaker Is Architecture for Your Feet](https://www.highsnobiety.com/p/fendi-mad-architects-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 02 Sep 2024 17:27:53 GMT*
-
-
-## Rachel McAdams
-
 ## [adidas' Classic Jabbar Sneaker Returns with Bold Energy ](https://www.highsnobiety.com/p/atmos-adidas-jabbar-low-sneaker-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -5356,15 +4951,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Reneé Rapp
 
-## [Fendi's New Mad Sneaker Is Architecture for Your Feet](https://www.highsnobiety.com/p/fendi-mad-architects-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 02 Sep 2024 17:27:53 GMT*
-
-
-## Reneé Rapp
-
 ## [adidas' Classic Jabbar Sneaker Returns with Bold Energy ](https://www.highsnobiety.com/p/atmos-adidas-jabbar-low-sneaker-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -5473,15 +5059,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Rick Ross
 
-## [Fendi's New Mad Sneaker Is Architecture for Your Feet](https://www.highsnobiety.com/p/fendi-mad-architects-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 02 Sep 2024 17:27:53 GMT*
-
-
-## Rick Ross
-
 ## [adidas' Classic Jabbar Sneaker Returns with Bold Energy ](https://www.highsnobiety.com/p/atmos-adidas-jabbar-low-sneaker-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -5590,15 +5167,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Sam Ashgari
 
-## [Fendi's New Mad Sneaker Is Architecture for Your Feet](https://www.highsnobiety.com/p/fendi-mad-architects-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 02 Sep 2024 17:27:53 GMT*
-
-
-## Sam Ashgari
-
 ## [adidas' Classic Jabbar Sneaker Returns with Bold Energy ](https://www.highsnobiety.com/p/atmos-adidas-jabbar-low-sneaker-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -5707,15 +5275,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Sandra Oh
 
-## [Fendi's New Mad Sneaker Is Architecture for Your Feet](https://www.highsnobiety.com/p/fendi-mad-architects-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 02 Sep 2024 17:27:53 GMT*
-
-
-## Sandra Oh
-
 ## [adidas' Classic Jabbar Sneaker Returns with Bold Energy ](https://www.highsnobiety.com/p/atmos-adidas-jabbar-low-sneaker-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -5824,15 +5383,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Donald Trump
 
-## [Fendi's New Mad Sneaker Is Architecture for Your Feet](https://www.highsnobiety.com/p/fendi-mad-architects-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 02 Sep 2024 17:27:53 GMT*
-
-
-## Donald Trump
-
 ## [adidas' Classic Jabbar Sneaker Returns with Bold Energy ](https://www.highsnobiety.com/p/atmos-adidas-jabbar-low-sneaker-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -5941,15 +5491,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Diddy
 
-## [Fendi's New Mad Sneaker Is Architecture for Your Feet](https://www.highsnobiety.com/p/fendi-mad-architects-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 02 Sep 2024 17:27:53 GMT*
-
-
-## Diddy
-
 ## [adidas' Classic Jabbar Sneaker Returns with Bold Energy ](https://www.highsnobiety.com/p/atmos-adidas-jabbar-low-sneaker-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -6058,15 +5599,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## City Girls
 
-## [Fendi's New Mad Sneaker Is Architecture for Your Feet](https://www.highsnobiety.com/p/fendi-mad-architects-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 02 Sep 2024 17:27:53 GMT*
-
-
-## City Girls
-
 ## [adidas' Classic Jabbar Sneaker Returns with Bold Energy ](https://www.highsnobiety.com/p/atmos-adidas-jabbar-low-sneaker-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -6175,15 +5707,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Chloe Bailey
 
-## [Fendi's New Mad Sneaker Is Architecture for Your Feet](https://www.highsnobiety.com/p/fendi-mad-architects-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 02 Sep 2024 17:27:53 GMT*
-
-
-## Chloe Bailey
-
 ## [adidas' Classic Jabbar Sneaker Returns with Bold Energy ](https://www.highsnobiety.com/p/atmos-adidas-jabbar-low-sneaker-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -6292,15 +5815,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Charli D Amelio
 
-## [Fendi's New Mad Sneaker Is Architecture for Your Feet](https://www.highsnobiety.com/p/fendi-mad-architects-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 02 Sep 2024 17:27:53 GMT*
-
-
-## Charli D Amelio
-
 ## [adidas' Classic Jabbar Sneaker Returns with Bold Energy ](https://www.highsnobiety.com/p/atmos-adidas-jabbar-low-sneaker-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -6409,15 +5923,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Cardi B
 
-## [Fendi's New Mad Sneaker Is Architecture for Your Feet](https://www.highsnobiety.com/p/fendi-mad-architects-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 02 Sep 2024 17:27:53 GMT*
-
-
-## Cardi B
-
 ## [adidas' Classic Jabbar Sneaker Returns with Bold Energy ](https://www.highsnobiety.com/p/atmos-adidas-jabbar-low-sneaker-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -6526,15 +6031,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Bryan Cranston
 
-## [Fendi's New Mad Sneaker Is Architecture for Your Feet](https://www.highsnobiety.com/p/fendi-mad-architects-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 02 Sep 2024 17:27:53 GMT*
-
-
-## Bryan Cranston
-
 ## [adidas' Classic Jabbar Sneaker Returns with Bold Energy ](https://www.highsnobiety.com/p/atmos-adidas-jabbar-low-sneaker-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -6643,15 +6139,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Brielle Biermann
 
-## [Fendi's New Mad Sneaker Is Architecture for Your Feet](https://www.highsnobiety.com/p/fendi-mad-architects-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 02 Sep 2024 17:27:53 GMT*
-
-
-## Brielle Biermann
-
 ## [adidas' Classic Jabbar Sneaker Returns with Bold Energy ](https://www.highsnobiety.com/p/atmos-adidas-jabbar-low-sneaker-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -6760,15 +6247,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Dua Lipa
 
-## [Fendi's New Mad Sneaker Is Architecture for Your Feet](https://www.highsnobiety.com/p/fendi-mad-architects-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 02 Sep 2024 17:27:53 GMT*
-
-
-## Dua Lipa
-
 ## [adidas' Classic Jabbar Sneaker Returns with Bold Energy ](https://www.highsnobiety.com/p/atmos-adidas-jabbar-low-sneaker-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -6877,15 +6355,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Drake
 
-## [Fendi's New Mad Sneaker Is Architecture for Your Feet](https://www.highsnobiety.com/p/fendi-mad-architects-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 02 Sep 2024 17:27:53 GMT*
-
-
-## Drake
-
 ## [adidas' Classic Jabbar Sneaker Returns with Bold Energy ](https://www.highsnobiety.com/p/atmos-adidas-jabbar-low-sneaker-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -6994,15 +6463,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Jenner
 
-## [Fendi's New Mad Sneaker Is Architecture for Your Feet](https://www.highsnobiety.com/p/fendi-mad-architects-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 02 Sep 2024 17:27:53 GMT*
-
-
-## Jenner
-
 ## [adidas' Classic Jabbar Sneaker Returns with Bold Energy ](https://www.highsnobiety.com/p/atmos-adidas-jabbar-low-sneaker-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -7111,15 +6571,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## J. Cole
 
-## [Fendi's New Mad Sneaker Is Architecture for Your Feet](https://www.highsnobiety.com/p/fendi-mad-architects-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 02 Sep 2024 17:27:53 GMT*
-
-
-## J. Cole
-
 ## [adidas' Classic Jabbar Sneaker Returns with Bold Energy ](https://www.highsnobiety.com/p/atmos-adidas-jabbar-low-sneaker-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -7228,15 +6679,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Jerrod Carmichael
 
-## [Fendi's New Mad Sneaker Is Architecture for Your Feet](https://www.highsnobiety.com/p/fendi-mad-architects-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 02 Sep 2024 17:27:53 GMT*
-
-
-## Jerrod Carmichael
-
 ## [adidas' Classic Jabbar Sneaker Returns with Bold Energy ](https://www.highsnobiety.com/p/atmos-adidas-jabbar-low-sneaker-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -7345,15 +6787,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Jennifer Lawrence
 
-## [Fendi's New Mad Sneaker Is Architecture for Your Feet](https://www.highsnobiety.com/p/fendi-mad-architects-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 02 Sep 2024 17:27:53 GMT*
-
-
-## Jennifer Lawrence
-
 ## [adidas' Classic Jabbar Sneaker Returns with Bold Energy ](https://www.highsnobiety.com/p/atmos-adidas-jabbar-low-sneaker-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -7462,15 +6895,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Joe Biden
 
-## [Fendi's New Mad Sneaker Is Architecture for Your Feet](https://www.highsnobiety.com/p/fendi-mad-architects-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 02 Sep 2024 17:27:53 GMT*
-
-
-## Joe Biden
-
 ## [adidas' Classic Jabbar Sneaker Returns with Bold Energy ](https://www.highsnobiety.com/p/atmos-adidas-jabbar-low-sneaker-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -7579,15 +7003,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## J.K. Simmons
 
-## [Fendi's New Mad Sneaker Is Architecture for Your Feet](https://www.highsnobiety.com/p/fendi-mad-architects-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 02 Sep 2024 17:27:53 GMT*
-
-
-## J.K. Simmons
-
 ## [adidas' Classic Jabbar Sneaker Returns with Bold Energy ](https://www.highsnobiety.com/p/atmos-adidas-jabbar-low-sneaker-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -7696,15 +7111,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Kamala Harris
 
-## [Fendi's New Mad Sneaker Is Architecture for Your Feet](https://www.highsnobiety.com/p/fendi-mad-architects-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 02 Sep 2024 17:27:53 GMT*
-
-
-## Kamala Harris
-
 ## [adidas' Classic Jabbar Sneaker Returns with Bold Energy ](https://www.highsnobiety.com/p/atmos-adidas-jabbar-low-sneaker-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -7813,15 +7219,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## John C Reilly
 
-## [Fendi's New Mad Sneaker Is Architecture for Your Feet](https://www.highsnobiety.com/p/fendi-mad-architects-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 02 Sep 2024 17:27:53 GMT*
-
-
-## John C Reilly
-
 ## [adidas' Classic Jabbar Sneaker Returns with Bold Energy ](https://www.highsnobiety.com/p/atmos-adidas-jabbar-low-sneaker-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -7930,15 +7327,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Kardashian
 
-## [Fendi's New Mad Sneaker Is Architecture for Your Feet](https://www.highsnobiety.com/p/fendi-mad-architects-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 02 Sep 2024 17:27:53 GMT*
-
-
-## Kardashian
-
 ## [adidas' Classic Jabbar Sneaker Returns with Bold Energy ](https://www.highsnobiety.com/p/atmos-adidas-jabbar-low-sneaker-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -8047,15 +7435,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Kanye
 
-## [Fendi's New Mad Sneaker Is Architecture for Your Feet](https://www.highsnobiety.com/p/fendi-mad-architects-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 02 Sep 2024 17:27:53 GMT*
-
-
-## Kanye
-
 ## [adidas' Classic Jabbar Sneaker Returns with Bold Energy ](https://www.highsnobiety.com/p/atmos-adidas-jabbar-low-sneaker-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -8164,15 +7543,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Zendaya
 
-## [Fendi's New Mad Sneaker Is Architecture for Your Feet](https://www.highsnobiety.com/p/fendi-mad-architects-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 02 Sep 2024 17:27:53 GMT*
-
-
-## Zendaya
-
 ## [adidas' Classic Jabbar Sneaker Returns with Bold Energy ](https://www.highsnobiety.com/p/atmos-adidas-jabbar-low-sneaker-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -8281,15 +7651,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Will Ferrell
 
-## [Fendi's New Mad Sneaker Is Architecture for Your Feet](https://www.highsnobiety.com/p/fendi-mad-architects-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 02 Sep 2024 17:27:53 GMT*
-
-
-## Will Ferrell
-
 ## [adidas' Classic Jabbar Sneaker Returns with Bold Energy ](https://www.highsnobiety.com/p/atmos-adidas-jabbar-low-sneaker-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -8398,15 +7759,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Zazie Beetz
 
-## [Fendi's New Mad Sneaker Is Architecture for Your Feet](https://www.highsnobiety.com/p/fendi-mad-architects-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 02 Sep 2024 17:27:53 GMT*
-
-
-## Zazie Beetz
-
 ## [adidas' Classic Jabbar Sneaker Returns with Bold Energy ](https://www.highsnobiety.com/p/atmos-adidas-jabbar-low-sneaker-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -8515,15 +7867,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Bob Odenkirk
 
-## [Fendi's New Mad Sneaker Is Architecture for Your Feet](https://www.highsnobiety.com/p/fendi-mad-architects-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 02 Sep 2024 17:27:53 GMT*
-
-
-## Bob Odenkirk
-
 ## [adidas' Classic Jabbar Sneaker Returns with Bold Energy ](https://www.highsnobiety.com/p/atmos-adidas-jabbar-low-sneaker-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -8632,15 +7975,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Brad Pitt
 
-## [Fendi's New Mad Sneaker Is Architecture for Your Feet](https://www.highsnobiety.com/p/fendi-mad-architects-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 02 Sep 2024 17:27:53 GMT*
-
-
-## Brad Pitt
-
 ## [adidas' Classic Jabbar Sneaker Returns with Bold Energy ](https://www.highsnobiety.com/p/atmos-adidas-jabbar-low-sneaker-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -8749,15 +8083,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Beyoncé
 
-## [Fendi's New Mad Sneaker Is Architecture for Your Feet](https://www.highsnobiety.com/p/fendi-mad-architects-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 02 Sep 2024 17:27:53 GMT*
-
-
-## Beyoncé
-
 ## [adidas' Classic Jabbar Sneaker Returns with Bold Energy ](https://www.highsnobiety.com/p/atmos-adidas-jabbar-low-sneaker-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -8866,15 +8191,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Bia
 
-## [Fendi's New Mad Sneaker Is Architecture for Your Feet](https://www.highsnobiety.com/p/fendi-mad-architects-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 02 Sep 2024 17:27:53 GMT*
-
-
-## Bia
-
 ## [adidas' Classic Jabbar Sneaker Returns with Bold Energy ](https://www.highsnobiety.com/p/atmos-adidas-jabbar-low-sneaker-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -8983,15 +8299,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Avantika
 
-## [Fendi's New Mad Sneaker Is Architecture for Your Feet](https://www.highsnobiety.com/p/fendi-mad-architects-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 02 Sep 2024 17:27:53 GMT*
-
-
-## Avantika
-
 ## [adidas' Classic Jabbar Sneaker Returns with Bold Energy ](https://www.highsnobiety.com/p/atmos-adidas-jabbar-low-sneaker-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -9100,15 +8407,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Bernie Sanders
 
-## [Fendi's New Mad Sneaker Is Architecture for Your Feet](https://www.highsnobiety.com/p/fendi-mad-architects-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 02 Sep 2024 17:27:53 GMT*
-
-
-## Bernie Sanders
-
 ## [adidas' Classic Jabbar Sneaker Returns with Bold Energy ](https://www.highsnobiety.com/p/atmos-adidas-jabbar-low-sneaker-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -9217,15 +8515,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Big Sean
 
-## [Fendi's New Mad Sneaker Is Architecture for Your Feet](https://www.highsnobiety.com/p/fendi-mad-architects-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 02 Sep 2024 17:27:53 GMT*
-
-
-## Big Sean
-
 ## [adidas' Classic Jabbar Sneaker Returns with Bold Energy ](https://www.highsnobiety.com/p/atmos-adidas-jabbar-low-sneaker-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -9334,15 +8623,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## BlockBoy JB
 
-## [Fendi's New Mad Sneaker Is Architecture for Your Feet](https://www.highsnobiety.com/p/fendi-mad-architects-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 02 Sep 2024 17:27:53 GMT*
-
-
-## BlockBoy JB
-
 ## [adidas' Classic Jabbar Sneaker Returns with Bold Energy ](https://www.highsnobiety.com/p/atmos-adidas-jabbar-low-sneaker-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -9451,15 +8731,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Biden
 
-## [Fendi's New Mad Sneaker Is Architecture for Your Feet](https://www.highsnobiety.com/p/fendi-mad-architects-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 02 Sep 2024 17:27:53 GMT*
-
-
-## Biden
-
 ## [adidas' Classic Jabbar Sneaker Returns with Bold Energy ](https://www.highsnobiety.com/p/atmos-adidas-jabbar-low-sneaker-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -9568,15 +8839,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Bieber
 
-## [Fendi's New Mad Sneaker Is Architecture for Your Feet](https://www.highsnobiety.com/p/fendi-mad-architects-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 02 Sep 2024 17:27:53 GMT*
-
-
-## Bieber
-
 ## [adidas' Classic Jabbar Sneaker Returns with Bold Energy ](https://www.highsnobiety.com/p/atmos-adidas-jabbar-low-sneaker-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -9685,15 +8947,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Paulina Porizkov
 
-## [Fendi's New Mad Sneaker Is Architecture for Your Feet](https://www.highsnobiety.com/p/fendi-mad-architects-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 02 Sep 2024 17:27:53 GMT*
-
-
-## Paulina Porizkov
-
 ## [adidas' Classic Jabbar Sneaker Returns with Bold Energy ](https://www.highsnobiety.com/p/atmos-adidas-jabbar-low-sneaker-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -9802,15 +9055,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Paris Hilton
 
-## [Fendi's New Mad Sneaker Is Architecture for Your Feet](https://www.highsnobiety.com/p/fendi-mad-architects-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 02 Sep 2024 17:27:53 GMT*
-
-
-## Paris Hilton
-
 ## [adidas' Classic Jabbar Sneaker Returns with Bold Energy ](https://www.highsnobiety.com/p/atmos-adidas-jabbar-low-sneaker-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -9919,15 +9163,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Metro Boomin
 
-## [Fendi's New Mad Sneaker Is Architecture for Your Feet](https://www.highsnobiety.com/p/fendi-mad-architects-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 02 Sep 2024 17:27:53 GMT*
-
-
-## Metro Boomin
-
 ## [adidas' Classic Jabbar Sneaker Returns with Bold Energy ](https://www.highsnobiety.com/p/atmos-adidas-jabbar-low-sneaker-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -10036,15 +9271,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Meghan Markle
 
-## [Fendi's New Mad Sneaker Is Architecture for Your Feet](https://www.highsnobiety.com/p/fendi-mad-architects-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 02 Sep 2024 17:27:53 GMT*
-
-
-## Meghan Markle
-
 ## [adidas' Classic Jabbar Sneaker Returns with Bold Energy ](https://www.highsnobiety.com/p/atmos-adidas-jabbar-low-sneaker-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -10153,15 +9379,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Megan Thee Stallion
 
-## [Fendi's New Mad Sneaker Is Architecture for Your Feet](https://www.highsnobiety.com/p/fendi-mad-architects-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 02 Sep 2024 17:27:53 GMT*
-
-
-## Megan Thee Stallion
-
 ## [adidas' Classic Jabbar Sneaker Returns with Bold Energy ](https://www.highsnobiety.com/p/atmos-adidas-jabbar-low-sneaker-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -10270,15 +9487,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Maya Rudolph
 
-## [Fendi's New Mad Sneaker Is Architecture for Your Feet](https://www.highsnobiety.com/p/fendi-mad-architects-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 02 Sep 2024 17:27:53 GMT*
-
-
-## Maya Rudolph
-
 ## [adidas' Classic Jabbar Sneaker Returns with Bold Energy ](https://www.highsnobiety.com/p/atmos-adidas-jabbar-low-sneaker-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -10387,15 +9595,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Olivia Rodrigo
 
-## [Fendi's New Mad Sneaker Is Architecture for Your Feet](https://www.highsnobiety.com/p/fendi-mad-architects-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 02 Sep 2024 17:27:53 GMT*
-
-
-## Olivia Rodrigo
-
 ## [adidas' Classic Jabbar Sneaker Returns with Bold Energy ](https://www.highsnobiety.com/p/atmos-adidas-jabbar-low-sneaker-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -10504,15 +9703,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Obama
 
-## [Fendi's New Mad Sneaker Is Architecture for Your Feet](https://www.highsnobiety.com/p/fendi-mad-architects-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 02 Sep 2024 17:27:53 GMT*
-
-
-## Obama
-
 ## [adidas' Classic Jabbar Sneaker Returns with Bold Energy ](https://www.highsnobiety.com/p/atmos-adidas-jabbar-low-sneaker-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -10621,15 +9811,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Nicki Minaj
 
-## [Fendi's New Mad Sneaker Is Architecture for Your Feet](https://www.highsnobiety.com/p/fendi-mad-architects-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 02 Sep 2024 17:27:53 GMT*
-
-
-## Nicki Minaj
-
 ## [adidas' Classic Jabbar Sneaker Returns with Bold Energy ](https://www.highsnobiety.com/p/atmos-adidas-jabbar-low-sneaker-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -10734,15 +9915,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Mon, 02 Sep 2024 21:00:37 GMT*
-
-
-## MrBeast
-
-## [Fendi's New Mad Sneaker Is Architecture for Your Feet](https://www.highsnobiety.com/p/fendi-mad-architects-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 02 Sep 2024 17:27:53 GMT*
 
 
 ## MrBeast
