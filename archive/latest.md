@@ -1,24 +1,6 @@
 # Latest Stories
 ## Tim Cook
 
-## [Vans' Classic Skate Shoe Just Got Jeweled-Out (Again)](https://www.highsnobiety.com/p/vans-otw-old-skool-36-pearlized/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 03 Sep 2024 14:53:00 GMT*
-
-
-## Tim Cook
-
-## [Kiko Kostadinov’s Techy ASICS Sneakers Get Mule-ified (Finally!)](https://www.highsnobiety.com/p/kiko-kostadinov-asics-novalis-gel-styrax-mule/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 03 Sep 2024 15:14:09 GMT*
-
-
-## Tim Cook
-
 ## [Salomon’s Trail Clog Advances Into a Sleek Snow Boot ](https://www.highsnobiety.com/p/salomon-snowclog-advanced/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -80,22 +62,13 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Wed, 04 Sep 2024 13:00:00 GMT*
 
 
-## Taylor Swift
+## Tim Cook
 
-## [Vans' Classic Skate Shoe Just Got Jeweled-Out (Again)](https://www.highsnobiety.com/p/vans-otw-old-skool-36-pearlized/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 03 Sep 2024 14:53:00 GMT*
-
-
-## Taylor Swift
-
-## [Kiko Kostadinov’s Techy ASICS Sneakers Get Mule-ified (Finally!)](https://www.highsnobiety.com/p/kiko-kostadinov-asics-novalis-gel-styrax-mule/)
+## [From Vans to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-sept-week-1/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 03 Sep 2024 15:14:09 GMT*
+*Published on: Wed, 04 Sep 2024 15:15:58 GMT*
 
 
 ## Taylor Swift
@@ -161,22 +134,13 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Wed, 04 Sep 2024 13:00:00 GMT*
 
 
-## Tom Brady
+## Taylor Swift
 
-## [Vans' Classic Skate Shoe Just Got Jeweled-Out (Again)](https://www.highsnobiety.com/p/vans-otw-old-skool-36-pearlized/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 03 Sep 2024 14:53:00 GMT*
-
-
-## Tom Brady
-
-## [Kiko Kostadinov’s Techy ASICS Sneakers Get Mule-ified (Finally!)](https://www.highsnobiety.com/p/kiko-kostadinov-asics-novalis-gel-styrax-mule/)
+## [From Vans to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-sept-week-1/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 03 Sep 2024 15:14:09 GMT*
+*Published on: Wed, 04 Sep 2024 15:15:58 GMT*
 
 
 ## Tom Brady
@@ -242,22 +206,13 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Wed, 04 Sep 2024 13:00:00 GMT*
 
 
-## Tina Fey
+## Tom Brady
 
-## [Vans' Classic Skate Shoe Just Got Jeweled-Out (Again)](https://www.highsnobiety.com/p/vans-otw-old-skool-36-pearlized/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 03 Sep 2024 14:53:00 GMT*
-
-
-## Tina Fey
-
-## [Kiko Kostadinov’s Techy ASICS Sneakers Get Mule-ified (Finally!)](https://www.highsnobiety.com/p/kiko-kostadinov-asics-novalis-gel-styrax-mule/)
+## [From Vans to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-sept-week-1/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 03 Sep 2024 15:14:09 GMT*
+*Published on: Wed, 04 Sep 2024 15:15:58 GMT*
 
 
 ## Tina Fey
@@ -323,22 +278,13 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Wed, 04 Sep 2024 13:00:00 GMT*
 
 
-## Steven Yuen
+## Tina Fey
 
-## [Vans' Classic Skate Shoe Just Got Jeweled-Out (Again)](https://www.highsnobiety.com/p/vans-otw-old-skool-36-pearlized/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 03 Sep 2024 14:53:00 GMT*
-
-
-## Steven Yuen
-
-## [Kiko Kostadinov’s Techy ASICS Sneakers Get Mule-ified (Finally!)](https://www.highsnobiety.com/p/kiko-kostadinov-asics-novalis-gel-styrax-mule/)
+## [From Vans to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-sept-week-1/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 03 Sep 2024 15:14:09 GMT*
+*Published on: Wed, 04 Sep 2024 15:15:58 GMT*
 
 
 ## Steven Yuen
@@ -404,22 +350,13 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Wed, 04 Sep 2024 13:00:00 GMT*
 
 
-## Sommer Ray
+## Steven Yuen
 
-## [Vans' Classic Skate Shoe Just Got Jeweled-Out (Again)](https://www.highsnobiety.com/p/vans-otw-old-skool-36-pearlized/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 03 Sep 2024 14:53:00 GMT*
-
-
-## Sommer Ray
-
-## [Kiko Kostadinov’s Techy ASICS Sneakers Get Mule-ified (Finally!)](https://www.highsnobiety.com/p/kiko-kostadinov-asics-novalis-gel-styrax-mule/)
+## [From Vans to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-sept-week-1/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 03 Sep 2024 15:14:09 GMT*
+*Published on: Wed, 04 Sep 2024 15:15:58 GMT*
 
 
 ## Sommer Ray
@@ -485,22 +422,13 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Wed, 04 Sep 2024 13:00:00 GMT*
 
 
-## Sza
+## Sommer Ray
 
-## [Vans' Classic Skate Shoe Just Got Jeweled-Out (Again)](https://www.highsnobiety.com/p/vans-otw-old-skool-36-pearlized/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 03 Sep 2024 14:53:00 GMT*
-
-
-## Sza
-
-## [Kiko Kostadinov’s Techy ASICS Sneakers Get Mule-ified (Finally!)](https://www.highsnobiety.com/p/kiko-kostadinov-asics-novalis-gel-styrax-mule/)
+## [From Vans to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-sept-week-1/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 03 Sep 2024 15:14:09 GMT*
+*Published on: Wed, 04 Sep 2024 15:15:58 GMT*
 
 
 ## Sza
@@ -566,22 +494,13 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Wed, 04 Sep 2024 13:00:00 GMT*
 
 
-## Sydney Sweeney
+## Sza
 
-## [Vans' Classic Skate Shoe Just Got Jeweled-Out (Again)](https://www.highsnobiety.com/p/vans-otw-old-skool-36-pearlized/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 03 Sep 2024 14:53:00 GMT*
-
-
-## Sydney Sweeney
-
-## [Kiko Kostadinov’s Techy ASICS Sneakers Get Mule-ified (Finally!)](https://www.highsnobiety.com/p/kiko-kostadinov-asics-novalis-gel-styrax-mule/)
+## [From Vans to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-sept-week-1/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 03 Sep 2024 15:14:09 GMT*
+*Published on: Wed, 04 Sep 2024 15:15:58 GMT*
 
 
 ## Sydney Sweeney
@@ -647,22 +566,13 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Wed, 04 Sep 2024 13:00:00 GMT*
 
 
-## Walton Goggins
+## Sydney Sweeney
 
-## [Vans' Classic Skate Shoe Just Got Jeweled-Out (Again)](https://www.highsnobiety.com/p/vans-otw-old-skool-36-pearlized/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 03 Sep 2024 14:53:00 GMT*
-
-
-## Walton Goggins
-
-## [Kiko Kostadinov’s Techy ASICS Sneakers Get Mule-ified (Finally!)](https://www.highsnobiety.com/p/kiko-kostadinov-asics-novalis-gel-styrax-mule/)
+## [From Vans to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-sept-week-1/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 03 Sep 2024 15:14:09 GMT*
+*Published on: Wed, 04 Sep 2024 15:15:58 GMT*
 
 
 ## Walton Goggins
@@ -728,22 +638,13 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Wed, 04 Sep 2024 13:00:00 GMT*
 
 
-## Tom Holland
+## Walton Goggins
 
-## [Vans' Classic Skate Shoe Just Got Jeweled-Out (Again)](https://www.highsnobiety.com/p/vans-otw-old-skool-36-pearlized/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 03 Sep 2024 14:53:00 GMT*
-
-
-## Tom Holland
-
-## [Kiko Kostadinov’s Techy ASICS Sneakers Get Mule-ified (Finally!)](https://www.highsnobiety.com/p/kiko-kostadinov-asics-novalis-gel-styrax-mule/)
+## [From Vans to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-sept-week-1/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 03 Sep 2024 15:14:09 GMT*
+*Published on: Wed, 04 Sep 2024 15:15:58 GMT*
 
 
 ## Tom Holland
@@ -809,22 +710,13 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Wed, 04 Sep 2024 13:00:00 GMT*
 
 
-## Gucci Mane
+## Tom Holland
 
-## [Vans' Classic Skate Shoe Just Got Jeweled-Out (Again)](https://www.highsnobiety.com/p/vans-otw-old-skool-36-pearlized/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 03 Sep 2024 14:53:00 GMT*
-
-
-## Gucci Mane
-
-## [Kiko Kostadinov’s Techy ASICS Sneakers Get Mule-ified (Finally!)](https://www.highsnobiety.com/p/kiko-kostadinov-asics-novalis-gel-styrax-mule/)
+## [From Vans to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-sept-week-1/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 03 Sep 2024 15:14:09 GMT*
+*Published on: Wed, 04 Sep 2024 15:15:58 GMT*
 
 
 ## Gucci Mane
@@ -890,22 +782,13 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Wed, 04 Sep 2024 13:00:00 GMT*
 
 
-## Harry Styles
+## Gucci Mane
 
-## [Vans' Classic Skate Shoe Just Got Jeweled-Out (Again)](https://www.highsnobiety.com/p/vans-otw-old-skool-36-pearlized/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 03 Sep 2024 14:53:00 GMT*
-
-
-## Harry Styles
-
-## [Kiko Kostadinov’s Techy ASICS Sneakers Get Mule-ified (Finally!)](https://www.highsnobiety.com/p/kiko-kostadinov-asics-novalis-gel-styrax-mule/)
+## [From Vans to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-sept-week-1/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 03 Sep 2024 15:14:09 GMT*
+*Published on: Wed, 04 Sep 2024 15:15:58 GMT*
 
 
 ## Harry Styles
@@ -971,22 +854,13 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Wed, 04 Sep 2024 13:00:00 GMT*
 
 
-## Jake Paul
+## Harry Styles
 
-## [Vans' Classic Skate Shoe Just Got Jeweled-Out (Again)](https://www.highsnobiety.com/p/vans-otw-old-skool-36-pearlized/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 03 Sep 2024 14:53:00 GMT*
-
-
-## Jake Paul
-
-## [Kiko Kostadinov’s Techy ASICS Sneakers Get Mule-ified (Finally!)](https://www.highsnobiety.com/p/kiko-kostadinov-asics-novalis-gel-styrax-mule/)
+## [From Vans to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-sept-week-1/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 03 Sep 2024 15:14:09 GMT*
+*Published on: Wed, 04 Sep 2024 15:15:58 GMT*
 
 
 ## Jake Paul
@@ -1052,22 +926,13 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Wed, 04 Sep 2024 13:00:00 GMT*
 
 
-## Jameela Jamil
+## Jake Paul
 
-## [Vans' Classic Skate Shoe Just Got Jeweled-Out (Again)](https://www.highsnobiety.com/p/vans-otw-old-skool-36-pearlized/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 03 Sep 2024 14:53:00 GMT*
-
-
-## Jameela Jamil
-
-## [Kiko Kostadinov’s Techy ASICS Sneakers Get Mule-ified (Finally!)](https://www.highsnobiety.com/p/kiko-kostadinov-asics-novalis-gel-styrax-mule/)
+## [From Vans to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-sept-week-1/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 03 Sep 2024 15:14:09 GMT*
+*Published on: Wed, 04 Sep 2024 15:15:58 GMT*
 
 
 ## Jameela Jamil
@@ -1133,22 +998,13 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Wed, 04 Sep 2024 13:00:00 GMT*
 
 
-## Elon Musk
+## Jameela Jamil
 
-## [Vans' Classic Skate Shoe Just Got Jeweled-Out (Again)](https://www.highsnobiety.com/p/vans-otw-old-skool-36-pearlized/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 03 Sep 2024 14:53:00 GMT*
-
-
-## Elon Musk
-
-## [Kiko Kostadinov’s Techy ASICS Sneakers Get Mule-ified (Finally!)](https://www.highsnobiety.com/p/kiko-kostadinov-asics-novalis-gel-styrax-mule/)
+## [From Vans to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-sept-week-1/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 03 Sep 2024 15:14:09 GMT*
+*Published on: Wed, 04 Sep 2024 15:15:58 GMT*
 
 
 ## Elon Musk
@@ -1214,22 +1070,13 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Wed, 04 Sep 2024 13:00:00 GMT*
 
 
-## Gabrielle Union
+## Elon Musk
 
-## [Vans' Classic Skate Shoe Just Got Jeweled-Out (Again)](https://www.highsnobiety.com/p/vans-otw-old-skool-36-pearlized/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 03 Sep 2024 14:53:00 GMT*
-
-
-## Gabrielle Union
-
-## [Kiko Kostadinov’s Techy ASICS Sneakers Get Mule-ified (Finally!)](https://www.highsnobiety.com/p/kiko-kostadinov-asics-novalis-gel-styrax-mule/)
+## [From Vans to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-sept-week-1/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 03 Sep 2024 15:14:09 GMT*
+*Published on: Wed, 04 Sep 2024 15:15:58 GMT*
 
 
 ## Gabrielle Union
@@ -1295,22 +1142,13 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Wed, 04 Sep 2024 13:00:00 GMT*
 
 
-## Giancarlo Esposito
+## Gabrielle Union
 
-## [Vans' Classic Skate Shoe Just Got Jeweled-Out (Again)](https://www.highsnobiety.com/p/vans-otw-old-skool-36-pearlized/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 03 Sep 2024 14:53:00 GMT*
-
-
-## Giancarlo Esposito
-
-## [Kiko Kostadinov’s Techy ASICS Sneakers Get Mule-ified (Finally!)](https://www.highsnobiety.com/p/kiko-kostadinov-asics-novalis-gel-styrax-mule/)
+## [From Vans to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-sept-week-1/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 03 Sep 2024 15:14:09 GMT*
+*Published on: Wed, 04 Sep 2024 15:15:58 GMT*
 
 
 ## Giancarlo Esposito
@@ -1376,22 +1214,13 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Wed, 04 Sep 2024 13:00:00 GMT*
 
 
-## Gillian Jacobs
+## Giancarlo Esposito
 
-## [Vans' Classic Skate Shoe Just Got Jeweled-Out (Again)](https://www.highsnobiety.com/p/vans-otw-old-skool-36-pearlized/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 03 Sep 2024 14:53:00 GMT*
-
-
-## Gillian Jacobs
-
-## [Kiko Kostadinov’s Techy ASICS Sneakers Get Mule-ified (Finally!)](https://www.highsnobiety.com/p/kiko-kostadinov-asics-novalis-gel-styrax-mule/)
+## [From Vans to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-sept-week-1/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 03 Sep 2024 15:14:09 GMT*
+*Published on: Wed, 04 Sep 2024 15:15:58 GMT*
 
 
 ## Gillian Jacobs
@@ -1457,22 +1286,13 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Wed, 04 Sep 2024 13:00:00 GMT*
 
 
-## Jason Mantzoukas
+## Gillian Jacobs
 
-## [Vans' Classic Skate Shoe Just Got Jeweled-Out (Again)](https://www.highsnobiety.com/p/vans-otw-old-skool-36-pearlized/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 03 Sep 2024 14:53:00 GMT*
-
-
-## Jason Mantzoukas
-
-## [Kiko Kostadinov’s Techy ASICS Sneakers Get Mule-ified (Finally!)](https://www.highsnobiety.com/p/kiko-kostadinov-asics-novalis-gel-styrax-mule/)
+## [From Vans to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-sept-week-1/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 03 Sep 2024 15:14:09 GMT*
+*Published on: Wed, 04 Sep 2024 15:15:58 GMT*
 
 
 ## Jason Mantzoukas
@@ -1538,22 +1358,13 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Wed, 04 Sep 2024 13:00:00 GMT*
 
 
-## JB Smoove
+## Jason Mantzoukas
 
-## [Vans' Classic Skate Shoe Just Got Jeweled-Out (Again)](https://www.highsnobiety.com/p/vans-otw-old-skool-36-pearlized/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 03 Sep 2024 14:53:00 GMT*
-
-
-## JB Smoove
-
-## [Kiko Kostadinov’s Techy ASICS Sneakers Get Mule-ified (Finally!)](https://www.highsnobiety.com/p/kiko-kostadinov-asics-novalis-gel-styrax-mule/)
+## [From Vans to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-sept-week-1/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 03 Sep 2024 15:14:09 GMT*
+*Published on: Wed, 04 Sep 2024 15:15:58 GMT*
 
 
 ## JB Smoove
@@ -1619,22 +1430,13 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Wed, 04 Sep 2024 13:00:00 GMT*
 
 
-## Madison Pettis
+## JB Smoove
 
-## [Vans' Classic Skate Shoe Just Got Jeweled-Out (Again)](https://www.highsnobiety.com/p/vans-otw-old-skool-36-pearlized/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 03 Sep 2024 14:53:00 GMT*
-
-
-## Madison Pettis
-
-## [Kiko Kostadinov’s Techy ASICS Sneakers Get Mule-ified (Finally!)](https://www.highsnobiety.com/p/kiko-kostadinov-asics-novalis-gel-styrax-mule/)
+## [From Vans to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-sept-week-1/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 03 Sep 2024 15:14:09 GMT*
+*Published on: Wed, 04 Sep 2024 15:15:58 GMT*
 
 
 ## Madison Pettis
@@ -1700,22 +1502,13 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Wed, 04 Sep 2024 13:00:00 GMT*
 
 
-## Austin Butler
+## Madison Pettis
 
-## [Vans' Classic Skate Shoe Just Got Jeweled-Out (Again)](https://www.highsnobiety.com/p/vans-otw-old-skool-36-pearlized/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 03 Sep 2024 14:53:00 GMT*
-
-
-## Austin Butler
-
-## [Kiko Kostadinov’s Techy ASICS Sneakers Get Mule-ified (Finally!)](https://www.highsnobiety.com/p/kiko-kostadinov-asics-novalis-gel-styrax-mule/)
+## [From Vans to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-sept-week-1/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 03 Sep 2024 15:14:09 GMT*
+*Published on: Wed, 04 Sep 2024 15:15:58 GMT*
 
 
 ## Austin Butler
@@ -1781,22 +1574,13 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Wed, 04 Sep 2024 13:00:00 GMT*
 
 
-## Mark Zuckerberg
+## Austin Butler
 
-## [Vans' Classic Skate Shoe Just Got Jeweled-Out (Again)](https://www.highsnobiety.com/p/vans-otw-old-skool-36-pearlized/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 03 Sep 2024 14:53:00 GMT*
-
-
-## Mark Zuckerberg
-
-## [Kiko Kostadinov’s Techy ASICS Sneakers Get Mule-ified (Finally!)](https://www.highsnobiety.com/p/kiko-kostadinov-asics-novalis-gel-styrax-mule/)
+## [From Vans to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-sept-week-1/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 03 Sep 2024 15:14:09 GMT*
+*Published on: Wed, 04 Sep 2024 15:15:58 GMT*
 
 
 ## Mark Zuckerberg
@@ -1862,22 +1646,13 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Wed, 04 Sep 2024 13:00:00 GMT*
 
 
-## Ariana Grande
+## Mark Zuckerberg
 
-## [Vans' Classic Skate Shoe Just Got Jeweled-Out (Again)](https://www.highsnobiety.com/p/vans-otw-old-skool-36-pearlized/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 03 Sep 2024 14:53:00 GMT*
-
-
-## Ariana Grande
-
-## [Kiko Kostadinov’s Techy ASICS Sneakers Get Mule-ified (Finally!)](https://www.highsnobiety.com/p/kiko-kostadinov-asics-novalis-gel-styrax-mule/)
+## [From Vans to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-sept-week-1/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 03 Sep 2024 15:14:09 GMT*
+*Published on: Wed, 04 Sep 2024 15:15:58 GMT*
 
 
 ## Ariana Grande
@@ -1943,22 +1718,13 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Wed, 04 Sep 2024 13:00:00 GMT*
 
 
-## Livvy Dunne
+## Ariana Grande
 
-## [Vans' Classic Skate Shoe Just Got Jeweled-Out (Again)](https://www.highsnobiety.com/p/vans-otw-old-skool-36-pearlized/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 03 Sep 2024 14:53:00 GMT*
-
-
-## Livvy Dunne
-
-## [Kiko Kostadinov’s Techy ASICS Sneakers Get Mule-ified (Finally!)](https://www.highsnobiety.com/p/kiko-kostadinov-asics-novalis-gel-styrax-mule/)
+## [From Vans to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-sept-week-1/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 03 Sep 2024 15:14:09 GMT*
+*Published on: Wed, 04 Sep 2024 15:15:58 GMT*
 
 
 ## Livvy Dunne
@@ -2024,22 +1790,13 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Wed, 04 Sep 2024 13:00:00 GMT*
 
 
-## Ali Wong
+## Livvy Dunne
 
-## [Vans' Classic Skate Shoe Just Got Jeweled-Out (Again)](https://www.highsnobiety.com/p/vans-otw-old-skool-36-pearlized/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 03 Sep 2024 14:53:00 GMT*
-
-
-## Ali Wong
-
-## [Kiko Kostadinov’s Techy ASICS Sneakers Get Mule-ified (Finally!)](https://www.highsnobiety.com/p/kiko-kostadinov-asics-novalis-gel-styrax-mule/)
+## [From Vans to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-sept-week-1/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 03 Sep 2024 15:14:09 GMT*
+*Published on: Wed, 04 Sep 2024 15:15:58 GMT*
 
 
 ## Ali Wong
@@ -2105,22 +1862,13 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Wed, 04 Sep 2024 13:00:00 GMT*
 
 
-## Lizzo
+## Ali Wong
 
-## [Vans' Classic Skate Shoe Just Got Jeweled-Out (Again)](https://www.highsnobiety.com/p/vans-otw-old-skool-36-pearlized/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 03 Sep 2024 14:53:00 GMT*
-
-
-## Lizzo
-
-## [Kiko Kostadinov’s Techy ASICS Sneakers Get Mule-ified (Finally!)](https://www.highsnobiety.com/p/kiko-kostadinov-asics-novalis-gel-styrax-mule/)
+## [From Vans to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-sept-week-1/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 03 Sep 2024 15:14:09 GMT*
+*Published on: Wed, 04 Sep 2024 15:15:58 GMT*
 
 
 ## Lizzo
@@ -2186,22 +1934,13 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Wed, 04 Sep 2024 13:00:00 GMT*
 
 
-## Alison Brie
+## Lizzo
 
-## [Vans' Classic Skate Shoe Just Got Jeweled-Out (Again)](https://www.highsnobiety.com/p/vans-otw-old-skool-36-pearlized/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 03 Sep 2024 14:53:00 GMT*
-
-
-## Alison Brie
-
-## [Kiko Kostadinov’s Techy ASICS Sneakers Get Mule-ified (Finally!)](https://www.highsnobiety.com/p/kiko-kostadinov-asics-novalis-gel-styrax-mule/)
+## [From Vans to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-sept-week-1/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 03 Sep 2024 15:14:09 GMT*
+*Published on: Wed, 04 Sep 2024 15:15:58 GMT*
 
 
 ## Alison Brie
@@ -2267,22 +2006,13 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Wed, 04 Sep 2024 13:00:00 GMT*
 
 
-## Lil Wayne
+## Alison Brie
 
-## [Vans' Classic Skate Shoe Just Got Jeweled-Out (Again)](https://www.highsnobiety.com/p/vans-otw-old-skool-36-pearlized/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 03 Sep 2024 14:53:00 GMT*
-
-
-## Lil Wayne
-
-## [Kiko Kostadinov’s Techy ASICS Sneakers Get Mule-ified (Finally!)](https://www.highsnobiety.com/p/kiko-kostadinov-asics-novalis-gel-styrax-mule/)
+## [From Vans to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-sept-week-1/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 03 Sep 2024 15:14:09 GMT*
+*Published on: Wed, 04 Sep 2024 15:15:58 GMT*
 
 
 ## Lil Wayne
@@ -2348,22 +2078,13 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Wed, 04 Sep 2024 13:00:00 GMT*
 
 
-## Adele
+## Lil Wayne
 
-## [Vans' Classic Skate Shoe Just Got Jeweled-Out (Again)](https://www.highsnobiety.com/p/vans-otw-old-skool-36-pearlized/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 03 Sep 2024 14:53:00 GMT*
-
-
-## Adele
-
-## [Kiko Kostadinov’s Techy ASICS Sneakers Get Mule-ified (Finally!)](https://www.highsnobiety.com/p/kiko-kostadinov-asics-novalis-gel-styrax-mule/)
+## [From Vans to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-sept-week-1/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 03 Sep 2024 15:14:09 GMT*
+*Published on: Wed, 04 Sep 2024 15:15:58 GMT*
 
 
 ## Adele
@@ -2429,22 +2150,13 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Wed, 04 Sep 2024 13:00:00 GMT*
 
 
-## Lindsay Lohan
+## Adele
 
-## [Vans' Classic Skate Shoe Just Got Jeweled-Out (Again)](https://www.highsnobiety.com/p/vans-otw-old-skool-36-pearlized/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 03 Sep 2024 14:53:00 GMT*
-
-
-## Lindsay Lohan
-
-## [Kiko Kostadinov’s Techy ASICS Sneakers Get Mule-ified (Finally!)](https://www.highsnobiety.com/p/kiko-kostadinov-asics-novalis-gel-styrax-mule/)
+## [From Vans to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-sept-week-1/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 03 Sep 2024 15:14:09 GMT*
+*Published on: Wed, 04 Sep 2024 15:15:58 GMT*
 
 
 ## Lindsay Lohan
@@ -2510,22 +2222,13 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Wed, 04 Sep 2024 13:00:00 GMT*
 
 
-## Addison Rae
+## Lindsay Lohan
 
-## [Vans' Classic Skate Shoe Just Got Jeweled-Out (Again)](https://www.highsnobiety.com/p/vans-otw-old-skool-36-pearlized/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 03 Sep 2024 14:53:00 GMT*
-
-
-## Addison Rae
-
-## [Kiko Kostadinov’s Techy ASICS Sneakers Get Mule-ified (Finally!)](https://www.highsnobiety.com/p/kiko-kostadinov-asics-novalis-gel-styrax-mule/)
+## [From Vans to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-sept-week-1/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 03 Sep 2024 15:14:09 GMT*
+*Published on: Wed, 04 Sep 2024 15:15:58 GMT*
 
 
 ## Addison Rae
@@ -2591,22 +2294,13 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Wed, 04 Sep 2024 13:00:00 GMT*
 
 
-## Latto
+## Addison Rae
 
-## [Vans' Classic Skate Shoe Just Got Jeweled-Out (Again)](https://www.highsnobiety.com/p/vans-otw-old-skool-36-pearlized/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 03 Sep 2024 14:53:00 GMT*
-
-
-## Latto
-
-## [Kiko Kostadinov’s Techy ASICS Sneakers Get Mule-ified (Finally!)](https://www.highsnobiety.com/p/kiko-kostadinov-asics-novalis-gel-styrax-mule/)
+## [From Vans to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-sept-week-1/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 03 Sep 2024 15:14:09 GMT*
+*Published on: Wed, 04 Sep 2024 15:15:58 GMT*
 
 
 ## Latto
@@ -2672,22 +2366,13 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Wed, 04 Sep 2024 13:00:00 GMT*
 
 
-## Aaron Paul
+## Latto
 
-## [Vans' Classic Skate Shoe Just Got Jeweled-Out (Again)](https://www.highsnobiety.com/p/vans-otw-old-skool-36-pearlized/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 03 Sep 2024 14:53:00 GMT*
-
-
-## Aaron Paul
-
-## [Kiko Kostadinov’s Techy ASICS Sneakers Get Mule-ified (Finally!)](https://www.highsnobiety.com/p/kiko-kostadinov-asics-novalis-gel-styrax-mule/)
+## [From Vans to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-sept-week-1/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 03 Sep 2024 15:14:09 GMT*
+*Published on: Wed, 04 Sep 2024 15:15:58 GMT*
 
 
 ## Aaron Paul
@@ -2753,22 +2438,13 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Wed, 04 Sep 2024 13:00:00 GMT*
 
 
-## LeBron James
+## Aaron Paul
 
-## [Vans' Classic Skate Shoe Just Got Jeweled-Out (Again)](https://www.highsnobiety.com/p/vans-otw-old-skool-36-pearlized/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 03 Sep 2024 14:53:00 GMT*
-
-
-## LeBron James
-
-## [Kiko Kostadinov’s Techy ASICS Sneakers Get Mule-ified (Finally!)](https://www.highsnobiety.com/p/kiko-kostadinov-asics-novalis-gel-styrax-mule/)
+## [From Vans to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-sept-week-1/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 03 Sep 2024 15:14:09 GMT*
+*Published on: Wed, 04 Sep 2024 15:15:58 GMT*
 
 
 ## LeBron James
@@ -2834,22 +2510,13 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Wed, 04 Sep 2024 13:00:00 GMT*
 
 
-## 50 Cent
+## LeBron James
 
-## [Vans' Classic Skate Shoe Just Got Jeweled-Out (Again)](https://www.highsnobiety.com/p/vans-otw-old-skool-36-pearlized/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 03 Sep 2024 14:53:00 GMT*
-
-
-## 50 Cent
-
-## [Kiko Kostadinov’s Techy ASICS Sneakers Get Mule-ified (Finally!)](https://www.highsnobiety.com/p/kiko-kostadinov-asics-novalis-gel-styrax-mule/)
+## [From Vans to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-sept-week-1/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 03 Sep 2024 15:14:09 GMT*
+*Published on: Wed, 04 Sep 2024 15:15:58 GMT*
 
 
 ## 50 Cent
@@ -2915,22 +2582,13 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Wed, 04 Sep 2024 13:00:00 GMT*
 
 
-## Kesha
+## 50 Cent
 
-## [Vans' Classic Skate Shoe Just Got Jeweled-Out (Again)](https://www.highsnobiety.com/p/vans-otw-old-skool-36-pearlized/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 03 Sep 2024 14:53:00 GMT*
-
-
-## Kesha
-
-## [Kiko Kostadinov’s Techy ASICS Sneakers Get Mule-ified (Finally!)](https://www.highsnobiety.com/p/kiko-kostadinov-asics-novalis-gel-styrax-mule/)
+## [From Vans to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-sept-week-1/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 03 Sep 2024 15:14:09 GMT*
+*Published on: Wed, 04 Sep 2024 15:15:58 GMT*
 
 
 ## Kesha
@@ -2996,22 +2654,13 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Wed, 04 Sep 2024 13:00:00 GMT*
 
 
-## 21 Savage
+## Kesha
 
-## [Vans' Classic Skate Shoe Just Got Jeweled-Out (Again)](https://www.highsnobiety.com/p/vans-otw-old-skool-36-pearlized/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 03 Sep 2024 14:53:00 GMT*
-
-
-## 21 Savage
-
-## [Kiko Kostadinov’s Techy ASICS Sneakers Get Mule-ified (Finally!)](https://www.highsnobiety.com/p/kiko-kostadinov-asics-novalis-gel-styrax-mule/)
+## [From Vans to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-sept-week-1/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 03 Sep 2024 15:14:09 GMT*
+*Published on: Wed, 04 Sep 2024 15:15:58 GMT*
 
 
 ## 21 Savage
@@ -3077,22 +2726,13 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Wed, 04 Sep 2024 13:00:00 GMT*
 
 
-## Larry David
+## 21 Savage
 
-## [Vans' Classic Skate Shoe Just Got Jeweled-Out (Again)](https://www.highsnobiety.com/p/vans-otw-old-skool-36-pearlized/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 03 Sep 2024 14:53:00 GMT*
-
-
-## Larry David
-
-## [Kiko Kostadinov’s Techy ASICS Sneakers Get Mule-ified (Finally!)](https://www.highsnobiety.com/p/kiko-kostadinov-asics-novalis-gel-styrax-mule/)
+## [From Vans to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-sept-week-1/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 03 Sep 2024 15:14:09 GMT*
+*Published on: Wed, 04 Sep 2024 15:15:58 GMT*
 
 
 ## Larry David
@@ -3158,22 +2798,13 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Wed, 04 Sep 2024 13:00:00 GMT*
 
 
-## Seth Rogan
+## Larry David
 
-## [Vans' Classic Skate Shoe Just Got Jeweled-Out (Again)](https://www.highsnobiety.com/p/vans-otw-old-skool-36-pearlized/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 03 Sep 2024 14:53:00 GMT*
-
-
-## Seth Rogan
-
-## [Kiko Kostadinov’s Techy ASICS Sneakers Get Mule-ified (Finally!)](https://www.highsnobiety.com/p/kiko-kostadinov-asics-novalis-gel-styrax-mule/)
+## [From Vans to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-sept-week-1/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 03 Sep 2024 15:14:09 GMT*
+*Published on: Wed, 04 Sep 2024 15:15:58 GMT*
 
 
 ## Seth Rogan
@@ -3239,22 +2870,13 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Wed, 04 Sep 2024 13:00:00 GMT*
 
 
-## Simone Biles
+## Seth Rogan
 
-## [Vans' Classic Skate Shoe Just Got Jeweled-Out (Again)](https://www.highsnobiety.com/p/vans-otw-old-skool-36-pearlized/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 03 Sep 2024 14:53:00 GMT*
-
-
-## Simone Biles
-
-## [Kiko Kostadinov’s Techy ASICS Sneakers Get Mule-ified (Finally!)](https://www.highsnobiety.com/p/kiko-kostadinov-asics-novalis-gel-styrax-mule/)
+## [From Vans to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-sept-week-1/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 03 Sep 2024 15:14:09 GMT*
+*Published on: Wed, 04 Sep 2024 15:15:58 GMT*
 
 
 ## Simone Biles
@@ -3320,22 +2942,13 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Wed, 04 Sep 2024 13:00:00 GMT*
 
 
-## Pete Davidson
+## Simone Biles
 
-## [Vans' Classic Skate Shoe Just Got Jeweled-Out (Again)](https://www.highsnobiety.com/p/vans-otw-old-skool-36-pearlized/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 03 Sep 2024 14:53:00 GMT*
-
-
-## Pete Davidson
-
-## [Kiko Kostadinov’s Techy ASICS Sneakers Get Mule-ified (Finally!)](https://www.highsnobiety.com/p/kiko-kostadinov-asics-novalis-gel-styrax-mule/)
+## [From Vans to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-sept-week-1/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 03 Sep 2024 15:14:09 GMT*
+*Published on: Wed, 04 Sep 2024 15:15:58 GMT*
 
 
 ## Pete Davidson
@@ -3401,22 +3014,13 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Wed, 04 Sep 2024 13:00:00 GMT*
 
 
-## Prince Harry
+## Pete Davidson
 
-## [Vans' Classic Skate Shoe Just Got Jeweled-Out (Again)](https://www.highsnobiety.com/p/vans-otw-old-skool-36-pearlized/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 03 Sep 2024 14:53:00 GMT*
-
-
-## Prince Harry
-
-## [Kiko Kostadinov’s Techy ASICS Sneakers Get Mule-ified (Finally!)](https://www.highsnobiety.com/p/kiko-kostadinov-asics-novalis-gel-styrax-mule/)
+## [From Vans to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-sept-week-1/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 03 Sep 2024 15:14:09 GMT*
+*Published on: Wed, 04 Sep 2024 15:15:58 GMT*
 
 
 ## Prince Harry
@@ -3482,22 +3086,13 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Wed, 04 Sep 2024 13:00:00 GMT*
 
 
-## Princess of Wales
+## Prince Harry
 
-## [Vans' Classic Skate Shoe Just Got Jeweled-Out (Again)](https://www.highsnobiety.com/p/vans-otw-old-skool-36-pearlized/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 03 Sep 2024 14:53:00 GMT*
-
-
-## Princess of Wales
-
-## [Kiko Kostadinov’s Techy ASICS Sneakers Get Mule-ified (Finally!)](https://www.highsnobiety.com/p/kiko-kostadinov-asics-novalis-gel-styrax-mule/)
+## [From Vans to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-sept-week-1/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 03 Sep 2024 15:14:09 GMT*
+*Published on: Wed, 04 Sep 2024 15:15:58 GMT*
 
 
 ## Princess of Wales
@@ -3563,22 +3158,13 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Wed, 04 Sep 2024 13:00:00 GMT*
 
 
-## Rachel McAdams
+## Princess of Wales
 
-## [Vans' Classic Skate Shoe Just Got Jeweled-Out (Again)](https://www.highsnobiety.com/p/vans-otw-old-skool-36-pearlized/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 03 Sep 2024 14:53:00 GMT*
-
-
-## Rachel McAdams
-
-## [Kiko Kostadinov’s Techy ASICS Sneakers Get Mule-ified (Finally!)](https://www.highsnobiety.com/p/kiko-kostadinov-asics-novalis-gel-styrax-mule/)
+## [From Vans to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-sept-week-1/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 03 Sep 2024 15:14:09 GMT*
+*Published on: Wed, 04 Sep 2024 15:15:58 GMT*
 
 
 ## Rachel McAdams
@@ -3644,22 +3230,13 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Wed, 04 Sep 2024 13:00:00 GMT*
 
 
-## Reneé Rapp
+## Rachel McAdams
 
-## [Vans' Classic Skate Shoe Just Got Jeweled-Out (Again)](https://www.highsnobiety.com/p/vans-otw-old-skool-36-pearlized/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 03 Sep 2024 14:53:00 GMT*
-
-
-## Reneé Rapp
-
-## [Kiko Kostadinov’s Techy ASICS Sneakers Get Mule-ified (Finally!)](https://www.highsnobiety.com/p/kiko-kostadinov-asics-novalis-gel-styrax-mule/)
+## [From Vans to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-sept-week-1/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 03 Sep 2024 15:14:09 GMT*
+*Published on: Wed, 04 Sep 2024 15:15:58 GMT*
 
 
 ## Reneé Rapp
@@ -3725,22 +3302,13 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Wed, 04 Sep 2024 13:00:00 GMT*
 
 
-## Rick Ross
+## Reneé Rapp
 
-## [Vans' Classic Skate Shoe Just Got Jeweled-Out (Again)](https://www.highsnobiety.com/p/vans-otw-old-skool-36-pearlized/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 03 Sep 2024 14:53:00 GMT*
-
-
-## Rick Ross
-
-## [Kiko Kostadinov’s Techy ASICS Sneakers Get Mule-ified (Finally!)](https://www.highsnobiety.com/p/kiko-kostadinov-asics-novalis-gel-styrax-mule/)
+## [From Vans to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-sept-week-1/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 03 Sep 2024 15:14:09 GMT*
+*Published on: Wed, 04 Sep 2024 15:15:58 GMT*
 
 
 ## Rick Ross
@@ -3806,22 +3374,13 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Wed, 04 Sep 2024 13:00:00 GMT*
 
 
-## Sam Ashgari
+## Rick Ross
 
-## [Vans' Classic Skate Shoe Just Got Jeweled-Out (Again)](https://www.highsnobiety.com/p/vans-otw-old-skool-36-pearlized/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 03 Sep 2024 14:53:00 GMT*
-
-
-## Sam Ashgari
-
-## [Kiko Kostadinov’s Techy ASICS Sneakers Get Mule-ified (Finally!)](https://www.highsnobiety.com/p/kiko-kostadinov-asics-novalis-gel-styrax-mule/)
+## [From Vans to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-sept-week-1/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 03 Sep 2024 15:14:09 GMT*
+*Published on: Wed, 04 Sep 2024 15:15:58 GMT*
 
 
 ## Sam Ashgari
@@ -3887,22 +3446,13 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Wed, 04 Sep 2024 13:00:00 GMT*
 
 
-## Sandra Oh
+## Sam Ashgari
 
-## [Vans' Classic Skate Shoe Just Got Jeweled-Out (Again)](https://www.highsnobiety.com/p/vans-otw-old-skool-36-pearlized/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 03 Sep 2024 14:53:00 GMT*
-
-
-## Sandra Oh
-
-## [Kiko Kostadinov’s Techy ASICS Sneakers Get Mule-ified (Finally!)](https://www.highsnobiety.com/p/kiko-kostadinov-asics-novalis-gel-styrax-mule/)
+## [From Vans to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-sept-week-1/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 03 Sep 2024 15:14:09 GMT*
+*Published on: Wed, 04 Sep 2024 15:15:58 GMT*
 
 
 ## Sandra Oh
@@ -3968,22 +3518,13 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Wed, 04 Sep 2024 13:00:00 GMT*
 
 
-## Donald Trump
+## Sandra Oh
 
-## [Vans' Classic Skate Shoe Just Got Jeweled-Out (Again)](https://www.highsnobiety.com/p/vans-otw-old-skool-36-pearlized/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 03 Sep 2024 14:53:00 GMT*
-
-
-## Donald Trump
-
-## [Kiko Kostadinov’s Techy ASICS Sneakers Get Mule-ified (Finally!)](https://www.highsnobiety.com/p/kiko-kostadinov-asics-novalis-gel-styrax-mule/)
+## [From Vans to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-sept-week-1/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 03 Sep 2024 15:14:09 GMT*
+*Published on: Wed, 04 Sep 2024 15:15:58 GMT*
 
 
 ## Donald Trump
@@ -4049,22 +3590,13 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Wed, 04 Sep 2024 13:00:00 GMT*
 
 
-## Diddy
+## Donald Trump
 
-## [Vans' Classic Skate Shoe Just Got Jeweled-Out (Again)](https://www.highsnobiety.com/p/vans-otw-old-skool-36-pearlized/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 03 Sep 2024 14:53:00 GMT*
-
-
-## Diddy
-
-## [Kiko Kostadinov’s Techy ASICS Sneakers Get Mule-ified (Finally!)](https://www.highsnobiety.com/p/kiko-kostadinov-asics-novalis-gel-styrax-mule/)
+## [From Vans to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-sept-week-1/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 03 Sep 2024 15:14:09 GMT*
+*Published on: Wed, 04 Sep 2024 15:15:58 GMT*
 
 
 ## Diddy
@@ -4130,22 +3662,13 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Wed, 04 Sep 2024 13:00:00 GMT*
 
 
-## City Girls
+## Diddy
 
-## [Vans' Classic Skate Shoe Just Got Jeweled-Out (Again)](https://www.highsnobiety.com/p/vans-otw-old-skool-36-pearlized/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 03 Sep 2024 14:53:00 GMT*
-
-
-## City Girls
-
-## [Kiko Kostadinov’s Techy ASICS Sneakers Get Mule-ified (Finally!)](https://www.highsnobiety.com/p/kiko-kostadinov-asics-novalis-gel-styrax-mule/)
+## [From Vans to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-sept-week-1/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 03 Sep 2024 15:14:09 GMT*
+*Published on: Wed, 04 Sep 2024 15:15:58 GMT*
 
 
 ## City Girls
@@ -4211,22 +3734,13 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Wed, 04 Sep 2024 13:00:00 GMT*
 
 
-## Chloe Bailey
+## City Girls
 
-## [Vans' Classic Skate Shoe Just Got Jeweled-Out (Again)](https://www.highsnobiety.com/p/vans-otw-old-skool-36-pearlized/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 03 Sep 2024 14:53:00 GMT*
-
-
-## Chloe Bailey
-
-## [Kiko Kostadinov’s Techy ASICS Sneakers Get Mule-ified (Finally!)](https://www.highsnobiety.com/p/kiko-kostadinov-asics-novalis-gel-styrax-mule/)
+## [From Vans to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-sept-week-1/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 03 Sep 2024 15:14:09 GMT*
+*Published on: Wed, 04 Sep 2024 15:15:58 GMT*
 
 
 ## Chloe Bailey
@@ -4292,22 +3806,13 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Wed, 04 Sep 2024 13:00:00 GMT*
 
 
-## Charli D Amelio
+## Chloe Bailey
 
-## [Vans' Classic Skate Shoe Just Got Jeweled-Out (Again)](https://www.highsnobiety.com/p/vans-otw-old-skool-36-pearlized/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 03 Sep 2024 14:53:00 GMT*
-
-
-## Charli D Amelio
-
-## [Kiko Kostadinov’s Techy ASICS Sneakers Get Mule-ified (Finally!)](https://www.highsnobiety.com/p/kiko-kostadinov-asics-novalis-gel-styrax-mule/)
+## [From Vans to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-sept-week-1/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 03 Sep 2024 15:14:09 GMT*
+*Published on: Wed, 04 Sep 2024 15:15:58 GMT*
 
 
 ## Charli D Amelio
@@ -4373,22 +3878,13 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Wed, 04 Sep 2024 13:00:00 GMT*
 
 
-## Cardi B
+## Charli D Amelio
 
-## [Vans' Classic Skate Shoe Just Got Jeweled-Out (Again)](https://www.highsnobiety.com/p/vans-otw-old-skool-36-pearlized/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 03 Sep 2024 14:53:00 GMT*
-
-
-## Cardi B
-
-## [Kiko Kostadinov’s Techy ASICS Sneakers Get Mule-ified (Finally!)](https://www.highsnobiety.com/p/kiko-kostadinov-asics-novalis-gel-styrax-mule/)
+## [From Vans to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-sept-week-1/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 03 Sep 2024 15:14:09 GMT*
+*Published on: Wed, 04 Sep 2024 15:15:58 GMT*
 
 
 ## Cardi B
@@ -4454,22 +3950,13 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Wed, 04 Sep 2024 13:00:00 GMT*
 
 
-## Bryan Cranston
+## Cardi B
 
-## [Vans' Classic Skate Shoe Just Got Jeweled-Out (Again)](https://www.highsnobiety.com/p/vans-otw-old-skool-36-pearlized/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 03 Sep 2024 14:53:00 GMT*
-
-
-## Bryan Cranston
-
-## [Kiko Kostadinov’s Techy ASICS Sneakers Get Mule-ified (Finally!)](https://www.highsnobiety.com/p/kiko-kostadinov-asics-novalis-gel-styrax-mule/)
+## [From Vans to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-sept-week-1/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 03 Sep 2024 15:14:09 GMT*
+*Published on: Wed, 04 Sep 2024 15:15:58 GMT*
 
 
 ## Bryan Cranston
@@ -4535,22 +4022,13 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Wed, 04 Sep 2024 13:00:00 GMT*
 
 
-## Brielle Biermann
+## Bryan Cranston
 
-## [Vans' Classic Skate Shoe Just Got Jeweled-Out (Again)](https://www.highsnobiety.com/p/vans-otw-old-skool-36-pearlized/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 03 Sep 2024 14:53:00 GMT*
-
-
-## Brielle Biermann
-
-## [Kiko Kostadinov’s Techy ASICS Sneakers Get Mule-ified (Finally!)](https://www.highsnobiety.com/p/kiko-kostadinov-asics-novalis-gel-styrax-mule/)
+## [From Vans to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-sept-week-1/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 03 Sep 2024 15:14:09 GMT*
+*Published on: Wed, 04 Sep 2024 15:15:58 GMT*
 
 
 ## Brielle Biermann
@@ -4616,22 +4094,13 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Wed, 04 Sep 2024 13:00:00 GMT*
 
 
-## Dua Lipa
+## Brielle Biermann
 
-## [Vans' Classic Skate Shoe Just Got Jeweled-Out (Again)](https://www.highsnobiety.com/p/vans-otw-old-skool-36-pearlized/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 03 Sep 2024 14:53:00 GMT*
-
-
-## Dua Lipa
-
-## [Kiko Kostadinov’s Techy ASICS Sneakers Get Mule-ified (Finally!)](https://www.highsnobiety.com/p/kiko-kostadinov-asics-novalis-gel-styrax-mule/)
+## [From Vans to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-sept-week-1/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 03 Sep 2024 15:14:09 GMT*
+*Published on: Wed, 04 Sep 2024 15:15:58 GMT*
 
 
 ## Dua Lipa
@@ -4697,22 +4166,13 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Wed, 04 Sep 2024 13:00:00 GMT*
 
 
-## Drake
+## Dua Lipa
 
-## [Vans' Classic Skate Shoe Just Got Jeweled-Out (Again)](https://www.highsnobiety.com/p/vans-otw-old-skool-36-pearlized/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 03 Sep 2024 14:53:00 GMT*
-
-
-## Drake
-
-## [Kiko Kostadinov’s Techy ASICS Sneakers Get Mule-ified (Finally!)](https://www.highsnobiety.com/p/kiko-kostadinov-asics-novalis-gel-styrax-mule/)
+## [From Vans to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-sept-week-1/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 03 Sep 2024 15:14:09 GMT*
+*Published on: Wed, 04 Sep 2024 15:15:58 GMT*
 
 
 ## Drake
@@ -4778,22 +4238,13 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Wed, 04 Sep 2024 13:00:00 GMT*
 
 
-## Jenner
+## Drake
 
-## [Vans' Classic Skate Shoe Just Got Jeweled-Out (Again)](https://www.highsnobiety.com/p/vans-otw-old-skool-36-pearlized/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 03 Sep 2024 14:53:00 GMT*
-
-
-## Jenner
-
-## [Kiko Kostadinov’s Techy ASICS Sneakers Get Mule-ified (Finally!)](https://www.highsnobiety.com/p/kiko-kostadinov-asics-novalis-gel-styrax-mule/)
+## [From Vans to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-sept-week-1/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 03 Sep 2024 15:14:09 GMT*
+*Published on: Wed, 04 Sep 2024 15:15:58 GMT*
 
 
 ## Jenner
@@ -4859,22 +4310,13 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Wed, 04 Sep 2024 13:00:00 GMT*
 
 
-## J. Cole
+## Jenner
 
-## [Vans' Classic Skate Shoe Just Got Jeweled-Out (Again)](https://www.highsnobiety.com/p/vans-otw-old-skool-36-pearlized/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 03 Sep 2024 14:53:00 GMT*
-
-
-## J. Cole
-
-## [Kiko Kostadinov’s Techy ASICS Sneakers Get Mule-ified (Finally!)](https://www.highsnobiety.com/p/kiko-kostadinov-asics-novalis-gel-styrax-mule/)
+## [From Vans to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-sept-week-1/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 03 Sep 2024 15:14:09 GMT*
+*Published on: Wed, 04 Sep 2024 15:15:58 GMT*
 
 
 ## J. Cole
@@ -4940,22 +4382,13 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Wed, 04 Sep 2024 13:00:00 GMT*
 
 
-## Jerrod Carmichael
+## J. Cole
 
-## [Vans' Classic Skate Shoe Just Got Jeweled-Out (Again)](https://www.highsnobiety.com/p/vans-otw-old-skool-36-pearlized/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 03 Sep 2024 14:53:00 GMT*
-
-
-## Jerrod Carmichael
-
-## [Kiko Kostadinov’s Techy ASICS Sneakers Get Mule-ified (Finally!)](https://www.highsnobiety.com/p/kiko-kostadinov-asics-novalis-gel-styrax-mule/)
+## [From Vans to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-sept-week-1/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 03 Sep 2024 15:14:09 GMT*
+*Published on: Wed, 04 Sep 2024 15:15:58 GMT*
 
 
 ## Jerrod Carmichael
@@ -5021,22 +4454,13 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Wed, 04 Sep 2024 13:00:00 GMT*
 
 
-## Jennifer Lawrence
+## Jerrod Carmichael
 
-## [Vans' Classic Skate Shoe Just Got Jeweled-Out (Again)](https://www.highsnobiety.com/p/vans-otw-old-skool-36-pearlized/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 03 Sep 2024 14:53:00 GMT*
-
-
-## Jennifer Lawrence
-
-## [Kiko Kostadinov’s Techy ASICS Sneakers Get Mule-ified (Finally!)](https://www.highsnobiety.com/p/kiko-kostadinov-asics-novalis-gel-styrax-mule/)
+## [From Vans to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-sept-week-1/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 03 Sep 2024 15:14:09 GMT*
+*Published on: Wed, 04 Sep 2024 15:15:58 GMT*
 
 
 ## Jennifer Lawrence
@@ -5102,22 +4526,13 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Wed, 04 Sep 2024 13:00:00 GMT*
 
 
-## Joe Biden
+## Jennifer Lawrence
 
-## [Vans' Classic Skate Shoe Just Got Jeweled-Out (Again)](https://www.highsnobiety.com/p/vans-otw-old-skool-36-pearlized/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 03 Sep 2024 14:53:00 GMT*
-
-
-## Joe Biden
-
-## [Kiko Kostadinov’s Techy ASICS Sneakers Get Mule-ified (Finally!)](https://www.highsnobiety.com/p/kiko-kostadinov-asics-novalis-gel-styrax-mule/)
+## [From Vans to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-sept-week-1/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 03 Sep 2024 15:14:09 GMT*
+*Published on: Wed, 04 Sep 2024 15:15:58 GMT*
 
 
 ## Joe Biden
@@ -5183,22 +4598,13 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Wed, 04 Sep 2024 13:00:00 GMT*
 
 
-## J.K. Simmons
+## Joe Biden
 
-## [Vans' Classic Skate Shoe Just Got Jeweled-Out (Again)](https://www.highsnobiety.com/p/vans-otw-old-skool-36-pearlized/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 03 Sep 2024 14:53:00 GMT*
-
-
-## J.K. Simmons
-
-## [Kiko Kostadinov’s Techy ASICS Sneakers Get Mule-ified (Finally!)](https://www.highsnobiety.com/p/kiko-kostadinov-asics-novalis-gel-styrax-mule/)
+## [From Vans to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-sept-week-1/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 03 Sep 2024 15:14:09 GMT*
+*Published on: Wed, 04 Sep 2024 15:15:58 GMT*
 
 
 ## J.K. Simmons
@@ -5264,22 +4670,13 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Wed, 04 Sep 2024 13:00:00 GMT*
 
 
-## Kamala Harris
+## J.K. Simmons
 
-## [Vans' Classic Skate Shoe Just Got Jeweled-Out (Again)](https://www.highsnobiety.com/p/vans-otw-old-skool-36-pearlized/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 03 Sep 2024 14:53:00 GMT*
-
-
-## Kamala Harris
-
-## [Kiko Kostadinov’s Techy ASICS Sneakers Get Mule-ified (Finally!)](https://www.highsnobiety.com/p/kiko-kostadinov-asics-novalis-gel-styrax-mule/)
+## [From Vans to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-sept-week-1/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 03 Sep 2024 15:14:09 GMT*
+*Published on: Wed, 04 Sep 2024 15:15:58 GMT*
 
 
 ## Kamala Harris
@@ -5345,22 +4742,13 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Wed, 04 Sep 2024 13:00:00 GMT*
 
 
-## John C Reilly
+## Kamala Harris
 
-## [Vans' Classic Skate Shoe Just Got Jeweled-Out (Again)](https://www.highsnobiety.com/p/vans-otw-old-skool-36-pearlized/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 03 Sep 2024 14:53:00 GMT*
-
-
-## John C Reilly
-
-## [Kiko Kostadinov’s Techy ASICS Sneakers Get Mule-ified (Finally!)](https://www.highsnobiety.com/p/kiko-kostadinov-asics-novalis-gel-styrax-mule/)
+## [From Vans to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-sept-week-1/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 03 Sep 2024 15:14:09 GMT*
+*Published on: Wed, 04 Sep 2024 15:15:58 GMT*
 
 
 ## John C Reilly
@@ -5426,22 +4814,13 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Wed, 04 Sep 2024 13:00:00 GMT*
 
 
-## Kardashian
+## John C Reilly
 
-## [Vans' Classic Skate Shoe Just Got Jeweled-Out (Again)](https://www.highsnobiety.com/p/vans-otw-old-skool-36-pearlized/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 03 Sep 2024 14:53:00 GMT*
-
-
-## Kardashian
-
-## [Kiko Kostadinov’s Techy ASICS Sneakers Get Mule-ified (Finally!)](https://www.highsnobiety.com/p/kiko-kostadinov-asics-novalis-gel-styrax-mule/)
+## [From Vans to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-sept-week-1/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 03 Sep 2024 15:14:09 GMT*
+*Published on: Wed, 04 Sep 2024 15:15:58 GMT*
 
 
 ## Kardashian
@@ -5507,22 +4886,13 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Wed, 04 Sep 2024 13:00:00 GMT*
 
 
-## Kanye
+## Kardashian
 
-## [Vans' Classic Skate Shoe Just Got Jeweled-Out (Again)](https://www.highsnobiety.com/p/vans-otw-old-skool-36-pearlized/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 03 Sep 2024 14:53:00 GMT*
-
-
-## Kanye
-
-## [Kiko Kostadinov’s Techy ASICS Sneakers Get Mule-ified (Finally!)](https://www.highsnobiety.com/p/kiko-kostadinov-asics-novalis-gel-styrax-mule/)
+## [From Vans to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-sept-week-1/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 03 Sep 2024 15:14:09 GMT*
+*Published on: Wed, 04 Sep 2024 15:15:58 GMT*
 
 
 ## Kanye
@@ -5588,22 +4958,13 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Wed, 04 Sep 2024 13:00:00 GMT*
 
 
-## Zendaya
+## Kanye
 
-## [Vans' Classic Skate Shoe Just Got Jeweled-Out (Again)](https://www.highsnobiety.com/p/vans-otw-old-skool-36-pearlized/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 03 Sep 2024 14:53:00 GMT*
-
-
-## Zendaya
-
-## [Kiko Kostadinov’s Techy ASICS Sneakers Get Mule-ified (Finally!)](https://www.highsnobiety.com/p/kiko-kostadinov-asics-novalis-gel-styrax-mule/)
+## [From Vans to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-sept-week-1/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 03 Sep 2024 15:14:09 GMT*
+*Published on: Wed, 04 Sep 2024 15:15:58 GMT*
 
 
 ## Zendaya
@@ -5669,22 +5030,13 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Wed, 04 Sep 2024 13:00:00 GMT*
 
 
-## Will Ferrell
+## Zendaya
 
-## [Vans' Classic Skate Shoe Just Got Jeweled-Out (Again)](https://www.highsnobiety.com/p/vans-otw-old-skool-36-pearlized/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 03 Sep 2024 14:53:00 GMT*
-
-
-## Will Ferrell
-
-## [Kiko Kostadinov’s Techy ASICS Sneakers Get Mule-ified (Finally!)](https://www.highsnobiety.com/p/kiko-kostadinov-asics-novalis-gel-styrax-mule/)
+## [From Vans to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-sept-week-1/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 03 Sep 2024 15:14:09 GMT*
+*Published on: Wed, 04 Sep 2024 15:15:58 GMT*
 
 
 ## Will Ferrell
@@ -5750,22 +5102,13 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Wed, 04 Sep 2024 13:00:00 GMT*
 
 
-## Zazie Beetz
+## Will Ferrell
 
-## [Vans' Classic Skate Shoe Just Got Jeweled-Out (Again)](https://www.highsnobiety.com/p/vans-otw-old-skool-36-pearlized/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 03 Sep 2024 14:53:00 GMT*
-
-
-## Zazie Beetz
-
-## [Kiko Kostadinov’s Techy ASICS Sneakers Get Mule-ified (Finally!)](https://www.highsnobiety.com/p/kiko-kostadinov-asics-novalis-gel-styrax-mule/)
+## [From Vans to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-sept-week-1/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 03 Sep 2024 15:14:09 GMT*
+*Published on: Wed, 04 Sep 2024 15:15:58 GMT*
 
 
 ## Zazie Beetz
@@ -5831,22 +5174,13 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Wed, 04 Sep 2024 13:00:00 GMT*
 
 
-## Bob Odenkirk
+## Zazie Beetz
 
-## [Vans' Classic Skate Shoe Just Got Jeweled-Out (Again)](https://www.highsnobiety.com/p/vans-otw-old-skool-36-pearlized/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 03 Sep 2024 14:53:00 GMT*
-
-
-## Bob Odenkirk
-
-## [Kiko Kostadinov’s Techy ASICS Sneakers Get Mule-ified (Finally!)](https://www.highsnobiety.com/p/kiko-kostadinov-asics-novalis-gel-styrax-mule/)
+## [From Vans to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-sept-week-1/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 03 Sep 2024 15:14:09 GMT*
+*Published on: Wed, 04 Sep 2024 15:15:58 GMT*
 
 
 ## Bob Odenkirk
@@ -5912,22 +5246,13 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Wed, 04 Sep 2024 13:00:00 GMT*
 
 
-## Brad Pitt
+## Bob Odenkirk
 
-## [Vans' Classic Skate Shoe Just Got Jeweled-Out (Again)](https://www.highsnobiety.com/p/vans-otw-old-skool-36-pearlized/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 03 Sep 2024 14:53:00 GMT*
-
-
-## Brad Pitt
-
-## [Kiko Kostadinov’s Techy ASICS Sneakers Get Mule-ified (Finally!)](https://www.highsnobiety.com/p/kiko-kostadinov-asics-novalis-gel-styrax-mule/)
+## [From Vans to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-sept-week-1/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 03 Sep 2024 15:14:09 GMT*
+*Published on: Wed, 04 Sep 2024 15:15:58 GMT*
 
 
 ## Brad Pitt
@@ -5993,22 +5318,13 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Wed, 04 Sep 2024 13:00:00 GMT*
 
 
-## Beyoncé
+## Brad Pitt
 
-## [Vans' Classic Skate Shoe Just Got Jeweled-Out (Again)](https://www.highsnobiety.com/p/vans-otw-old-skool-36-pearlized/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 03 Sep 2024 14:53:00 GMT*
-
-
-## Beyoncé
-
-## [Kiko Kostadinov’s Techy ASICS Sneakers Get Mule-ified (Finally!)](https://www.highsnobiety.com/p/kiko-kostadinov-asics-novalis-gel-styrax-mule/)
+## [From Vans to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-sept-week-1/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 03 Sep 2024 15:14:09 GMT*
+*Published on: Wed, 04 Sep 2024 15:15:58 GMT*
 
 
 ## Beyoncé
@@ -6074,22 +5390,13 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Wed, 04 Sep 2024 13:00:00 GMT*
 
 
-## Bia
+## Beyoncé
 
-## [Vans' Classic Skate Shoe Just Got Jeweled-Out (Again)](https://www.highsnobiety.com/p/vans-otw-old-skool-36-pearlized/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 03 Sep 2024 14:53:00 GMT*
-
-
-## Bia
-
-## [Kiko Kostadinov’s Techy ASICS Sneakers Get Mule-ified (Finally!)](https://www.highsnobiety.com/p/kiko-kostadinov-asics-novalis-gel-styrax-mule/)
+## [From Vans to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-sept-week-1/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 03 Sep 2024 15:14:09 GMT*
+*Published on: Wed, 04 Sep 2024 15:15:58 GMT*
 
 
 ## Bia
@@ -6155,22 +5462,13 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Wed, 04 Sep 2024 13:00:00 GMT*
 
 
-## Avantika
+## Bia
 
-## [Vans' Classic Skate Shoe Just Got Jeweled-Out (Again)](https://www.highsnobiety.com/p/vans-otw-old-skool-36-pearlized/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 03 Sep 2024 14:53:00 GMT*
-
-
-## Avantika
-
-## [Kiko Kostadinov’s Techy ASICS Sneakers Get Mule-ified (Finally!)](https://www.highsnobiety.com/p/kiko-kostadinov-asics-novalis-gel-styrax-mule/)
+## [From Vans to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-sept-week-1/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 03 Sep 2024 15:14:09 GMT*
+*Published on: Wed, 04 Sep 2024 15:15:58 GMT*
 
 
 ## Avantika
@@ -6236,22 +5534,13 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Wed, 04 Sep 2024 13:00:00 GMT*
 
 
-## Bernie Sanders
+## Avantika
 
-## [Vans' Classic Skate Shoe Just Got Jeweled-Out (Again)](https://www.highsnobiety.com/p/vans-otw-old-skool-36-pearlized/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 03 Sep 2024 14:53:00 GMT*
-
-
-## Bernie Sanders
-
-## [Kiko Kostadinov’s Techy ASICS Sneakers Get Mule-ified (Finally!)](https://www.highsnobiety.com/p/kiko-kostadinov-asics-novalis-gel-styrax-mule/)
+## [From Vans to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-sept-week-1/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 03 Sep 2024 15:14:09 GMT*
+*Published on: Wed, 04 Sep 2024 15:15:58 GMT*
 
 
 ## Bernie Sanders
@@ -6317,22 +5606,13 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Wed, 04 Sep 2024 13:00:00 GMT*
 
 
-## Big Sean
+## Bernie Sanders
 
-## [Vans' Classic Skate Shoe Just Got Jeweled-Out (Again)](https://www.highsnobiety.com/p/vans-otw-old-skool-36-pearlized/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 03 Sep 2024 14:53:00 GMT*
-
-
-## Big Sean
-
-## [Kiko Kostadinov’s Techy ASICS Sneakers Get Mule-ified (Finally!)](https://www.highsnobiety.com/p/kiko-kostadinov-asics-novalis-gel-styrax-mule/)
+## [From Vans to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-sept-week-1/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 03 Sep 2024 15:14:09 GMT*
+*Published on: Wed, 04 Sep 2024 15:15:58 GMT*
 
 
 ## Big Sean
@@ -6398,22 +5678,13 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Wed, 04 Sep 2024 13:00:00 GMT*
 
 
-## BlockBoy JB
+## Big Sean
 
-## [Vans' Classic Skate Shoe Just Got Jeweled-Out (Again)](https://www.highsnobiety.com/p/vans-otw-old-skool-36-pearlized/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 03 Sep 2024 14:53:00 GMT*
-
-
-## BlockBoy JB
-
-## [Kiko Kostadinov’s Techy ASICS Sneakers Get Mule-ified (Finally!)](https://www.highsnobiety.com/p/kiko-kostadinov-asics-novalis-gel-styrax-mule/)
+## [From Vans to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-sept-week-1/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 03 Sep 2024 15:14:09 GMT*
+*Published on: Wed, 04 Sep 2024 15:15:58 GMT*
 
 
 ## BlockBoy JB
@@ -6479,22 +5750,13 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Wed, 04 Sep 2024 13:00:00 GMT*
 
 
-## Biden
+## BlockBoy JB
 
-## [Vans' Classic Skate Shoe Just Got Jeweled-Out (Again)](https://www.highsnobiety.com/p/vans-otw-old-skool-36-pearlized/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 03 Sep 2024 14:53:00 GMT*
-
-
-## Biden
-
-## [Kiko Kostadinov’s Techy ASICS Sneakers Get Mule-ified (Finally!)](https://www.highsnobiety.com/p/kiko-kostadinov-asics-novalis-gel-styrax-mule/)
+## [From Vans to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-sept-week-1/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 03 Sep 2024 15:14:09 GMT*
+*Published on: Wed, 04 Sep 2024 15:15:58 GMT*
 
 
 ## Biden
@@ -6560,22 +5822,13 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Wed, 04 Sep 2024 13:00:00 GMT*
 
 
-## Bieber
+## Biden
 
-## [Vans' Classic Skate Shoe Just Got Jeweled-Out (Again)](https://www.highsnobiety.com/p/vans-otw-old-skool-36-pearlized/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 03 Sep 2024 14:53:00 GMT*
-
-
-## Bieber
-
-## [Kiko Kostadinov’s Techy ASICS Sneakers Get Mule-ified (Finally!)](https://www.highsnobiety.com/p/kiko-kostadinov-asics-novalis-gel-styrax-mule/)
+## [From Vans to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-sept-week-1/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 03 Sep 2024 15:14:09 GMT*
+*Published on: Wed, 04 Sep 2024 15:15:58 GMT*
 
 
 ## Bieber
@@ -6641,22 +5894,13 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Wed, 04 Sep 2024 13:00:00 GMT*
 
 
-## Paulina Porizkov
+## Bieber
 
-## [Vans' Classic Skate Shoe Just Got Jeweled-Out (Again)](https://www.highsnobiety.com/p/vans-otw-old-skool-36-pearlized/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 03 Sep 2024 14:53:00 GMT*
-
-
-## Paulina Porizkov
-
-## [Kiko Kostadinov’s Techy ASICS Sneakers Get Mule-ified (Finally!)](https://www.highsnobiety.com/p/kiko-kostadinov-asics-novalis-gel-styrax-mule/)
+## [From Vans to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-sept-week-1/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 03 Sep 2024 15:14:09 GMT*
+*Published on: Wed, 04 Sep 2024 15:15:58 GMT*
 
 
 ## Paulina Porizkov
@@ -6722,22 +5966,13 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Wed, 04 Sep 2024 13:00:00 GMT*
 
 
-## Paris Hilton
+## Paulina Porizkov
 
-## [Vans' Classic Skate Shoe Just Got Jeweled-Out (Again)](https://www.highsnobiety.com/p/vans-otw-old-skool-36-pearlized/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 03 Sep 2024 14:53:00 GMT*
-
-
-## Paris Hilton
-
-## [Kiko Kostadinov’s Techy ASICS Sneakers Get Mule-ified (Finally!)](https://www.highsnobiety.com/p/kiko-kostadinov-asics-novalis-gel-styrax-mule/)
+## [From Vans to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-sept-week-1/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 03 Sep 2024 15:14:09 GMT*
+*Published on: Wed, 04 Sep 2024 15:15:58 GMT*
 
 
 ## Paris Hilton
@@ -6803,22 +6038,13 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Wed, 04 Sep 2024 13:00:00 GMT*
 
 
-## Metro Boomin
+## Paris Hilton
 
-## [Vans' Classic Skate Shoe Just Got Jeweled-Out (Again)](https://www.highsnobiety.com/p/vans-otw-old-skool-36-pearlized/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 03 Sep 2024 14:53:00 GMT*
-
-
-## Metro Boomin
-
-## [Kiko Kostadinov’s Techy ASICS Sneakers Get Mule-ified (Finally!)](https://www.highsnobiety.com/p/kiko-kostadinov-asics-novalis-gel-styrax-mule/)
+## [From Vans to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-sept-week-1/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 03 Sep 2024 15:14:09 GMT*
+*Published on: Wed, 04 Sep 2024 15:15:58 GMT*
 
 
 ## Metro Boomin
@@ -6884,22 +6110,13 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Wed, 04 Sep 2024 13:00:00 GMT*
 
 
-## Meghan Markle
+## Metro Boomin
 
-## [Vans' Classic Skate Shoe Just Got Jeweled-Out (Again)](https://www.highsnobiety.com/p/vans-otw-old-skool-36-pearlized/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 03 Sep 2024 14:53:00 GMT*
-
-
-## Meghan Markle
-
-## [Kiko Kostadinov’s Techy ASICS Sneakers Get Mule-ified (Finally!)](https://www.highsnobiety.com/p/kiko-kostadinov-asics-novalis-gel-styrax-mule/)
+## [From Vans to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-sept-week-1/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 03 Sep 2024 15:14:09 GMT*
+*Published on: Wed, 04 Sep 2024 15:15:58 GMT*
 
 
 ## Meghan Markle
@@ -6965,22 +6182,13 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Wed, 04 Sep 2024 13:00:00 GMT*
 
 
-## Megan Thee Stallion
+## Meghan Markle
 
-## [Vans' Classic Skate Shoe Just Got Jeweled-Out (Again)](https://www.highsnobiety.com/p/vans-otw-old-skool-36-pearlized/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 03 Sep 2024 14:53:00 GMT*
-
-
-## Megan Thee Stallion
-
-## [Kiko Kostadinov’s Techy ASICS Sneakers Get Mule-ified (Finally!)](https://www.highsnobiety.com/p/kiko-kostadinov-asics-novalis-gel-styrax-mule/)
+## [From Vans to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-sept-week-1/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 03 Sep 2024 15:14:09 GMT*
+*Published on: Wed, 04 Sep 2024 15:15:58 GMT*
 
 
 ## Megan Thee Stallion
@@ -7046,22 +6254,13 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Wed, 04 Sep 2024 13:00:00 GMT*
 
 
-## Maya Rudolph
+## Megan Thee Stallion
 
-## [Vans' Classic Skate Shoe Just Got Jeweled-Out (Again)](https://www.highsnobiety.com/p/vans-otw-old-skool-36-pearlized/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 03 Sep 2024 14:53:00 GMT*
-
-
-## Maya Rudolph
-
-## [Kiko Kostadinov’s Techy ASICS Sneakers Get Mule-ified (Finally!)](https://www.highsnobiety.com/p/kiko-kostadinov-asics-novalis-gel-styrax-mule/)
+## [From Vans to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-sept-week-1/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 03 Sep 2024 15:14:09 GMT*
+*Published on: Wed, 04 Sep 2024 15:15:58 GMT*
 
 
 ## Maya Rudolph
@@ -7127,22 +6326,13 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Wed, 04 Sep 2024 13:00:00 GMT*
 
 
-## Olivia Rodrigo
+## Maya Rudolph
 
-## [Vans' Classic Skate Shoe Just Got Jeweled-Out (Again)](https://www.highsnobiety.com/p/vans-otw-old-skool-36-pearlized/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 03 Sep 2024 14:53:00 GMT*
-
-
-## Olivia Rodrigo
-
-## [Kiko Kostadinov’s Techy ASICS Sneakers Get Mule-ified (Finally!)](https://www.highsnobiety.com/p/kiko-kostadinov-asics-novalis-gel-styrax-mule/)
+## [From Vans to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-sept-week-1/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 03 Sep 2024 15:14:09 GMT*
+*Published on: Wed, 04 Sep 2024 15:15:58 GMT*
 
 
 ## Olivia Rodrigo
@@ -7208,22 +6398,13 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Wed, 04 Sep 2024 13:00:00 GMT*
 
 
-## Obama
+## Olivia Rodrigo
 
-## [Vans' Classic Skate Shoe Just Got Jeweled-Out (Again)](https://www.highsnobiety.com/p/vans-otw-old-skool-36-pearlized/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 03 Sep 2024 14:53:00 GMT*
-
-
-## Obama
-
-## [Kiko Kostadinov’s Techy ASICS Sneakers Get Mule-ified (Finally!)](https://www.highsnobiety.com/p/kiko-kostadinov-asics-novalis-gel-styrax-mule/)
+## [From Vans to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-sept-week-1/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 03 Sep 2024 15:14:09 GMT*
+*Published on: Wed, 04 Sep 2024 15:15:58 GMT*
 
 
 ## Obama
@@ -7289,22 +6470,13 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Wed, 04 Sep 2024 13:00:00 GMT*
 
 
-## Nicki Minaj
+## Obama
 
-## [Vans' Classic Skate Shoe Just Got Jeweled-Out (Again)](https://www.highsnobiety.com/p/vans-otw-old-skool-36-pearlized/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 03 Sep 2024 14:53:00 GMT*
-
-
-## Nicki Minaj
-
-## [Kiko Kostadinov’s Techy ASICS Sneakers Get Mule-ified (Finally!)](https://www.highsnobiety.com/p/kiko-kostadinov-asics-novalis-gel-styrax-mule/)
+## [From Vans to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-sept-week-1/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 03 Sep 2024 15:14:09 GMT*
+*Published on: Wed, 04 Sep 2024 15:15:58 GMT*
 
 
 ## Nicki Minaj
@@ -7370,22 +6542,13 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Wed, 04 Sep 2024 13:00:00 GMT*
 
 
-## MrBeast
+## Nicki Minaj
 
-## [Vans' Classic Skate Shoe Just Got Jeweled-Out (Again)](https://www.highsnobiety.com/p/vans-otw-old-skool-36-pearlized/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 03 Sep 2024 14:53:00 GMT*
-
-
-## MrBeast
-
-## [Kiko Kostadinov’s Techy ASICS Sneakers Get Mule-ified (Finally!)](https://www.highsnobiety.com/p/kiko-kostadinov-asics-novalis-gel-styrax-mule/)
+## [From Vans to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-sept-week-1/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 03 Sep 2024 15:14:09 GMT*
+*Published on: Wed, 04 Sep 2024 15:15:58 GMT*
 
 
 ## MrBeast
@@ -7449,5 +6612,14 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Wed, 04 Sep 2024 13:00:00 GMT*
+
+
+## MrBeast
+
+## [From Vans to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-sept-week-1/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Wed, 04 Sep 2024 15:15:58 GMT*
 
 
