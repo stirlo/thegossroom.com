@@ -1,15 +1,6 @@
 # Latest Stories
 ## Tim Cook
 
-## [Swanky, Sturdy, Slight: The Three Pillars of 2024's Fall Footwear](https://www.highsnobiety.com/p/fall-footwear-trends/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 05 Sep 2024 15:41:56 GMT*
-
-
-## Tim Cook
-
 ## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -55,15 +46,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Taylor Swift
 
-## [Swanky, Sturdy, Slight: The Three Pillars of 2024's Fall Footwear](https://www.highsnobiety.com/p/fall-footwear-trends/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 05 Sep 2024 15:41:56 GMT*
-
-
-## Taylor Swift
-
 ## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -109,15 +91,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Tom Brady
 
-## [Swanky, Sturdy, Slight: The Three Pillars of 2024's Fall Footwear](https://www.highsnobiety.com/p/fall-footwear-trends/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 05 Sep 2024 15:41:56 GMT*
-
-
-## Tom Brady
-
 ## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -163,15 +136,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Tina Fey
 
-## [Swanky, Sturdy, Slight: The Three Pillars of 2024's Fall Footwear](https://www.highsnobiety.com/p/fall-footwear-trends/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 05 Sep 2024 15:41:56 GMT*
-
-
-## Tina Fey
-
 ## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -217,15 +181,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Steven Yuen
 
-## [Swanky, Sturdy, Slight: The Three Pillars of 2024's Fall Footwear](https://www.highsnobiety.com/p/fall-footwear-trends/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 05 Sep 2024 15:41:56 GMT*
-
-
-## Steven Yuen
-
 ## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -271,15 +226,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Sommer Ray
 
-## [Swanky, Sturdy, Slight: The Three Pillars of 2024's Fall Footwear](https://www.highsnobiety.com/p/fall-footwear-trends/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 05 Sep 2024 15:41:56 GMT*
-
-
-## Sommer Ray
-
 ## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -325,15 +271,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Sza
 
-## [Swanky, Sturdy, Slight: The Three Pillars of 2024's Fall Footwear](https://www.highsnobiety.com/p/fall-footwear-trends/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 05 Sep 2024 15:41:56 GMT*
-
-
-## Sza
-
 ## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -379,15 +316,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Sydney Sweeney
 
-## [Swanky, Sturdy, Slight: The Three Pillars of 2024's Fall Footwear](https://www.highsnobiety.com/p/fall-footwear-trends/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 05 Sep 2024 15:41:56 GMT*
-
-
-## Sydney Sweeney
-
 ## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -433,15 +361,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Walton Goggins
 
-## [Swanky, Sturdy, Slight: The Three Pillars of 2024's Fall Footwear](https://www.highsnobiety.com/p/fall-footwear-trends/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 05 Sep 2024 15:41:56 GMT*
-
-
-## Walton Goggins
-
 ## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -487,15 +406,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Tom Holland
 
-## [Swanky, Sturdy, Slight: The Three Pillars of 2024's Fall Footwear](https://www.highsnobiety.com/p/fall-footwear-trends/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 05 Sep 2024 15:41:56 GMT*
-
-
-## Tom Holland
-
 ## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -541,15 +451,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Gucci Mane
 
-## [Swanky, Sturdy, Slight: The Three Pillars of 2024's Fall Footwear](https://www.highsnobiety.com/p/fall-footwear-trends/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 05 Sep 2024 15:41:56 GMT*
-
-
-## Gucci Mane
-
 ## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -595,15 +496,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Harry Styles
 
-## [Swanky, Sturdy, Slight: The Three Pillars of 2024's Fall Footwear](https://www.highsnobiety.com/p/fall-footwear-trends/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 05 Sep 2024 15:41:56 GMT*
-
-
-## Harry Styles
-
 ## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -649,15 +541,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Jake Paul
 
-## [Swanky, Sturdy, Slight: The Three Pillars of 2024's Fall Footwear](https://www.highsnobiety.com/p/fall-footwear-trends/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 05 Sep 2024 15:41:56 GMT*
-
-
-## Jake Paul
-
 ## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -703,15 +586,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Jameela Jamil
 
-## [Swanky, Sturdy, Slight: The Three Pillars of 2024's Fall Footwear](https://www.highsnobiety.com/p/fall-footwear-trends/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 05 Sep 2024 15:41:56 GMT*
-
-
-## Jameela Jamil
-
 ## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -757,15 +631,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Elon Musk
 
-## [Swanky, Sturdy, Slight: The Three Pillars of 2024's Fall Footwear](https://www.highsnobiety.com/p/fall-footwear-trends/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 05 Sep 2024 15:41:56 GMT*
-
-
-## Elon Musk
-
 ## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -811,15 +676,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Gabrielle Union
 
-## [Swanky, Sturdy, Slight: The Three Pillars of 2024's Fall Footwear](https://www.highsnobiety.com/p/fall-footwear-trends/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 05 Sep 2024 15:41:56 GMT*
-
-
-## Gabrielle Union
-
 ## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -865,15 +721,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Giancarlo Esposito
 
-## [Swanky, Sturdy, Slight: The Three Pillars of 2024's Fall Footwear](https://www.highsnobiety.com/p/fall-footwear-trends/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 05 Sep 2024 15:41:56 GMT*
-
-
-## Giancarlo Esposito
-
 ## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -919,15 +766,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Gillian Jacobs
 
-## [Swanky, Sturdy, Slight: The Three Pillars of 2024's Fall Footwear](https://www.highsnobiety.com/p/fall-footwear-trends/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 05 Sep 2024 15:41:56 GMT*
-
-
-## Gillian Jacobs
-
 ## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -973,15 +811,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Jason Mantzoukas
 
-## [Swanky, Sturdy, Slight: The Three Pillars of 2024's Fall Footwear](https://www.highsnobiety.com/p/fall-footwear-trends/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 05 Sep 2024 15:41:56 GMT*
-
-
-## Jason Mantzoukas
-
 ## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1027,15 +856,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## JB Smoove
 
-## [Swanky, Sturdy, Slight: The Three Pillars of 2024's Fall Footwear](https://www.highsnobiety.com/p/fall-footwear-trends/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 05 Sep 2024 15:41:56 GMT*
-
-
-## JB Smoove
-
 ## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1081,15 +901,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Madison Pettis
 
-## [Swanky, Sturdy, Slight: The Three Pillars of 2024's Fall Footwear](https://www.highsnobiety.com/p/fall-footwear-trends/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 05 Sep 2024 15:41:56 GMT*
-
-
-## Madison Pettis
-
 ## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1135,15 +946,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Austin Butler
 
-## [Swanky, Sturdy, Slight: The Three Pillars of 2024's Fall Footwear](https://www.highsnobiety.com/p/fall-footwear-trends/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 05 Sep 2024 15:41:56 GMT*
-
-
-## Austin Butler
-
 ## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1189,15 +991,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Mark Zuckerberg
 
-## [Swanky, Sturdy, Slight: The Three Pillars of 2024's Fall Footwear](https://www.highsnobiety.com/p/fall-footwear-trends/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 05 Sep 2024 15:41:56 GMT*
-
-
-## Mark Zuckerberg
-
 ## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1243,15 +1036,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Ariana Grande
 
-## [Swanky, Sturdy, Slight: The Three Pillars of 2024's Fall Footwear](https://www.highsnobiety.com/p/fall-footwear-trends/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 05 Sep 2024 15:41:56 GMT*
-
-
-## Ariana Grande
-
 ## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1297,15 +1081,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Livvy Dunne
 
-## [Swanky, Sturdy, Slight: The Three Pillars of 2024's Fall Footwear](https://www.highsnobiety.com/p/fall-footwear-trends/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 05 Sep 2024 15:41:56 GMT*
-
-
-## Livvy Dunne
-
 ## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1351,15 +1126,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Ali Wong
 
-## [Swanky, Sturdy, Slight: The Three Pillars of 2024's Fall Footwear](https://www.highsnobiety.com/p/fall-footwear-trends/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 05 Sep 2024 15:41:56 GMT*
-
-
-## Ali Wong
-
 ## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1405,15 +1171,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Lizzo
 
-## [Swanky, Sturdy, Slight: The Three Pillars of 2024's Fall Footwear](https://www.highsnobiety.com/p/fall-footwear-trends/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 05 Sep 2024 15:41:56 GMT*
-
-
-## Lizzo
-
 ## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1459,15 +1216,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Alison Brie
 
-## [Swanky, Sturdy, Slight: The Three Pillars of 2024's Fall Footwear](https://www.highsnobiety.com/p/fall-footwear-trends/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 05 Sep 2024 15:41:56 GMT*
-
-
-## Alison Brie
-
 ## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1513,15 +1261,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Lil Wayne
 
-## [Swanky, Sturdy, Slight: The Three Pillars of 2024's Fall Footwear](https://www.highsnobiety.com/p/fall-footwear-trends/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 05 Sep 2024 15:41:56 GMT*
-
-
-## Lil Wayne
-
 ## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1567,15 +1306,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Adele
 
-## [Swanky, Sturdy, Slight: The Three Pillars of 2024's Fall Footwear](https://www.highsnobiety.com/p/fall-footwear-trends/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 05 Sep 2024 15:41:56 GMT*
-
-
-## Adele
-
 ## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1621,15 +1351,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Lindsay Lohan
 
-## [Swanky, Sturdy, Slight: The Three Pillars of 2024's Fall Footwear](https://www.highsnobiety.com/p/fall-footwear-trends/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 05 Sep 2024 15:41:56 GMT*
-
-
-## Lindsay Lohan
-
 ## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1675,15 +1396,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Addison Rae
 
-## [Swanky, Sturdy, Slight: The Three Pillars of 2024's Fall Footwear](https://www.highsnobiety.com/p/fall-footwear-trends/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 05 Sep 2024 15:41:56 GMT*
-
-
-## Addison Rae
-
 ## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1729,15 +1441,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Latto
 
-## [Swanky, Sturdy, Slight: The Three Pillars of 2024's Fall Footwear](https://www.highsnobiety.com/p/fall-footwear-trends/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 05 Sep 2024 15:41:56 GMT*
-
-
-## Latto
-
 ## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1783,15 +1486,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Aaron Paul
 
-## [Swanky, Sturdy, Slight: The Three Pillars of 2024's Fall Footwear](https://www.highsnobiety.com/p/fall-footwear-trends/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 05 Sep 2024 15:41:56 GMT*
-
-
-## Aaron Paul
-
 ## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1837,15 +1531,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## LeBron James
 
-## [Swanky, Sturdy, Slight: The Three Pillars of 2024's Fall Footwear](https://www.highsnobiety.com/p/fall-footwear-trends/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 05 Sep 2024 15:41:56 GMT*
-
-
-## LeBron James
-
 ## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1891,15 +1576,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## 50 Cent
 
-## [Swanky, Sturdy, Slight: The Three Pillars of 2024's Fall Footwear](https://www.highsnobiety.com/p/fall-footwear-trends/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 05 Sep 2024 15:41:56 GMT*
-
-
-## 50 Cent
-
 ## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1945,15 +1621,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Kesha
 
-## [Swanky, Sturdy, Slight: The Three Pillars of 2024's Fall Footwear](https://www.highsnobiety.com/p/fall-footwear-trends/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 05 Sep 2024 15:41:56 GMT*
-
-
-## Kesha
-
 ## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1999,15 +1666,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## 21 Savage
 
-## [Swanky, Sturdy, Slight: The Three Pillars of 2024's Fall Footwear](https://www.highsnobiety.com/p/fall-footwear-trends/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 05 Sep 2024 15:41:56 GMT*
-
-
-## 21 Savage
-
 ## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2053,15 +1711,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Larry David
 
-## [Swanky, Sturdy, Slight: The Three Pillars of 2024's Fall Footwear](https://www.highsnobiety.com/p/fall-footwear-trends/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 05 Sep 2024 15:41:56 GMT*
-
-
-## Larry David
-
 ## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2107,15 +1756,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Seth Rogan
 
-## [Swanky, Sturdy, Slight: The Three Pillars of 2024's Fall Footwear](https://www.highsnobiety.com/p/fall-footwear-trends/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 05 Sep 2024 15:41:56 GMT*
-
-
-## Seth Rogan
-
 ## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2161,15 +1801,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Simone Biles
 
-## [Swanky, Sturdy, Slight: The Three Pillars of 2024's Fall Footwear](https://www.highsnobiety.com/p/fall-footwear-trends/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 05 Sep 2024 15:41:56 GMT*
-
-
-## Simone Biles
-
 ## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2215,15 +1846,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Pete Davidson
 
-## [Swanky, Sturdy, Slight: The Three Pillars of 2024's Fall Footwear](https://www.highsnobiety.com/p/fall-footwear-trends/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 05 Sep 2024 15:41:56 GMT*
-
-
-## Pete Davidson
-
 ## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2269,15 +1891,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Prince Harry
 
-## [Swanky, Sturdy, Slight: The Three Pillars of 2024's Fall Footwear](https://www.highsnobiety.com/p/fall-footwear-trends/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 05 Sep 2024 15:41:56 GMT*
-
-
-## Prince Harry
-
 ## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2323,15 +1936,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Princess of Wales
 
-## [Swanky, Sturdy, Slight: The Three Pillars of 2024's Fall Footwear](https://www.highsnobiety.com/p/fall-footwear-trends/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 05 Sep 2024 15:41:56 GMT*
-
-
-## Princess of Wales
-
 ## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2377,15 +1981,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Rachel McAdams
 
-## [Swanky, Sturdy, Slight: The Three Pillars of 2024's Fall Footwear](https://www.highsnobiety.com/p/fall-footwear-trends/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 05 Sep 2024 15:41:56 GMT*
-
-
-## Rachel McAdams
-
 ## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2431,15 +2026,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Reneé Rapp
 
-## [Swanky, Sturdy, Slight: The Three Pillars of 2024's Fall Footwear](https://www.highsnobiety.com/p/fall-footwear-trends/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 05 Sep 2024 15:41:56 GMT*
-
-
-## Reneé Rapp
-
 ## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2485,15 +2071,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Rick Ross
 
-## [Swanky, Sturdy, Slight: The Three Pillars of 2024's Fall Footwear](https://www.highsnobiety.com/p/fall-footwear-trends/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 05 Sep 2024 15:41:56 GMT*
-
-
-## Rick Ross
-
 ## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2539,15 +2116,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Sam Ashgari
 
-## [Swanky, Sturdy, Slight: The Three Pillars of 2024's Fall Footwear](https://www.highsnobiety.com/p/fall-footwear-trends/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 05 Sep 2024 15:41:56 GMT*
-
-
-## Sam Ashgari
-
 ## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2593,15 +2161,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Sandra Oh
 
-## [Swanky, Sturdy, Slight: The Three Pillars of 2024's Fall Footwear](https://www.highsnobiety.com/p/fall-footwear-trends/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 05 Sep 2024 15:41:56 GMT*
-
-
-## Sandra Oh
-
 ## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2647,15 +2206,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Donald Trump
 
-## [Swanky, Sturdy, Slight: The Three Pillars of 2024's Fall Footwear](https://www.highsnobiety.com/p/fall-footwear-trends/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 05 Sep 2024 15:41:56 GMT*
-
-
-## Donald Trump
-
 ## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2701,15 +2251,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Diddy
 
-## [Swanky, Sturdy, Slight: The Three Pillars of 2024's Fall Footwear](https://www.highsnobiety.com/p/fall-footwear-trends/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 05 Sep 2024 15:41:56 GMT*
-
-
-## Diddy
-
 ## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2755,15 +2296,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## City Girls
 
-## [Swanky, Sturdy, Slight: The Three Pillars of 2024's Fall Footwear](https://www.highsnobiety.com/p/fall-footwear-trends/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 05 Sep 2024 15:41:56 GMT*
-
-
-## City Girls
-
 ## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2809,15 +2341,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Chloe Bailey
 
-## [Swanky, Sturdy, Slight: The Three Pillars of 2024's Fall Footwear](https://www.highsnobiety.com/p/fall-footwear-trends/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 05 Sep 2024 15:41:56 GMT*
-
-
-## Chloe Bailey
-
 ## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2863,15 +2386,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Charli D Amelio
 
-## [Swanky, Sturdy, Slight: The Three Pillars of 2024's Fall Footwear](https://www.highsnobiety.com/p/fall-footwear-trends/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 05 Sep 2024 15:41:56 GMT*
-
-
-## Charli D Amelio
-
 ## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2917,15 +2431,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Cardi B
 
-## [Swanky, Sturdy, Slight: The Three Pillars of 2024's Fall Footwear](https://www.highsnobiety.com/p/fall-footwear-trends/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 05 Sep 2024 15:41:56 GMT*
-
-
-## Cardi B
-
 ## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2971,15 +2476,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Bryan Cranston
 
-## [Swanky, Sturdy, Slight: The Three Pillars of 2024's Fall Footwear](https://www.highsnobiety.com/p/fall-footwear-trends/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 05 Sep 2024 15:41:56 GMT*
-
-
-## Bryan Cranston
-
 ## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3025,15 +2521,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Brielle Biermann
 
-## [Swanky, Sturdy, Slight: The Three Pillars of 2024's Fall Footwear](https://www.highsnobiety.com/p/fall-footwear-trends/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 05 Sep 2024 15:41:56 GMT*
-
-
-## Brielle Biermann
-
 ## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3079,15 +2566,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Dua Lipa
 
-## [Swanky, Sturdy, Slight: The Three Pillars of 2024's Fall Footwear](https://www.highsnobiety.com/p/fall-footwear-trends/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 05 Sep 2024 15:41:56 GMT*
-
-
-## Dua Lipa
-
 ## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3133,15 +2611,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Drake
 
-## [Swanky, Sturdy, Slight: The Three Pillars of 2024's Fall Footwear](https://www.highsnobiety.com/p/fall-footwear-trends/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 05 Sep 2024 15:41:56 GMT*
-
-
-## Drake
-
 ## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3187,15 +2656,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Jenner
 
-## [Swanky, Sturdy, Slight: The Three Pillars of 2024's Fall Footwear](https://www.highsnobiety.com/p/fall-footwear-trends/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 05 Sep 2024 15:41:56 GMT*
-
-
-## Jenner
-
 ## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3241,15 +2701,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## J. Cole
 
-## [Swanky, Sturdy, Slight: The Three Pillars of 2024's Fall Footwear](https://www.highsnobiety.com/p/fall-footwear-trends/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 05 Sep 2024 15:41:56 GMT*
-
-
-## J. Cole
-
 ## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3295,15 +2746,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Jerrod Carmichael
 
-## [Swanky, Sturdy, Slight: The Three Pillars of 2024's Fall Footwear](https://www.highsnobiety.com/p/fall-footwear-trends/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 05 Sep 2024 15:41:56 GMT*
-
-
-## Jerrod Carmichael
-
 ## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3349,15 +2791,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Jennifer Lawrence
 
-## [Swanky, Sturdy, Slight: The Three Pillars of 2024's Fall Footwear](https://www.highsnobiety.com/p/fall-footwear-trends/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 05 Sep 2024 15:41:56 GMT*
-
-
-## Jennifer Lawrence
-
 ## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3403,15 +2836,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Joe Biden
 
-## [Swanky, Sturdy, Slight: The Three Pillars of 2024's Fall Footwear](https://www.highsnobiety.com/p/fall-footwear-trends/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 05 Sep 2024 15:41:56 GMT*
-
-
-## Joe Biden
-
 ## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3457,15 +2881,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## J.K. Simmons
 
-## [Swanky, Sturdy, Slight: The Three Pillars of 2024's Fall Footwear](https://www.highsnobiety.com/p/fall-footwear-trends/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 05 Sep 2024 15:41:56 GMT*
-
-
-## J.K. Simmons
-
 ## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3511,15 +2926,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Kamala Harris
 
-## [Swanky, Sturdy, Slight: The Three Pillars of 2024's Fall Footwear](https://www.highsnobiety.com/p/fall-footwear-trends/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 05 Sep 2024 15:41:56 GMT*
-
-
-## Kamala Harris
-
 ## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3565,15 +2971,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## John C Reilly
 
-## [Swanky, Sturdy, Slight: The Three Pillars of 2024's Fall Footwear](https://www.highsnobiety.com/p/fall-footwear-trends/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 05 Sep 2024 15:41:56 GMT*
-
-
-## John C Reilly
-
 ## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3619,15 +3016,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Kardashian
 
-## [Swanky, Sturdy, Slight: The Three Pillars of 2024's Fall Footwear](https://www.highsnobiety.com/p/fall-footwear-trends/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 05 Sep 2024 15:41:56 GMT*
-
-
-## Kardashian
-
 ## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3673,15 +3061,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Kanye
 
-## [Swanky, Sturdy, Slight: The Three Pillars of 2024's Fall Footwear](https://www.highsnobiety.com/p/fall-footwear-trends/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 05 Sep 2024 15:41:56 GMT*
-
-
-## Kanye
-
 ## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3727,15 +3106,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Zendaya
 
-## [Swanky, Sturdy, Slight: The Three Pillars of 2024's Fall Footwear](https://www.highsnobiety.com/p/fall-footwear-trends/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 05 Sep 2024 15:41:56 GMT*
-
-
-## Zendaya
-
 ## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3781,15 +3151,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Will Ferrell
 
-## [Swanky, Sturdy, Slight: The Three Pillars of 2024's Fall Footwear](https://www.highsnobiety.com/p/fall-footwear-trends/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 05 Sep 2024 15:41:56 GMT*
-
-
-## Will Ferrell
-
 ## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3835,15 +3196,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Zazie Beetz
 
-## [Swanky, Sturdy, Slight: The Three Pillars of 2024's Fall Footwear](https://www.highsnobiety.com/p/fall-footwear-trends/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 05 Sep 2024 15:41:56 GMT*
-
-
-## Zazie Beetz
-
 ## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3889,15 +3241,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Bob Odenkirk
 
-## [Swanky, Sturdy, Slight: The Three Pillars of 2024's Fall Footwear](https://www.highsnobiety.com/p/fall-footwear-trends/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 05 Sep 2024 15:41:56 GMT*
-
-
-## Bob Odenkirk
-
 ## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3943,15 +3286,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Brad Pitt
 
-## [Swanky, Sturdy, Slight: The Three Pillars of 2024's Fall Footwear](https://www.highsnobiety.com/p/fall-footwear-trends/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 05 Sep 2024 15:41:56 GMT*
-
-
-## Brad Pitt
-
 ## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3997,15 +3331,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Beyoncé
 
-## [Swanky, Sturdy, Slight: The Three Pillars of 2024's Fall Footwear](https://www.highsnobiety.com/p/fall-footwear-trends/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 05 Sep 2024 15:41:56 GMT*
-
-
-## Beyoncé
-
 ## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -4051,15 +3376,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Bia
 
-## [Swanky, Sturdy, Slight: The Three Pillars of 2024's Fall Footwear](https://www.highsnobiety.com/p/fall-footwear-trends/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 05 Sep 2024 15:41:56 GMT*
-
-
-## Bia
-
 ## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -4105,15 +3421,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Avantika
 
-## [Swanky, Sturdy, Slight: The Three Pillars of 2024's Fall Footwear](https://www.highsnobiety.com/p/fall-footwear-trends/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 05 Sep 2024 15:41:56 GMT*
-
-
-## Avantika
-
 ## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -4159,15 +3466,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Bernie Sanders
 
-## [Swanky, Sturdy, Slight: The Three Pillars of 2024's Fall Footwear](https://www.highsnobiety.com/p/fall-footwear-trends/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 05 Sep 2024 15:41:56 GMT*
-
-
-## Bernie Sanders
-
 ## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -4213,15 +3511,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Big Sean
 
-## [Swanky, Sturdy, Slight: The Three Pillars of 2024's Fall Footwear](https://www.highsnobiety.com/p/fall-footwear-trends/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 05 Sep 2024 15:41:56 GMT*
-
-
-## Big Sean
-
 ## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -4267,15 +3556,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## BlockBoy JB
 
-## [Swanky, Sturdy, Slight: The Three Pillars of 2024's Fall Footwear](https://www.highsnobiety.com/p/fall-footwear-trends/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 05 Sep 2024 15:41:56 GMT*
-
-
-## BlockBoy JB
-
 ## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -4321,15 +3601,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Biden
 
-## [Swanky, Sturdy, Slight: The Three Pillars of 2024's Fall Footwear](https://www.highsnobiety.com/p/fall-footwear-trends/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 05 Sep 2024 15:41:56 GMT*
-
-
-## Biden
-
 ## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -4375,15 +3646,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Bieber
 
-## [Swanky, Sturdy, Slight: The Three Pillars of 2024's Fall Footwear](https://www.highsnobiety.com/p/fall-footwear-trends/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 05 Sep 2024 15:41:56 GMT*
-
-
-## Bieber
-
 ## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -4429,15 +3691,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Paulina Porizkov
 
-## [Swanky, Sturdy, Slight: The Three Pillars of 2024's Fall Footwear](https://www.highsnobiety.com/p/fall-footwear-trends/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 05 Sep 2024 15:41:56 GMT*
-
-
-## Paulina Porizkov
-
 ## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -4483,15 +3736,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Paris Hilton
 
-## [Swanky, Sturdy, Slight: The Three Pillars of 2024's Fall Footwear](https://www.highsnobiety.com/p/fall-footwear-trends/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 05 Sep 2024 15:41:56 GMT*
-
-
-## Paris Hilton
-
 ## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -4537,15 +3781,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Metro Boomin
 
-## [Swanky, Sturdy, Slight: The Three Pillars of 2024's Fall Footwear](https://www.highsnobiety.com/p/fall-footwear-trends/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 05 Sep 2024 15:41:56 GMT*
-
-
-## Metro Boomin
-
 ## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -4591,15 +3826,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Meghan Markle
 
-## [Swanky, Sturdy, Slight: The Three Pillars of 2024's Fall Footwear](https://www.highsnobiety.com/p/fall-footwear-trends/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 05 Sep 2024 15:41:56 GMT*
-
-
-## Meghan Markle
-
 ## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -4645,15 +3871,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Megan Thee Stallion
 
-## [Swanky, Sturdy, Slight: The Three Pillars of 2024's Fall Footwear](https://www.highsnobiety.com/p/fall-footwear-trends/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 05 Sep 2024 15:41:56 GMT*
-
-
-## Megan Thee Stallion
-
 ## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -4695,15 +3912,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 06 Sep 2024 09:28:57 GMT*
-
-
-## Maya Rudolph
-
-## [Swanky, Sturdy, Slight: The Three Pillars of 2024's Fall Footwear](https://www.highsnobiety.com/p/fall-footwear-trends/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 05 Sep 2024 15:41:56 GMT*
 
 
 ## Maya Rudolph
@@ -4753,15 +3961,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Olivia Rodrigo
 
-## [Swanky, Sturdy, Slight: The Three Pillars of 2024's Fall Footwear](https://www.highsnobiety.com/p/fall-footwear-trends/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 05 Sep 2024 15:41:56 GMT*
-
-
-## Olivia Rodrigo
-
 ## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -4803,15 +4002,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 06 Sep 2024 09:28:57 GMT*
-
-
-## Obama
-
-## [Swanky, Sturdy, Slight: The Three Pillars of 2024's Fall Footwear](https://www.highsnobiety.com/p/fall-footwear-trends/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 05 Sep 2024 15:41:56 GMT*
 
 
 ## Obama
@@ -4861,15 +4051,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Nicki Minaj
 
-## [Swanky, Sturdy, Slight: The Three Pillars of 2024's Fall Footwear](https://www.highsnobiety.com/p/fall-footwear-trends/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 05 Sep 2024 15:41:56 GMT*
-
-
-## Nicki Minaj
-
 ## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -4911,15 +4092,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 06 Sep 2024 09:28:57 GMT*
-
-
-## MrBeast
-
-## [Swanky, Sturdy, Slight: The Three Pillars of 2024's Fall Footwear](https://www.highsnobiety.com/p/fall-footwear-trends/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 05 Sep 2024 15:41:56 GMT*
 
 
 ## MrBeast
