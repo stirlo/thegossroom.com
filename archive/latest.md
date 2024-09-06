@@ -44,6 +44,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 06 Sep 2024 09:28:57 GMT*
 
 
+## Tim Cook
+
+## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
+
+
 ## Taylor Swift
 
 ## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
@@ -87,6 +96,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 06 Sep 2024 09:28:57 GMT*
+
+
+## Taylor Swift
+
+## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
 
 
 ## Tom Brady
@@ -134,6 +152,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 06 Sep 2024 09:28:57 GMT*
 
 
+## Tom Brady
+
+## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
+
+
 ## Tina Fey
 
 ## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
@@ -177,6 +204,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 06 Sep 2024 09:28:57 GMT*
+
+
+## Tina Fey
+
+## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
 
 
 ## Steven Yuen
@@ -224,6 +260,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 06 Sep 2024 09:28:57 GMT*
 
 
+## Steven Yuen
+
+## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
+
+
 ## Sommer Ray
 
 ## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
@@ -267,6 +312,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 06 Sep 2024 09:28:57 GMT*
+
+
+## Sommer Ray
+
+## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
 
 
 ## Sza
@@ -314,6 +368,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 06 Sep 2024 09:28:57 GMT*
 
 
+## Sza
+
+## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
+
+
 ## Sydney Sweeney
 
 ## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
@@ -357,6 +420,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 06 Sep 2024 09:28:57 GMT*
+
+
+## Sydney Sweeney
+
+## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
 
 
 ## Walton Goggins
@@ -404,6 +476,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 06 Sep 2024 09:28:57 GMT*
 
 
+## Walton Goggins
+
+## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
+
+
 ## Tom Holland
 
 ## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
@@ -447,6 +528,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 06 Sep 2024 09:28:57 GMT*
+
+
+## Tom Holland
+
+## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
 
 
 ## Gucci Mane
@@ -494,6 +584,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 06 Sep 2024 09:28:57 GMT*
 
 
+## Gucci Mane
+
+## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
+
+
 ## Harry Styles
 
 ## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
@@ -537,6 +636,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 06 Sep 2024 09:28:57 GMT*
+
+
+## Harry Styles
+
+## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
 
 
 ## Jake Paul
@@ -584,6 +692,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 06 Sep 2024 09:28:57 GMT*
 
 
+## Jake Paul
+
+## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
+
+
 ## Jameela Jamil
 
 ## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
@@ -627,6 +744,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 06 Sep 2024 09:28:57 GMT*
+
+
+## Jameela Jamil
+
+## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
 
 
 ## Elon Musk
@@ -674,6 +800,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 06 Sep 2024 09:28:57 GMT*
 
 
+## Elon Musk
+
+## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
+
+
 ## Gabrielle Union
 
 ## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
@@ -717,6 +852,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 06 Sep 2024 09:28:57 GMT*
+
+
+## Gabrielle Union
+
+## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
 
 
 ## Giancarlo Esposito
@@ -764,6 +908,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 06 Sep 2024 09:28:57 GMT*
 
 
+## Giancarlo Esposito
+
+## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
+
+
 ## Gillian Jacobs
 
 ## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
@@ -807,6 +960,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 06 Sep 2024 09:28:57 GMT*
+
+
+## Gillian Jacobs
+
+## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
 
 
 ## Jason Mantzoukas
@@ -854,6 +1016,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 06 Sep 2024 09:28:57 GMT*
 
 
+## Jason Mantzoukas
+
+## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
+
+
 ## JB Smoove
 
 ## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
@@ -897,6 +1068,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 06 Sep 2024 09:28:57 GMT*
+
+
+## JB Smoove
+
+## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
 
 
 ## Madison Pettis
@@ -944,6 +1124,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 06 Sep 2024 09:28:57 GMT*
 
 
+## Madison Pettis
+
+## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
+
+
 ## Austin Butler
 
 ## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
@@ -987,6 +1176,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 06 Sep 2024 09:28:57 GMT*
+
+
+## Austin Butler
+
+## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
 
 
 ## Mark Zuckerberg
@@ -1034,6 +1232,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 06 Sep 2024 09:28:57 GMT*
 
 
+## Mark Zuckerberg
+
+## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
+
+
 ## Ariana Grande
 
 ## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
@@ -1077,6 +1284,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 06 Sep 2024 09:28:57 GMT*
+
+
+## Ariana Grande
+
+## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
 
 
 ## Livvy Dunne
@@ -1124,6 +1340,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 06 Sep 2024 09:28:57 GMT*
 
 
+## Livvy Dunne
+
+## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
+
+
 ## Ali Wong
 
 ## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
@@ -1167,6 +1392,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 06 Sep 2024 09:28:57 GMT*
+
+
+## Ali Wong
+
+## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
 
 
 ## Lizzo
@@ -1214,6 +1448,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 06 Sep 2024 09:28:57 GMT*
 
 
+## Lizzo
+
+## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
+
+
 ## Alison Brie
 
 ## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
@@ -1257,6 +1500,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 06 Sep 2024 09:28:57 GMT*
+
+
+## Alison Brie
+
+## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
 
 
 ## Lil Wayne
@@ -1304,6 +1556,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 06 Sep 2024 09:28:57 GMT*
 
 
+## Lil Wayne
+
+## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
+
+
 ## Adele
 
 ## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
@@ -1347,6 +1608,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 06 Sep 2024 09:28:57 GMT*
+
+
+## Adele
+
+## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
 
 
 ## Lindsay Lohan
@@ -1394,6 +1664,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 06 Sep 2024 09:28:57 GMT*
 
 
+## Lindsay Lohan
+
+## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
+
+
 ## Addison Rae
 
 ## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
@@ -1437,6 +1716,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 06 Sep 2024 09:28:57 GMT*
+
+
+## Addison Rae
+
+## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
 
 
 ## Latto
@@ -1484,6 +1772,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 06 Sep 2024 09:28:57 GMT*
 
 
+## Latto
+
+## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
+
+
 ## Aaron Paul
 
 ## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
@@ -1527,6 +1824,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 06 Sep 2024 09:28:57 GMT*
+
+
+## Aaron Paul
+
+## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
 
 
 ## LeBron James
@@ -1574,6 +1880,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 06 Sep 2024 09:28:57 GMT*
 
 
+## LeBron James
+
+## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
+
+
 ## 50 Cent
 
 ## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
@@ -1617,6 +1932,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 06 Sep 2024 09:28:57 GMT*
+
+
+## 50 Cent
+
+## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
 
 
 ## Kesha
@@ -1664,6 +1988,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 06 Sep 2024 09:28:57 GMT*
 
 
+## Kesha
+
+## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
+
+
 ## 21 Savage
 
 ## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
@@ -1707,6 +2040,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 06 Sep 2024 09:28:57 GMT*
+
+
+## 21 Savage
+
+## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
 
 
 ## Larry David
@@ -1754,6 +2096,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 06 Sep 2024 09:28:57 GMT*
 
 
+## Larry David
+
+## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
+
+
 ## Seth Rogan
 
 ## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
@@ -1797,6 +2148,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 06 Sep 2024 09:28:57 GMT*
+
+
+## Seth Rogan
+
+## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
 
 
 ## Simone Biles
@@ -1844,6 +2204,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 06 Sep 2024 09:28:57 GMT*
 
 
+## Simone Biles
+
+## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
+
+
 ## Pete Davidson
 
 ## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
@@ -1887,6 +2256,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 06 Sep 2024 09:28:57 GMT*
+
+
+## Pete Davidson
+
+## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
 
 
 ## Prince Harry
@@ -1934,6 +2312,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 06 Sep 2024 09:28:57 GMT*
 
 
+## Prince Harry
+
+## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
+
+
 ## Princess of Wales
 
 ## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
@@ -1977,6 +2364,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 06 Sep 2024 09:28:57 GMT*
+
+
+## Princess of Wales
+
+## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
 
 
 ## Rachel McAdams
@@ -2024,6 +2420,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 06 Sep 2024 09:28:57 GMT*
 
 
+## Rachel McAdams
+
+## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
+
+
 ## Reneé Rapp
 
 ## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
@@ -2067,6 +2472,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 06 Sep 2024 09:28:57 GMT*
+
+
+## Reneé Rapp
+
+## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
 
 
 ## Rick Ross
@@ -2114,6 +2528,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 06 Sep 2024 09:28:57 GMT*
 
 
+## Rick Ross
+
+## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
+
+
 ## Sam Ashgari
 
 ## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
@@ -2157,6 +2580,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 06 Sep 2024 09:28:57 GMT*
+
+
+## Sam Ashgari
+
+## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
 
 
 ## Sandra Oh
@@ -2204,6 +2636,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 06 Sep 2024 09:28:57 GMT*
 
 
+## Sandra Oh
+
+## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
+
+
 ## Donald Trump
 
 ## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
@@ -2247,6 +2688,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 06 Sep 2024 09:28:57 GMT*
+
+
+## Donald Trump
+
+## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
 
 
 ## Diddy
@@ -2294,6 +2744,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 06 Sep 2024 09:28:57 GMT*
 
 
+## Diddy
+
+## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
+
+
 ## City Girls
 
 ## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
@@ -2337,6 +2796,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 06 Sep 2024 09:28:57 GMT*
+
+
+## City Girls
+
+## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
 
 
 ## Chloe Bailey
@@ -2384,6 +2852,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 06 Sep 2024 09:28:57 GMT*
 
 
+## Chloe Bailey
+
+## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
+
+
 ## Charli D Amelio
 
 ## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
@@ -2427,6 +2904,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 06 Sep 2024 09:28:57 GMT*
+
+
+## Charli D Amelio
+
+## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
 
 
 ## Cardi B
@@ -2474,6 +2960,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 06 Sep 2024 09:28:57 GMT*
 
 
+## Cardi B
+
+## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
+
+
 ## Bryan Cranston
 
 ## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
@@ -2517,6 +3012,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 06 Sep 2024 09:28:57 GMT*
+
+
+## Bryan Cranston
+
+## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
 
 
 ## Brielle Biermann
@@ -2564,6 +3068,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 06 Sep 2024 09:28:57 GMT*
 
 
+## Brielle Biermann
+
+## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
+
+
 ## Dua Lipa
 
 ## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
@@ -2607,6 +3120,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 06 Sep 2024 09:28:57 GMT*
+
+
+## Dua Lipa
+
+## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
 
 
 ## Drake
@@ -2654,6 +3176,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 06 Sep 2024 09:28:57 GMT*
 
 
+## Drake
+
+## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
+
+
 ## Jenner
 
 ## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
@@ -2697,6 +3228,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 06 Sep 2024 09:28:57 GMT*
+
+
+## Jenner
+
+## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
 
 
 ## J. Cole
@@ -2744,6 +3284,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 06 Sep 2024 09:28:57 GMT*
 
 
+## J. Cole
+
+## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
+
+
 ## Jerrod Carmichael
 
 ## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
@@ -2787,6 +3336,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 06 Sep 2024 09:28:57 GMT*
+
+
+## Jerrod Carmichael
+
+## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
 
 
 ## Jennifer Lawrence
@@ -2834,6 +3392,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 06 Sep 2024 09:28:57 GMT*
 
 
+## Jennifer Lawrence
+
+## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
+
+
 ## Joe Biden
 
 ## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
@@ -2877,6 +3444,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 06 Sep 2024 09:28:57 GMT*
+
+
+## Joe Biden
+
+## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
 
 
 ## J.K. Simmons
@@ -2924,6 +3500,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 06 Sep 2024 09:28:57 GMT*
 
 
+## J.K. Simmons
+
+## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
+
+
 ## Kamala Harris
 
 ## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
@@ -2967,6 +3552,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 06 Sep 2024 09:28:57 GMT*
+
+
+## Kamala Harris
+
+## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
 
 
 ## John C Reilly
@@ -3014,6 +3608,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 06 Sep 2024 09:28:57 GMT*
 
 
+## John C Reilly
+
+## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
+
+
 ## Kardashian
 
 ## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
@@ -3057,6 +3660,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 06 Sep 2024 09:28:57 GMT*
+
+
+## Kardashian
+
+## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
 
 
 ## Kanye
@@ -3104,6 +3716,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 06 Sep 2024 09:28:57 GMT*
 
 
+## Kanye
+
+## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
+
+
 ## Zendaya
 
 ## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
@@ -3147,6 +3768,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 06 Sep 2024 09:28:57 GMT*
+
+
+## Zendaya
+
+## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
 
 
 ## Will Ferrell
@@ -3194,6 +3824,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 06 Sep 2024 09:28:57 GMT*
 
 
+## Will Ferrell
+
+## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
+
+
 ## Zazie Beetz
 
 ## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
@@ -3237,6 +3876,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 06 Sep 2024 09:28:57 GMT*
+
+
+## Zazie Beetz
+
+## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
 
 
 ## Bob Odenkirk
@@ -3284,6 +3932,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 06 Sep 2024 09:28:57 GMT*
 
 
+## Bob Odenkirk
+
+## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
+
+
 ## Brad Pitt
 
 ## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
@@ -3327,6 +3984,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 06 Sep 2024 09:28:57 GMT*
+
+
+## Brad Pitt
+
+## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
 
 
 ## Beyoncé
@@ -3374,6 +4040,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 06 Sep 2024 09:28:57 GMT*
 
 
+## Beyoncé
+
+## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
+
+
 ## Bia
 
 ## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
@@ -3417,6 +4092,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 06 Sep 2024 09:28:57 GMT*
+
+
+## Bia
+
+## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
 
 
 ## Avantika
@@ -3464,6 +4148,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 06 Sep 2024 09:28:57 GMT*
 
 
+## Avantika
+
+## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
+
+
 ## Bernie Sanders
 
 ## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
@@ -3507,6 +4200,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 06 Sep 2024 09:28:57 GMT*
+
+
+## Bernie Sanders
+
+## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
 
 
 ## Big Sean
@@ -3554,6 +4256,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 06 Sep 2024 09:28:57 GMT*
 
 
+## Big Sean
+
+## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
+
+
 ## BlockBoy JB
 
 ## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
@@ -3597,6 +4308,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 06 Sep 2024 09:28:57 GMT*
+
+
+## BlockBoy JB
+
+## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
 
 
 ## Biden
@@ -3644,6 +4364,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 06 Sep 2024 09:28:57 GMT*
 
 
+## Biden
+
+## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
+
+
 ## Bieber
 
 ## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
@@ -3687,6 +4416,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 06 Sep 2024 09:28:57 GMT*
+
+
+## Bieber
+
+## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
 
 
 ## Paulina Porizkov
@@ -3734,6 +4472,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 06 Sep 2024 09:28:57 GMT*
 
 
+## Paulina Porizkov
+
+## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
+
+
 ## Paris Hilton
 
 ## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
@@ -3777,6 +4524,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 06 Sep 2024 09:28:57 GMT*
+
+
+## Paris Hilton
+
+## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
 
 
 ## Metro Boomin
@@ -3824,6 +4580,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 06 Sep 2024 09:28:57 GMT*
 
 
+## Metro Boomin
+
+## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
+
+
 ## Meghan Markle
 
 ## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
@@ -3867,6 +4632,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 06 Sep 2024 09:28:57 GMT*
+
+
+## Meghan Markle
+
+## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
 
 
 ## Megan Thee Stallion
@@ -3914,6 +4688,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 06 Sep 2024 09:28:57 GMT*
 
 
+## Megan Thee Stallion
+
+## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
+
+
 ## Maya Rudolph
 
 ## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
@@ -3957,6 +4740,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 06 Sep 2024 09:28:57 GMT*
+
+
+## Maya Rudolph
+
+## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
 
 
 ## Olivia Rodrigo
@@ -4004,6 +4796,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 06 Sep 2024 09:28:57 GMT*
 
 
+## Olivia Rodrigo
+
+## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
+
+
 ## Obama
 
 ## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
@@ -4049,6 +4850,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 06 Sep 2024 09:28:57 GMT*
 
 
+## Obama
+
+## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
+
+
 ## Nicki Minaj
 
 ## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
@@ -4094,6 +4904,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 06 Sep 2024 09:28:57 GMT*
 
 
+## Nicki Minaj
+
+## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
+
+
 ## MrBeast
 
 ## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
@@ -4137,5 +4956,14 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 06 Sep 2024 09:28:57 GMT*
+
+
+## MrBeast
+
+## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
 
 
