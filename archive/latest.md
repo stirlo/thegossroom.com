@@ -1,6 +1,15 @@
 # Latest Stories
 ## Tim Cook
 
+## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Thu, 05 Sep 2024 17:16:40 GMT*
+
+
+## Tim Cook
+
 ## [BEAMS  Arc’teryx Have Perfected the Art of Patchwork](https://www.highsnobiety.com/p/beams-arcteryx-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -46,6 +55,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Taylor Swift
 
+## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Thu, 05 Sep 2024 17:16:40 GMT*
+
+
+## Taylor Swift
+
 ## [BEAMS  Arc’teryx Have Perfected the Art of Patchwork](https://www.highsnobiety.com/p/beams-arcteryx-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -91,6 +109,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Tom Brady
 
+## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Thu, 05 Sep 2024 17:16:40 GMT*
+
+
+## Tom Brady
+
 ## [BEAMS  Arc’teryx Have Perfected the Art of Patchwork](https://www.highsnobiety.com/p/beams-arcteryx-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -136,6 +163,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Tina Fey
 
+## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Thu, 05 Sep 2024 17:16:40 GMT*
+
+
+## Tina Fey
+
 ## [BEAMS  Arc’teryx Have Perfected the Art of Patchwork](https://www.highsnobiety.com/p/beams-arcteryx-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -181,6 +217,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Steven Yuen
 
+## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Thu, 05 Sep 2024 17:16:40 GMT*
+
+
+## Steven Yuen
+
 ## [BEAMS  Arc’teryx Have Perfected the Art of Patchwork](https://www.highsnobiety.com/p/beams-arcteryx-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -226,6 +271,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Sommer Ray
 
+## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Thu, 05 Sep 2024 17:16:40 GMT*
+
+
+## Sommer Ray
+
 ## [BEAMS  Arc’teryx Have Perfected the Art of Patchwork](https://www.highsnobiety.com/p/beams-arcteryx-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -271,6 +325,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Sza
 
+## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Thu, 05 Sep 2024 17:16:40 GMT*
+
+
+## Sza
+
 ## [BEAMS  Arc’teryx Have Perfected the Art of Patchwork](https://www.highsnobiety.com/p/beams-arcteryx-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -316,6 +379,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Sydney Sweeney
 
+## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Thu, 05 Sep 2024 17:16:40 GMT*
+
+
+## Sydney Sweeney
+
 ## [BEAMS  Arc’teryx Have Perfected the Art of Patchwork](https://www.highsnobiety.com/p/beams-arcteryx-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -361,6 +433,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Walton Goggins
 
+## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Thu, 05 Sep 2024 17:16:40 GMT*
+
+
+## Walton Goggins
+
 ## [BEAMS  Arc’teryx Have Perfected the Art of Patchwork](https://www.highsnobiety.com/p/beams-arcteryx-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -406,6 +487,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Tom Holland
 
+## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Thu, 05 Sep 2024 17:16:40 GMT*
+
+
+## Tom Holland
+
 ## [BEAMS  Arc’teryx Have Perfected the Art of Patchwork](https://www.highsnobiety.com/p/beams-arcteryx-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -451,6 +541,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Gucci Mane
 
+## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Thu, 05 Sep 2024 17:16:40 GMT*
+
+
+## Gucci Mane
+
 ## [BEAMS  Arc’teryx Have Perfected the Art of Patchwork](https://www.highsnobiety.com/p/beams-arcteryx-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -496,6 +595,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Harry Styles
 
+## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Thu, 05 Sep 2024 17:16:40 GMT*
+
+
+## Harry Styles
+
 ## [BEAMS  Arc’teryx Have Perfected the Art of Patchwork](https://www.highsnobiety.com/p/beams-arcteryx-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -541,6 +649,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Jake Paul
 
+## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Thu, 05 Sep 2024 17:16:40 GMT*
+
+
+## Jake Paul
+
 ## [BEAMS  Arc’teryx Have Perfected the Art of Patchwork](https://www.highsnobiety.com/p/beams-arcteryx-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -586,6 +703,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Jameela Jamil
 
+## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Thu, 05 Sep 2024 17:16:40 GMT*
+
+
+## Jameela Jamil
+
 ## [BEAMS  Arc’teryx Have Perfected the Art of Patchwork](https://www.highsnobiety.com/p/beams-arcteryx-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -631,6 +757,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Elon Musk
 
+## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Thu, 05 Sep 2024 17:16:40 GMT*
+
+
+## Elon Musk
+
 ## [BEAMS  Arc’teryx Have Perfected the Art of Patchwork](https://www.highsnobiety.com/p/beams-arcteryx-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -676,6 +811,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Gabrielle Union
 
+## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Thu, 05 Sep 2024 17:16:40 GMT*
+
+
+## Gabrielle Union
+
 ## [BEAMS  Arc’teryx Have Perfected the Art of Patchwork](https://www.highsnobiety.com/p/beams-arcteryx-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -721,6 +865,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Giancarlo Esposito
 
+## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Thu, 05 Sep 2024 17:16:40 GMT*
+
+
+## Giancarlo Esposito
+
 ## [BEAMS  Arc’teryx Have Perfected the Art of Patchwork](https://www.highsnobiety.com/p/beams-arcteryx-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -766,6 +919,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Gillian Jacobs
 
+## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Thu, 05 Sep 2024 17:16:40 GMT*
+
+
+## Gillian Jacobs
+
 ## [BEAMS  Arc’teryx Have Perfected the Art of Patchwork](https://www.highsnobiety.com/p/beams-arcteryx-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -811,6 +973,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Jason Mantzoukas
 
+## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Thu, 05 Sep 2024 17:16:40 GMT*
+
+
+## Jason Mantzoukas
+
 ## [BEAMS  Arc’teryx Have Perfected the Art of Patchwork](https://www.highsnobiety.com/p/beams-arcteryx-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -856,6 +1027,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## JB Smoove
 
+## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Thu, 05 Sep 2024 17:16:40 GMT*
+
+
+## JB Smoove
+
 ## [BEAMS  Arc’teryx Have Perfected the Art of Patchwork](https://www.highsnobiety.com/p/beams-arcteryx-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -901,6 +1081,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Madison Pettis
 
+## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Thu, 05 Sep 2024 17:16:40 GMT*
+
+
+## Madison Pettis
+
 ## [BEAMS  Arc’teryx Have Perfected the Art of Patchwork](https://www.highsnobiety.com/p/beams-arcteryx-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -946,6 +1135,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Austin Butler
 
+## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Thu, 05 Sep 2024 17:16:40 GMT*
+
+
+## Austin Butler
+
 ## [BEAMS  Arc’teryx Have Perfected the Art of Patchwork](https://www.highsnobiety.com/p/beams-arcteryx-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -991,6 +1189,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Mark Zuckerberg
 
+## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Thu, 05 Sep 2024 17:16:40 GMT*
+
+
+## Mark Zuckerberg
+
 ## [BEAMS  Arc’teryx Have Perfected the Art of Patchwork](https://www.highsnobiety.com/p/beams-arcteryx-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1036,6 +1243,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Ariana Grande
 
+## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Thu, 05 Sep 2024 17:16:40 GMT*
+
+
+## Ariana Grande
+
 ## [BEAMS  Arc’teryx Have Perfected the Art of Patchwork](https://www.highsnobiety.com/p/beams-arcteryx-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1081,6 +1297,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Livvy Dunne
 
+## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Thu, 05 Sep 2024 17:16:40 GMT*
+
+
+## Livvy Dunne
+
 ## [BEAMS  Arc’teryx Have Perfected the Art of Patchwork](https://www.highsnobiety.com/p/beams-arcteryx-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1126,6 +1351,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Ali Wong
 
+## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Thu, 05 Sep 2024 17:16:40 GMT*
+
+
+## Ali Wong
+
 ## [BEAMS  Arc’teryx Have Perfected the Art of Patchwork](https://www.highsnobiety.com/p/beams-arcteryx-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1171,6 +1405,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Lizzo
 
+## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Thu, 05 Sep 2024 17:16:40 GMT*
+
+
+## Lizzo
+
 ## [BEAMS  Arc’teryx Have Perfected the Art of Patchwork](https://www.highsnobiety.com/p/beams-arcteryx-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1216,6 +1459,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Alison Brie
 
+## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Thu, 05 Sep 2024 17:16:40 GMT*
+
+
+## Alison Brie
+
 ## [BEAMS  Arc’teryx Have Perfected the Art of Patchwork](https://www.highsnobiety.com/p/beams-arcteryx-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1261,6 +1513,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Lil Wayne
 
+## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Thu, 05 Sep 2024 17:16:40 GMT*
+
+
+## Lil Wayne
+
 ## [BEAMS  Arc’teryx Have Perfected the Art of Patchwork](https://www.highsnobiety.com/p/beams-arcteryx-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1306,6 +1567,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Adele
 
+## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Thu, 05 Sep 2024 17:16:40 GMT*
+
+
+## Adele
+
 ## [BEAMS  Arc’teryx Have Perfected the Art of Patchwork](https://www.highsnobiety.com/p/beams-arcteryx-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1351,6 +1621,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Lindsay Lohan
 
+## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Thu, 05 Sep 2024 17:16:40 GMT*
+
+
+## Lindsay Lohan
+
 ## [BEAMS  Arc’teryx Have Perfected the Art of Patchwork](https://www.highsnobiety.com/p/beams-arcteryx-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1396,6 +1675,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Addison Rae
 
+## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Thu, 05 Sep 2024 17:16:40 GMT*
+
+
+## Addison Rae
+
 ## [BEAMS  Arc’teryx Have Perfected the Art of Patchwork](https://www.highsnobiety.com/p/beams-arcteryx-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1441,6 +1729,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Latto
 
+## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Thu, 05 Sep 2024 17:16:40 GMT*
+
+
+## Latto
+
 ## [BEAMS  Arc’teryx Have Perfected the Art of Patchwork](https://www.highsnobiety.com/p/beams-arcteryx-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1486,6 +1783,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Aaron Paul
 
+## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Thu, 05 Sep 2024 17:16:40 GMT*
+
+
+## Aaron Paul
+
 ## [BEAMS  Arc’teryx Have Perfected the Art of Patchwork](https://www.highsnobiety.com/p/beams-arcteryx-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1531,6 +1837,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## LeBron James
 
+## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Thu, 05 Sep 2024 17:16:40 GMT*
+
+
+## LeBron James
+
 ## [BEAMS  Arc’teryx Have Perfected the Art of Patchwork](https://www.highsnobiety.com/p/beams-arcteryx-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1576,6 +1891,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## 50 Cent
 
+## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Thu, 05 Sep 2024 17:16:40 GMT*
+
+
+## 50 Cent
+
 ## [BEAMS  Arc’teryx Have Perfected the Art of Patchwork](https://www.highsnobiety.com/p/beams-arcteryx-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1621,6 +1945,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Kesha
 
+## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Thu, 05 Sep 2024 17:16:40 GMT*
+
+
+## Kesha
+
 ## [BEAMS  Arc’teryx Have Perfected the Art of Patchwork](https://www.highsnobiety.com/p/beams-arcteryx-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1666,6 +1999,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## 21 Savage
 
+## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Thu, 05 Sep 2024 17:16:40 GMT*
+
+
+## 21 Savage
+
 ## [BEAMS  Arc’teryx Have Perfected the Art of Patchwork](https://www.highsnobiety.com/p/beams-arcteryx-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1711,6 +2053,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Larry David
 
+## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Thu, 05 Sep 2024 17:16:40 GMT*
+
+
+## Larry David
+
 ## [BEAMS  Arc’teryx Have Perfected the Art of Patchwork](https://www.highsnobiety.com/p/beams-arcteryx-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1756,6 +2107,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Seth Rogan
 
+## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Thu, 05 Sep 2024 17:16:40 GMT*
+
+
+## Seth Rogan
+
 ## [BEAMS  Arc’teryx Have Perfected the Art of Patchwork](https://www.highsnobiety.com/p/beams-arcteryx-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1801,6 +2161,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Simone Biles
 
+## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Thu, 05 Sep 2024 17:16:40 GMT*
+
+
+## Simone Biles
+
 ## [BEAMS  Arc’teryx Have Perfected the Art of Patchwork](https://www.highsnobiety.com/p/beams-arcteryx-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1846,6 +2215,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Pete Davidson
 
+## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Thu, 05 Sep 2024 17:16:40 GMT*
+
+
+## Pete Davidson
+
 ## [BEAMS  Arc’teryx Have Perfected the Art of Patchwork](https://www.highsnobiety.com/p/beams-arcteryx-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1891,6 +2269,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Prince Harry
 
+## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Thu, 05 Sep 2024 17:16:40 GMT*
+
+
+## Prince Harry
+
 ## [BEAMS  Arc’teryx Have Perfected the Art of Patchwork](https://www.highsnobiety.com/p/beams-arcteryx-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1936,6 +2323,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Princess of Wales
 
+## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Thu, 05 Sep 2024 17:16:40 GMT*
+
+
+## Princess of Wales
+
 ## [BEAMS  Arc’teryx Have Perfected the Art of Patchwork](https://www.highsnobiety.com/p/beams-arcteryx-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1981,6 +2377,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Rachel McAdams
 
+## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Thu, 05 Sep 2024 17:16:40 GMT*
+
+
+## Rachel McAdams
+
 ## [BEAMS  Arc’teryx Have Perfected the Art of Patchwork](https://www.highsnobiety.com/p/beams-arcteryx-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2026,6 +2431,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Reneé Rapp
 
+## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Thu, 05 Sep 2024 17:16:40 GMT*
+
+
+## Reneé Rapp
+
 ## [BEAMS  Arc’teryx Have Perfected the Art of Patchwork](https://www.highsnobiety.com/p/beams-arcteryx-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2071,6 +2485,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Rick Ross
 
+## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Thu, 05 Sep 2024 17:16:40 GMT*
+
+
+## Rick Ross
+
 ## [BEAMS  Arc’teryx Have Perfected the Art of Patchwork](https://www.highsnobiety.com/p/beams-arcteryx-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2116,6 +2539,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Sam Ashgari
 
+## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Thu, 05 Sep 2024 17:16:40 GMT*
+
+
+## Sam Ashgari
+
 ## [BEAMS  Arc’teryx Have Perfected the Art of Patchwork](https://www.highsnobiety.com/p/beams-arcteryx-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2161,6 +2593,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Sandra Oh
 
+## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Thu, 05 Sep 2024 17:16:40 GMT*
+
+
+## Sandra Oh
+
 ## [BEAMS  Arc’teryx Have Perfected the Art of Patchwork](https://www.highsnobiety.com/p/beams-arcteryx-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2206,6 +2647,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Donald Trump
 
+## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Thu, 05 Sep 2024 17:16:40 GMT*
+
+
+## Donald Trump
+
 ## [BEAMS  Arc’teryx Have Perfected the Art of Patchwork](https://www.highsnobiety.com/p/beams-arcteryx-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2251,6 +2701,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Diddy
 
+## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Thu, 05 Sep 2024 17:16:40 GMT*
+
+
+## Diddy
+
 ## [BEAMS  Arc’teryx Have Perfected the Art of Patchwork](https://www.highsnobiety.com/p/beams-arcteryx-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2296,6 +2755,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## City Girls
 
+## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Thu, 05 Sep 2024 17:16:40 GMT*
+
+
+## City Girls
+
 ## [BEAMS  Arc’teryx Have Perfected the Art of Patchwork](https://www.highsnobiety.com/p/beams-arcteryx-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2341,6 +2809,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Chloe Bailey
 
+## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Thu, 05 Sep 2024 17:16:40 GMT*
+
+
+## Chloe Bailey
+
 ## [BEAMS  Arc’teryx Have Perfected the Art of Patchwork](https://www.highsnobiety.com/p/beams-arcteryx-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2386,6 +2863,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Charli D Amelio
 
+## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Thu, 05 Sep 2024 17:16:40 GMT*
+
+
+## Charli D Amelio
+
 ## [BEAMS  Arc’teryx Have Perfected the Art of Patchwork](https://www.highsnobiety.com/p/beams-arcteryx-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2431,6 +2917,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Cardi B
 
+## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Thu, 05 Sep 2024 17:16:40 GMT*
+
+
+## Cardi B
+
 ## [BEAMS  Arc’teryx Have Perfected the Art of Patchwork](https://www.highsnobiety.com/p/beams-arcteryx-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2476,6 +2971,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Bryan Cranston
 
+## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Thu, 05 Sep 2024 17:16:40 GMT*
+
+
+## Bryan Cranston
+
 ## [BEAMS  Arc’teryx Have Perfected the Art of Patchwork](https://www.highsnobiety.com/p/beams-arcteryx-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2521,6 +3025,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Brielle Biermann
 
+## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Thu, 05 Sep 2024 17:16:40 GMT*
+
+
+## Brielle Biermann
+
 ## [BEAMS  Arc’teryx Have Perfected the Art of Patchwork](https://www.highsnobiety.com/p/beams-arcteryx-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2566,6 +3079,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Dua Lipa
 
+## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Thu, 05 Sep 2024 17:16:40 GMT*
+
+
+## Dua Lipa
+
 ## [BEAMS  Arc’teryx Have Perfected the Art of Patchwork](https://www.highsnobiety.com/p/beams-arcteryx-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2611,6 +3133,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Drake
 
+## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Thu, 05 Sep 2024 17:16:40 GMT*
+
+
+## Drake
+
 ## [BEAMS  Arc’teryx Have Perfected the Art of Patchwork](https://www.highsnobiety.com/p/beams-arcteryx-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2656,6 +3187,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Jenner
 
+## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Thu, 05 Sep 2024 17:16:40 GMT*
+
+
+## Jenner
+
 ## [BEAMS  Arc’teryx Have Perfected the Art of Patchwork](https://www.highsnobiety.com/p/beams-arcteryx-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2701,6 +3241,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## J. Cole
 
+## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Thu, 05 Sep 2024 17:16:40 GMT*
+
+
+## J. Cole
+
 ## [BEAMS  Arc’teryx Have Perfected the Art of Patchwork](https://www.highsnobiety.com/p/beams-arcteryx-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2746,6 +3295,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Jerrod Carmichael
 
+## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Thu, 05 Sep 2024 17:16:40 GMT*
+
+
+## Jerrod Carmichael
+
 ## [BEAMS  Arc’teryx Have Perfected the Art of Patchwork](https://www.highsnobiety.com/p/beams-arcteryx-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2791,6 +3349,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Jennifer Lawrence
 
+## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Thu, 05 Sep 2024 17:16:40 GMT*
+
+
+## Jennifer Lawrence
+
 ## [BEAMS  Arc’teryx Have Perfected the Art of Patchwork](https://www.highsnobiety.com/p/beams-arcteryx-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2836,6 +3403,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Joe Biden
 
+## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Thu, 05 Sep 2024 17:16:40 GMT*
+
+
+## Joe Biden
+
 ## [BEAMS  Arc’teryx Have Perfected the Art of Patchwork](https://www.highsnobiety.com/p/beams-arcteryx-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2881,6 +3457,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## J.K. Simmons
 
+## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Thu, 05 Sep 2024 17:16:40 GMT*
+
+
+## J.K. Simmons
+
 ## [BEAMS  Arc’teryx Have Perfected the Art of Patchwork](https://www.highsnobiety.com/p/beams-arcteryx-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2926,6 +3511,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Kamala Harris
 
+## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Thu, 05 Sep 2024 17:16:40 GMT*
+
+
+## Kamala Harris
+
 ## [BEAMS  Arc’teryx Have Perfected the Art of Patchwork](https://www.highsnobiety.com/p/beams-arcteryx-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2971,6 +3565,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## John C Reilly
 
+## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Thu, 05 Sep 2024 17:16:40 GMT*
+
+
+## John C Reilly
+
 ## [BEAMS  Arc’teryx Have Perfected the Art of Patchwork](https://www.highsnobiety.com/p/beams-arcteryx-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3016,6 +3619,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Kardashian
 
+## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Thu, 05 Sep 2024 17:16:40 GMT*
+
+
+## Kardashian
+
 ## [BEAMS  Arc’teryx Have Perfected the Art of Patchwork](https://www.highsnobiety.com/p/beams-arcteryx-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3061,6 +3673,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Kanye
 
+## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Thu, 05 Sep 2024 17:16:40 GMT*
+
+
+## Kanye
+
 ## [BEAMS  Arc’teryx Have Perfected the Art of Patchwork](https://www.highsnobiety.com/p/beams-arcteryx-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3106,6 +3727,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Zendaya
 
+## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Thu, 05 Sep 2024 17:16:40 GMT*
+
+
+## Zendaya
+
 ## [BEAMS  Arc’teryx Have Perfected the Art of Patchwork](https://www.highsnobiety.com/p/beams-arcteryx-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3151,6 +3781,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Will Ferrell
 
+## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Thu, 05 Sep 2024 17:16:40 GMT*
+
+
+## Will Ferrell
+
 ## [BEAMS  Arc’teryx Have Perfected the Art of Patchwork](https://www.highsnobiety.com/p/beams-arcteryx-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3196,6 +3835,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Zazie Beetz
 
+## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Thu, 05 Sep 2024 17:16:40 GMT*
+
+
+## Zazie Beetz
+
 ## [BEAMS  Arc’teryx Have Perfected the Art of Patchwork](https://www.highsnobiety.com/p/beams-arcteryx-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3241,6 +3889,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Bob Odenkirk
 
+## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Thu, 05 Sep 2024 17:16:40 GMT*
+
+
+## Bob Odenkirk
+
 ## [BEAMS  Arc’teryx Have Perfected the Art of Patchwork](https://www.highsnobiety.com/p/beams-arcteryx-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3286,6 +3943,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Brad Pitt
 
+## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Thu, 05 Sep 2024 17:16:40 GMT*
+
+
+## Brad Pitt
+
 ## [BEAMS  Arc’teryx Have Perfected the Art of Patchwork](https://www.highsnobiety.com/p/beams-arcteryx-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3331,6 +3997,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Beyoncé
 
+## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Thu, 05 Sep 2024 17:16:40 GMT*
+
+
+## Beyoncé
+
 ## [BEAMS  Arc’teryx Have Perfected the Art of Patchwork](https://www.highsnobiety.com/p/beams-arcteryx-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3376,6 +4051,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Bia
 
+## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Thu, 05 Sep 2024 17:16:40 GMT*
+
+
+## Bia
+
 ## [BEAMS  Arc’teryx Have Perfected the Art of Patchwork](https://www.highsnobiety.com/p/beams-arcteryx-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3421,6 +4105,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Avantika
 
+## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Thu, 05 Sep 2024 17:16:40 GMT*
+
+
+## Avantika
+
 ## [BEAMS  Arc’teryx Have Perfected the Art of Patchwork](https://www.highsnobiety.com/p/beams-arcteryx-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3466,6 +4159,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Bernie Sanders
 
+## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Thu, 05 Sep 2024 17:16:40 GMT*
+
+
+## Bernie Sanders
+
 ## [BEAMS  Arc’teryx Have Perfected the Art of Patchwork](https://www.highsnobiety.com/p/beams-arcteryx-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3511,6 +4213,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Big Sean
 
+## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Thu, 05 Sep 2024 17:16:40 GMT*
+
+
+## Big Sean
+
 ## [BEAMS  Arc’teryx Have Perfected the Art of Patchwork](https://www.highsnobiety.com/p/beams-arcteryx-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3556,6 +4267,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## BlockBoy JB
 
+## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Thu, 05 Sep 2024 17:16:40 GMT*
+
+
+## BlockBoy JB
+
 ## [BEAMS  Arc’teryx Have Perfected the Art of Patchwork](https://www.highsnobiety.com/p/beams-arcteryx-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3601,6 +4321,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Biden
 
+## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Thu, 05 Sep 2024 17:16:40 GMT*
+
+
+## Biden
+
 ## [BEAMS  Arc’teryx Have Perfected the Art of Patchwork](https://www.highsnobiety.com/p/beams-arcteryx-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3646,6 +4375,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Bieber
 
+## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Thu, 05 Sep 2024 17:16:40 GMT*
+
+
+## Bieber
+
 ## [BEAMS  Arc’teryx Have Perfected the Art of Patchwork](https://www.highsnobiety.com/p/beams-arcteryx-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3691,6 +4429,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Paulina Porizkov
 
+## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Thu, 05 Sep 2024 17:16:40 GMT*
+
+
+## Paulina Porizkov
+
 ## [BEAMS  Arc’teryx Have Perfected the Art of Patchwork](https://www.highsnobiety.com/p/beams-arcteryx-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3736,6 +4483,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Paris Hilton
 
+## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Thu, 05 Sep 2024 17:16:40 GMT*
+
+
+## Paris Hilton
+
 ## [BEAMS  Arc’teryx Have Perfected the Art of Patchwork](https://www.highsnobiety.com/p/beams-arcteryx-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3781,6 +4537,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Metro Boomin
 
+## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Thu, 05 Sep 2024 17:16:40 GMT*
+
+
+## Metro Boomin
+
 ## [BEAMS  Arc’teryx Have Perfected the Art of Patchwork](https://www.highsnobiety.com/p/beams-arcteryx-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3826,6 +4591,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Meghan Markle
 
+## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Thu, 05 Sep 2024 17:16:40 GMT*
+
+
+## Meghan Markle
+
 ## [BEAMS  Arc’teryx Have Perfected the Art of Patchwork](https://www.highsnobiety.com/p/beams-arcteryx-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3871,6 +4645,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Megan Thee Stallion
 
+## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Thu, 05 Sep 2024 17:16:40 GMT*
+
+
+## Megan Thee Stallion
+
 ## [BEAMS  Arc’teryx Have Perfected the Art of Patchwork](https://www.highsnobiety.com/p/beams-arcteryx-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3916,6 +4699,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Maya Rudolph
 
+## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Thu, 05 Sep 2024 17:16:40 GMT*
+
+
+## Maya Rudolph
+
 ## [BEAMS  Arc’teryx Have Perfected the Art of Patchwork](https://www.highsnobiety.com/p/beams-arcteryx-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3961,6 +4753,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Olivia Rodrigo
 
+## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Thu, 05 Sep 2024 17:16:40 GMT*
+
+
+## Olivia Rodrigo
+
 ## [BEAMS  Arc’teryx Have Perfected the Art of Patchwork](https://www.highsnobiety.com/p/beams-arcteryx-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -4006,6 +4807,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Obama
 
+## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Thu, 05 Sep 2024 17:16:40 GMT*
+
+
+## Obama
+
 ## [BEAMS  Arc’teryx Have Perfected the Art of Patchwork](https://www.highsnobiety.com/p/beams-arcteryx-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -4051,6 +4861,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Nicki Minaj
 
+## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Thu, 05 Sep 2024 17:16:40 GMT*
+
+
+## Nicki Minaj
+
 ## [BEAMS  Arc’teryx Have Perfected the Art of Patchwork](https://www.highsnobiety.com/p/beams-arcteryx-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -4092,6 +4911,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 06 Sep 2024 15:01:23 GMT*
+
+
+## MrBeast
+
+## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Thu, 05 Sep 2024 17:16:40 GMT*
 
 
 ## MrBeast
