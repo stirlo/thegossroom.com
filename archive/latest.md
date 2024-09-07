@@ -1,15 +1,6 @@
 # Latest Stories
 ## Tim Cook
 
-## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
-
-
-## Tim Cook
-
 ## [Even the Jordan 4 Gets a New Pair of Crisp Jeans](https://www.highsnobiety.com/p/jordan-4-denim-sneakers-2025/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -64,15 +55,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Taylor Swift
 
-## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
-
-
-## Taylor Swift
-
 ## [Even the Jordan 4 Gets a New Pair of Crisp Jeans](https://www.highsnobiety.com/p/jordan-4-denim-sneakers-2025/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -127,15 +109,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Tom Brady
 
-## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
-
-
-## Tom Brady
-
 ## [Even the Jordan 4 Gets a New Pair of Crisp Jeans](https://www.highsnobiety.com/p/jordan-4-denim-sneakers-2025/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -190,15 +163,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Tina Fey
 
-## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
-
-
-## Tina Fey
-
 ## [Even the Jordan 4 Gets a New Pair of Crisp Jeans](https://www.highsnobiety.com/p/jordan-4-denim-sneakers-2025/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -253,15 +217,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Steven Yuen
 
-## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
-
-
-## Steven Yuen
-
 ## [Even the Jordan 4 Gets a New Pair of Crisp Jeans](https://www.highsnobiety.com/p/jordan-4-denim-sneakers-2025/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -316,15 +271,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Sommer Ray
 
-## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
-
-
-## Sommer Ray
-
 ## [Even the Jordan 4 Gets a New Pair of Crisp Jeans](https://www.highsnobiety.com/p/jordan-4-denim-sneakers-2025/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -379,15 +325,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Sza
 
-## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
-
-
-## Sza
-
 ## [Even the Jordan 4 Gets a New Pair of Crisp Jeans](https://www.highsnobiety.com/p/jordan-4-denim-sneakers-2025/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -442,15 +379,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Sydney Sweeney
 
-## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
-
-
-## Sydney Sweeney
-
 ## [Even the Jordan 4 Gets a New Pair of Crisp Jeans](https://www.highsnobiety.com/p/jordan-4-denim-sneakers-2025/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -505,15 +433,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Walton Goggins
 
-## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
-
-
-## Walton Goggins
-
 ## [Even the Jordan 4 Gets a New Pair of Crisp Jeans](https://www.highsnobiety.com/p/jordan-4-denim-sneakers-2025/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -568,15 +487,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Tom Holland
 
-## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
-
-
-## Tom Holland
-
 ## [Even the Jordan 4 Gets a New Pair of Crisp Jeans](https://www.highsnobiety.com/p/jordan-4-denim-sneakers-2025/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -631,15 +541,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Gucci Mane
 
-## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
-
-
-## Gucci Mane
-
 ## [Even the Jordan 4 Gets a New Pair of Crisp Jeans](https://www.highsnobiety.com/p/jordan-4-denim-sneakers-2025/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -694,15 +595,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Harry Styles
 
-## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
-
-
-## Harry Styles
-
 ## [Even the Jordan 4 Gets a New Pair of Crisp Jeans](https://www.highsnobiety.com/p/jordan-4-denim-sneakers-2025/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -757,15 +649,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Jake Paul
 
-## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
-
-
-## Jake Paul
-
 ## [Even the Jordan 4 Gets a New Pair of Crisp Jeans](https://www.highsnobiety.com/p/jordan-4-denim-sneakers-2025/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -820,15 +703,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Jameela Jamil
 
-## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
-
-
-## Jameela Jamil
-
 ## [Even the Jordan 4 Gets a New Pair of Crisp Jeans](https://www.highsnobiety.com/p/jordan-4-denim-sneakers-2025/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -883,15 +757,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Elon Musk
 
-## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
-
-
-## Elon Musk
-
 ## [Even the Jordan 4 Gets a New Pair of Crisp Jeans](https://www.highsnobiety.com/p/jordan-4-denim-sneakers-2025/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -946,15 +811,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Gabrielle Union
 
-## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
-
-
-## Gabrielle Union
-
 ## [Even the Jordan 4 Gets a New Pair of Crisp Jeans](https://www.highsnobiety.com/p/jordan-4-denim-sneakers-2025/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1009,15 +865,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Giancarlo Esposito
 
-## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
-
-
-## Giancarlo Esposito
-
 ## [Even the Jordan 4 Gets a New Pair of Crisp Jeans](https://www.highsnobiety.com/p/jordan-4-denim-sneakers-2025/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1072,15 +919,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Gillian Jacobs
 
-## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
-
-
-## Gillian Jacobs
-
 ## [Even the Jordan 4 Gets a New Pair of Crisp Jeans](https://www.highsnobiety.com/p/jordan-4-denim-sneakers-2025/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1135,15 +973,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Jason Mantzoukas
 
-## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
-
-
-## Jason Mantzoukas
-
 ## [Even the Jordan 4 Gets a New Pair of Crisp Jeans](https://www.highsnobiety.com/p/jordan-4-denim-sneakers-2025/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1198,15 +1027,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## JB Smoove
 
-## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
-
-
-## JB Smoove
-
 ## [Even the Jordan 4 Gets a New Pair of Crisp Jeans](https://www.highsnobiety.com/p/jordan-4-denim-sneakers-2025/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1261,15 +1081,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Madison Pettis
 
-## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
-
-
-## Madison Pettis
-
 ## [Even the Jordan 4 Gets a New Pair of Crisp Jeans](https://www.highsnobiety.com/p/jordan-4-denim-sneakers-2025/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1324,15 +1135,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Austin Butler
 
-## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
-
-
-## Austin Butler
-
 ## [Even the Jordan 4 Gets a New Pair of Crisp Jeans](https://www.highsnobiety.com/p/jordan-4-denim-sneakers-2025/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1387,15 +1189,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Mark Zuckerberg
 
-## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
-
-
-## Mark Zuckerberg
-
 ## [Even the Jordan 4 Gets a New Pair of Crisp Jeans](https://www.highsnobiety.com/p/jordan-4-denim-sneakers-2025/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1450,15 +1243,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Ariana Grande
 
-## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
-
-
-## Ariana Grande
-
 ## [Even the Jordan 4 Gets a New Pair of Crisp Jeans](https://www.highsnobiety.com/p/jordan-4-denim-sneakers-2025/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1513,15 +1297,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Livvy Dunne
 
-## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
-
-
-## Livvy Dunne
-
 ## [Even the Jordan 4 Gets a New Pair of Crisp Jeans](https://www.highsnobiety.com/p/jordan-4-denim-sneakers-2025/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1576,15 +1351,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Ali Wong
 
-## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
-
-
-## Ali Wong
-
 ## [Even the Jordan 4 Gets a New Pair of Crisp Jeans](https://www.highsnobiety.com/p/jordan-4-denim-sneakers-2025/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1639,15 +1405,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Lizzo
 
-## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
-
-
-## Lizzo
-
 ## [Even the Jordan 4 Gets a New Pair of Crisp Jeans](https://www.highsnobiety.com/p/jordan-4-denim-sneakers-2025/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1702,15 +1459,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Alison Brie
 
-## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
-
-
-## Alison Brie
-
 ## [Even the Jordan 4 Gets a New Pair of Crisp Jeans](https://www.highsnobiety.com/p/jordan-4-denim-sneakers-2025/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1765,15 +1513,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Lil Wayne
 
-## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
-
-
-## Lil Wayne
-
 ## [Even the Jordan 4 Gets a New Pair of Crisp Jeans](https://www.highsnobiety.com/p/jordan-4-denim-sneakers-2025/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1828,15 +1567,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Adele
 
-## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
-
-
-## Adele
-
 ## [Even the Jordan 4 Gets a New Pair of Crisp Jeans](https://www.highsnobiety.com/p/jordan-4-denim-sneakers-2025/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1891,15 +1621,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Lindsay Lohan
 
-## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
-
-
-## Lindsay Lohan
-
 ## [Even the Jordan 4 Gets a New Pair of Crisp Jeans](https://www.highsnobiety.com/p/jordan-4-denim-sneakers-2025/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1954,15 +1675,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Addison Rae
 
-## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
-
-
-## Addison Rae
-
 ## [Even the Jordan 4 Gets a New Pair of Crisp Jeans](https://www.highsnobiety.com/p/jordan-4-denim-sneakers-2025/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2017,15 +1729,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Latto
 
-## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
-
-
-## Latto
-
 ## [Even the Jordan 4 Gets a New Pair of Crisp Jeans](https://www.highsnobiety.com/p/jordan-4-denim-sneakers-2025/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2080,15 +1783,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Aaron Paul
 
-## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
-
-
-## Aaron Paul
-
 ## [Even the Jordan 4 Gets a New Pair of Crisp Jeans](https://www.highsnobiety.com/p/jordan-4-denim-sneakers-2025/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2143,15 +1837,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## LeBron James
 
-## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
-
-
-## LeBron James
-
 ## [Even the Jordan 4 Gets a New Pair of Crisp Jeans](https://www.highsnobiety.com/p/jordan-4-denim-sneakers-2025/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2206,15 +1891,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## 50 Cent
 
-## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
-
-
-## 50 Cent
-
 ## [Even the Jordan 4 Gets a New Pair of Crisp Jeans](https://www.highsnobiety.com/p/jordan-4-denim-sneakers-2025/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2269,15 +1945,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Kesha
 
-## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
-
-
-## Kesha
-
 ## [Even the Jordan 4 Gets a New Pair of Crisp Jeans](https://www.highsnobiety.com/p/jordan-4-denim-sneakers-2025/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2332,15 +1999,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## 21 Savage
 
-## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
-
-
-## 21 Savage
-
 ## [Even the Jordan 4 Gets a New Pair of Crisp Jeans](https://www.highsnobiety.com/p/jordan-4-denim-sneakers-2025/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2395,15 +2053,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Larry David
 
-## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
-
-
-## Larry David
-
 ## [Even the Jordan 4 Gets a New Pair of Crisp Jeans](https://www.highsnobiety.com/p/jordan-4-denim-sneakers-2025/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2458,15 +2107,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Seth Rogan
 
-## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
-
-
-## Seth Rogan
-
 ## [Even the Jordan 4 Gets a New Pair of Crisp Jeans](https://www.highsnobiety.com/p/jordan-4-denim-sneakers-2025/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2521,15 +2161,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Simone Biles
 
-## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
-
-
-## Simone Biles
-
 ## [Even the Jordan 4 Gets a New Pair of Crisp Jeans](https://www.highsnobiety.com/p/jordan-4-denim-sneakers-2025/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2584,15 +2215,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Pete Davidson
 
-## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
-
-
-## Pete Davidson
-
 ## [Even the Jordan 4 Gets a New Pair of Crisp Jeans](https://www.highsnobiety.com/p/jordan-4-denim-sneakers-2025/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2647,15 +2269,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Prince Harry
 
-## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
-
-
-## Prince Harry
-
 ## [Even the Jordan 4 Gets a New Pair of Crisp Jeans](https://www.highsnobiety.com/p/jordan-4-denim-sneakers-2025/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2710,15 +2323,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Princess of Wales
 
-## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
-
-
-## Princess of Wales
-
 ## [Even the Jordan 4 Gets a New Pair of Crisp Jeans](https://www.highsnobiety.com/p/jordan-4-denim-sneakers-2025/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2773,15 +2377,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Rachel McAdams
 
-## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
-
-
-## Rachel McAdams
-
 ## [Even the Jordan 4 Gets a New Pair of Crisp Jeans](https://www.highsnobiety.com/p/jordan-4-denim-sneakers-2025/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2836,15 +2431,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Reneé Rapp
 
-## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
-
-
-## Reneé Rapp
-
 ## [Even the Jordan 4 Gets a New Pair of Crisp Jeans](https://www.highsnobiety.com/p/jordan-4-denim-sneakers-2025/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2899,15 +2485,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Rick Ross
 
-## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
-
-
-## Rick Ross
-
 ## [Even the Jordan 4 Gets a New Pair of Crisp Jeans](https://www.highsnobiety.com/p/jordan-4-denim-sneakers-2025/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2962,15 +2539,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Sam Ashgari
 
-## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
-
-
-## Sam Ashgari
-
 ## [Even the Jordan 4 Gets a New Pair of Crisp Jeans](https://www.highsnobiety.com/p/jordan-4-denim-sneakers-2025/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3025,15 +2593,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Sandra Oh
 
-## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
-
-
-## Sandra Oh
-
 ## [Even the Jordan 4 Gets a New Pair of Crisp Jeans](https://www.highsnobiety.com/p/jordan-4-denim-sneakers-2025/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3088,15 +2647,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Donald Trump
 
-## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
-
-
-## Donald Trump
-
 ## [Even the Jordan 4 Gets a New Pair of Crisp Jeans](https://www.highsnobiety.com/p/jordan-4-denim-sneakers-2025/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3151,15 +2701,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Diddy
 
-## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
-
-
-## Diddy
-
 ## [Even the Jordan 4 Gets a New Pair of Crisp Jeans](https://www.highsnobiety.com/p/jordan-4-denim-sneakers-2025/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3214,15 +2755,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## City Girls
 
-## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
-
-
-## City Girls
-
 ## [Even the Jordan 4 Gets a New Pair of Crisp Jeans](https://www.highsnobiety.com/p/jordan-4-denim-sneakers-2025/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3277,15 +2809,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Chloe Bailey
 
-## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
-
-
-## Chloe Bailey
-
 ## [Even the Jordan 4 Gets a New Pair of Crisp Jeans](https://www.highsnobiety.com/p/jordan-4-denim-sneakers-2025/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3340,15 +2863,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Charli D Amelio
 
-## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
-
-
-## Charli D Amelio
-
 ## [Even the Jordan 4 Gets a New Pair of Crisp Jeans](https://www.highsnobiety.com/p/jordan-4-denim-sneakers-2025/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3403,15 +2917,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Cardi B
 
-## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
-
-
-## Cardi B
-
 ## [Even the Jordan 4 Gets a New Pair of Crisp Jeans](https://www.highsnobiety.com/p/jordan-4-denim-sneakers-2025/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3466,15 +2971,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Bryan Cranston
 
-## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
-
-
-## Bryan Cranston
-
 ## [Even the Jordan 4 Gets a New Pair of Crisp Jeans](https://www.highsnobiety.com/p/jordan-4-denim-sneakers-2025/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3529,15 +3025,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Brielle Biermann
 
-## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
-
-
-## Brielle Biermann
-
 ## [Even the Jordan 4 Gets a New Pair of Crisp Jeans](https://www.highsnobiety.com/p/jordan-4-denim-sneakers-2025/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3592,15 +3079,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Dua Lipa
 
-## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
-
-
-## Dua Lipa
-
 ## [Even the Jordan 4 Gets a New Pair of Crisp Jeans](https://www.highsnobiety.com/p/jordan-4-denim-sneakers-2025/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3655,15 +3133,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Drake
 
-## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
-
-
-## Drake
-
 ## [Even the Jordan 4 Gets a New Pair of Crisp Jeans](https://www.highsnobiety.com/p/jordan-4-denim-sneakers-2025/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3718,15 +3187,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Jenner
 
-## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
-
-
-## Jenner
-
 ## [Even the Jordan 4 Gets a New Pair of Crisp Jeans](https://www.highsnobiety.com/p/jordan-4-denim-sneakers-2025/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3781,15 +3241,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## J. Cole
 
-## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
-
-
-## J. Cole
-
 ## [Even the Jordan 4 Gets a New Pair of Crisp Jeans](https://www.highsnobiety.com/p/jordan-4-denim-sneakers-2025/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3844,15 +3295,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Jerrod Carmichael
 
-## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
-
-
-## Jerrod Carmichael
-
 ## [Even the Jordan 4 Gets a New Pair of Crisp Jeans](https://www.highsnobiety.com/p/jordan-4-denim-sneakers-2025/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3907,15 +3349,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Jennifer Lawrence
 
-## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
-
-
-## Jennifer Lawrence
-
 ## [Even the Jordan 4 Gets a New Pair of Crisp Jeans](https://www.highsnobiety.com/p/jordan-4-denim-sneakers-2025/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3970,15 +3403,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Joe Biden
 
-## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
-
-
-## Joe Biden
-
 ## [Even the Jordan 4 Gets a New Pair of Crisp Jeans](https://www.highsnobiety.com/p/jordan-4-denim-sneakers-2025/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -4033,15 +3457,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## J.K. Simmons
 
-## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
-
-
-## J.K. Simmons
-
 ## [Even the Jordan 4 Gets a New Pair of Crisp Jeans](https://www.highsnobiety.com/p/jordan-4-denim-sneakers-2025/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -4096,15 +3511,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Kamala Harris
 
-## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
-
-
-## Kamala Harris
-
 ## [Even the Jordan 4 Gets a New Pair of Crisp Jeans](https://www.highsnobiety.com/p/jordan-4-denim-sneakers-2025/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -4159,15 +3565,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## John C Reilly
 
-## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
-
-
-## John C Reilly
-
 ## [Even the Jordan 4 Gets a New Pair of Crisp Jeans](https://www.highsnobiety.com/p/jordan-4-denim-sneakers-2025/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -4222,15 +3619,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Kardashian
 
-## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
-
-
-## Kardashian
-
 ## [Even the Jordan 4 Gets a New Pair of Crisp Jeans](https://www.highsnobiety.com/p/jordan-4-denim-sneakers-2025/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -4285,15 +3673,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Kanye
 
-## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
-
-
-## Kanye
-
 ## [Even the Jordan 4 Gets a New Pair of Crisp Jeans](https://www.highsnobiety.com/p/jordan-4-denim-sneakers-2025/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -4348,15 +3727,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Zendaya
 
-## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
-
-
-## Zendaya
-
 ## [Even the Jordan 4 Gets a New Pair of Crisp Jeans](https://www.highsnobiety.com/p/jordan-4-denim-sneakers-2025/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -4411,15 +3781,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Will Ferrell
 
-## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
-
-
-## Will Ferrell
-
 ## [Even the Jordan 4 Gets a New Pair of Crisp Jeans](https://www.highsnobiety.com/p/jordan-4-denim-sneakers-2025/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -4474,15 +3835,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Zazie Beetz
 
-## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
-
-
-## Zazie Beetz
-
 ## [Even the Jordan 4 Gets a New Pair of Crisp Jeans](https://www.highsnobiety.com/p/jordan-4-denim-sneakers-2025/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -4537,15 +3889,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Bob Odenkirk
 
-## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
-
-
-## Bob Odenkirk
-
 ## [Even the Jordan 4 Gets a New Pair of Crisp Jeans](https://www.highsnobiety.com/p/jordan-4-denim-sneakers-2025/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -4600,15 +3943,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Brad Pitt
 
-## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
-
-
-## Brad Pitt
-
 ## [Even the Jordan 4 Gets a New Pair of Crisp Jeans](https://www.highsnobiety.com/p/jordan-4-denim-sneakers-2025/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -4663,15 +3997,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Beyoncé
 
-## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
-
-
-## Beyoncé
-
 ## [Even the Jordan 4 Gets a New Pair of Crisp Jeans](https://www.highsnobiety.com/p/jordan-4-denim-sneakers-2025/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -4726,15 +4051,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Bia
 
-## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
-
-
-## Bia
-
 ## [Even the Jordan 4 Gets a New Pair of Crisp Jeans](https://www.highsnobiety.com/p/jordan-4-denim-sneakers-2025/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -4789,15 +4105,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Avantika
 
-## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
-
-
-## Avantika
-
 ## [Even the Jordan 4 Gets a New Pair of Crisp Jeans](https://www.highsnobiety.com/p/jordan-4-denim-sneakers-2025/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -4852,15 +4159,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Bernie Sanders
 
-## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
-
-
-## Bernie Sanders
-
 ## [Even the Jordan 4 Gets a New Pair of Crisp Jeans](https://www.highsnobiety.com/p/jordan-4-denim-sneakers-2025/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -4915,15 +4213,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Big Sean
 
-## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
-
-
-## Big Sean
-
 ## [Even the Jordan 4 Gets a New Pair of Crisp Jeans](https://www.highsnobiety.com/p/jordan-4-denim-sneakers-2025/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -4978,15 +4267,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## BlockBoy JB
 
-## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
-
-
-## BlockBoy JB
-
 ## [Even the Jordan 4 Gets a New Pair of Crisp Jeans](https://www.highsnobiety.com/p/jordan-4-denim-sneakers-2025/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -5041,15 +4321,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Biden
 
-## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
-
-
-## Biden
-
 ## [Even the Jordan 4 Gets a New Pair of Crisp Jeans](https://www.highsnobiety.com/p/jordan-4-denim-sneakers-2025/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -5104,15 +4375,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Bieber
 
-## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
-
-
-## Bieber
-
 ## [Even the Jordan 4 Gets a New Pair of Crisp Jeans](https://www.highsnobiety.com/p/jordan-4-denim-sneakers-2025/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -5167,15 +4429,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Paulina Porizkov
 
-## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
-
-
-## Paulina Porizkov
-
 ## [Even the Jordan 4 Gets a New Pair of Crisp Jeans](https://www.highsnobiety.com/p/jordan-4-denim-sneakers-2025/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -5230,15 +4483,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Paris Hilton
 
-## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
-
-
-## Paris Hilton
-
 ## [Even the Jordan 4 Gets a New Pair of Crisp Jeans](https://www.highsnobiety.com/p/jordan-4-denim-sneakers-2025/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -5293,15 +4537,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Metro Boomin
 
-## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
-
-
-## Metro Boomin
-
 ## [Even the Jordan 4 Gets a New Pair of Crisp Jeans](https://www.highsnobiety.com/p/jordan-4-denim-sneakers-2025/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -5356,15 +4591,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Meghan Markle
 
-## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
-
-
-## Meghan Markle
-
 ## [Even the Jordan 4 Gets a New Pair of Crisp Jeans](https://www.highsnobiety.com/p/jordan-4-denim-sneakers-2025/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -5415,15 +4641,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sat, 07 Sep 2024 14:58:00 GMT*
-
-
-## Megan Thee Stallion
-
-## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
 
 
 ## Megan Thee Stallion
@@ -5482,15 +4699,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Maya Rudolph
 
-## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
-
-
-## Maya Rudolph
-
 ## [Even the Jordan 4 Gets a New Pair of Crisp Jeans](https://www.highsnobiety.com/p/jordan-4-denim-sneakers-2025/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -5541,15 +4749,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sat, 07 Sep 2024 14:58:00 GMT*
-
-
-## Olivia Rodrigo
-
-## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
 
 
 ## Olivia Rodrigo
@@ -5608,15 +4807,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Obama
 
-## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
-
-
-## Obama
-
 ## [Even the Jordan 4 Gets a New Pair of Crisp Jeans](https://www.highsnobiety.com/p/jordan-4-denim-sneakers-2025/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -5671,15 +4861,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Nicki Minaj
 
-## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
-
-
-## Nicki Minaj
-
 ## [Even the Jordan 4 Gets a New Pair of Crisp Jeans](https://www.highsnobiety.com/p/jordan-4-denim-sneakers-2025/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -5730,15 +4911,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sat, 07 Sep 2024 14:58:00 GMT*
-
-
-## MrBeast
-
-## [Where Is Glenn Martens Going?](https://www.highsnobiety.com/p/glenn-martens-leaves-y-project/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 06 Sep 2024 15:01:23 GMT*
 
 
 ## MrBeast
