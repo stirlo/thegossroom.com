@@ -62,6 +62,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Sun, 08 Sep 2024 13:33:00 GMT*
 
 
+## Tim Cook
+
+## [Willy Chavarria's Debut adidas Sneakers Get Straight to the Point](https://www.highsnobiety.com/p/willy-chavarria-adidas-sneaker-ss25/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 08 Sep 2024 15:20:08 GMT*
+
+
 ## Taylor Swift
 
 ## [adidas' New Sneaker Is a Gazelle Gone Skate](https://www.highsnobiety.com/p/adidas-super-gonz-sneaker/)
@@ -123,6 +132,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sun, 08 Sep 2024 13:33:00 GMT*
+
+
+## Taylor Swift
+
+## [Willy Chavarria's Debut adidas Sneakers Get Straight to the Point](https://www.highsnobiety.com/p/willy-chavarria-adidas-sneaker-ss25/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 08 Sep 2024 15:20:08 GMT*
 
 
 ## Tom Brady
@@ -188,6 +206,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Sun, 08 Sep 2024 13:33:00 GMT*
 
 
+## Tom Brady
+
+## [Willy Chavarria's Debut adidas Sneakers Get Straight to the Point](https://www.highsnobiety.com/p/willy-chavarria-adidas-sneaker-ss25/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 08 Sep 2024 15:20:08 GMT*
+
+
 ## Tina Fey
 
 ## [adidas' New Sneaker Is a Gazelle Gone Skate](https://www.highsnobiety.com/p/adidas-super-gonz-sneaker/)
@@ -249,6 +276,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sun, 08 Sep 2024 13:33:00 GMT*
+
+
+## Tina Fey
+
+## [Willy Chavarria's Debut adidas Sneakers Get Straight to the Point](https://www.highsnobiety.com/p/willy-chavarria-adidas-sneaker-ss25/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 08 Sep 2024 15:20:08 GMT*
 
 
 ## Steven Yuen
@@ -314,6 +350,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Sun, 08 Sep 2024 13:33:00 GMT*
 
 
+## Steven Yuen
+
+## [Willy Chavarria's Debut adidas Sneakers Get Straight to the Point](https://www.highsnobiety.com/p/willy-chavarria-adidas-sneaker-ss25/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 08 Sep 2024 15:20:08 GMT*
+
+
 ## Sommer Ray
 
 ## [adidas' New Sneaker Is a Gazelle Gone Skate](https://www.highsnobiety.com/p/adidas-super-gonz-sneaker/)
@@ -375,6 +420,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sun, 08 Sep 2024 13:33:00 GMT*
+
+
+## Sommer Ray
+
+## [Willy Chavarria's Debut adidas Sneakers Get Straight to the Point](https://www.highsnobiety.com/p/willy-chavarria-adidas-sneaker-ss25/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 08 Sep 2024 15:20:08 GMT*
 
 
 ## Sza
@@ -440,6 +494,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Sun, 08 Sep 2024 13:33:00 GMT*
 
 
+## Sza
+
+## [Willy Chavarria's Debut adidas Sneakers Get Straight to the Point](https://www.highsnobiety.com/p/willy-chavarria-adidas-sneaker-ss25/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 08 Sep 2024 15:20:08 GMT*
+
+
 ## Sydney Sweeney
 
 ## [adidas' New Sneaker Is a Gazelle Gone Skate](https://www.highsnobiety.com/p/adidas-super-gonz-sneaker/)
@@ -501,6 +564,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sun, 08 Sep 2024 13:33:00 GMT*
+
+
+## Sydney Sweeney
+
+## [Willy Chavarria's Debut adidas Sneakers Get Straight to the Point](https://www.highsnobiety.com/p/willy-chavarria-adidas-sneaker-ss25/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 08 Sep 2024 15:20:08 GMT*
 
 
 ## Walton Goggins
@@ -566,6 +638,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Sun, 08 Sep 2024 13:33:00 GMT*
 
 
+## Walton Goggins
+
+## [Willy Chavarria's Debut adidas Sneakers Get Straight to the Point](https://www.highsnobiety.com/p/willy-chavarria-adidas-sneaker-ss25/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 08 Sep 2024 15:20:08 GMT*
+
+
 ## Tom Holland
 
 ## [adidas' New Sneaker Is a Gazelle Gone Skate](https://www.highsnobiety.com/p/adidas-super-gonz-sneaker/)
@@ -627,6 +708,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sun, 08 Sep 2024 13:33:00 GMT*
+
+
+## Tom Holland
+
+## [Willy Chavarria's Debut adidas Sneakers Get Straight to the Point](https://www.highsnobiety.com/p/willy-chavarria-adidas-sneaker-ss25/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 08 Sep 2024 15:20:08 GMT*
 
 
 ## Gucci Mane
@@ -692,6 +782,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Sun, 08 Sep 2024 13:33:00 GMT*
 
 
+## Gucci Mane
+
+## [Willy Chavarria's Debut adidas Sneakers Get Straight to the Point](https://www.highsnobiety.com/p/willy-chavarria-adidas-sneaker-ss25/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 08 Sep 2024 15:20:08 GMT*
+
+
 ## Harry Styles
 
 ## [adidas' New Sneaker Is a Gazelle Gone Skate](https://www.highsnobiety.com/p/adidas-super-gonz-sneaker/)
@@ -753,6 +852,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sun, 08 Sep 2024 13:33:00 GMT*
+
+
+## Harry Styles
+
+## [Willy Chavarria's Debut adidas Sneakers Get Straight to the Point](https://www.highsnobiety.com/p/willy-chavarria-adidas-sneaker-ss25/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 08 Sep 2024 15:20:08 GMT*
 
 
 ## Jake Paul
@@ -818,6 +926,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Sun, 08 Sep 2024 13:33:00 GMT*
 
 
+## Jake Paul
+
+## [Willy Chavarria's Debut adidas Sneakers Get Straight to the Point](https://www.highsnobiety.com/p/willy-chavarria-adidas-sneaker-ss25/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 08 Sep 2024 15:20:08 GMT*
+
+
 ## Jameela Jamil
 
 ## [adidas' New Sneaker Is a Gazelle Gone Skate](https://www.highsnobiety.com/p/adidas-super-gonz-sneaker/)
@@ -879,6 +996,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sun, 08 Sep 2024 13:33:00 GMT*
+
+
+## Jameela Jamil
+
+## [Willy Chavarria's Debut adidas Sneakers Get Straight to the Point](https://www.highsnobiety.com/p/willy-chavarria-adidas-sneaker-ss25/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 08 Sep 2024 15:20:08 GMT*
 
 
 ## Elon Musk
@@ -944,6 +1070,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Sun, 08 Sep 2024 13:33:00 GMT*
 
 
+## Elon Musk
+
+## [Willy Chavarria's Debut adidas Sneakers Get Straight to the Point](https://www.highsnobiety.com/p/willy-chavarria-adidas-sneaker-ss25/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 08 Sep 2024 15:20:08 GMT*
+
+
 ## Gabrielle Union
 
 ## [adidas' New Sneaker Is a Gazelle Gone Skate](https://www.highsnobiety.com/p/adidas-super-gonz-sneaker/)
@@ -1005,6 +1140,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sun, 08 Sep 2024 13:33:00 GMT*
+
+
+## Gabrielle Union
+
+## [Willy Chavarria's Debut adidas Sneakers Get Straight to the Point](https://www.highsnobiety.com/p/willy-chavarria-adidas-sneaker-ss25/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 08 Sep 2024 15:20:08 GMT*
 
 
 ## Giancarlo Esposito
@@ -1070,6 +1214,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Sun, 08 Sep 2024 13:33:00 GMT*
 
 
+## Giancarlo Esposito
+
+## [Willy Chavarria's Debut adidas Sneakers Get Straight to the Point](https://www.highsnobiety.com/p/willy-chavarria-adidas-sneaker-ss25/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 08 Sep 2024 15:20:08 GMT*
+
+
 ## Gillian Jacobs
 
 ## [adidas' New Sneaker Is a Gazelle Gone Skate](https://www.highsnobiety.com/p/adidas-super-gonz-sneaker/)
@@ -1131,6 +1284,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sun, 08 Sep 2024 13:33:00 GMT*
+
+
+## Gillian Jacobs
+
+## [Willy Chavarria's Debut adidas Sneakers Get Straight to the Point](https://www.highsnobiety.com/p/willy-chavarria-adidas-sneaker-ss25/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 08 Sep 2024 15:20:08 GMT*
 
 
 ## Jason Mantzoukas
@@ -1196,6 +1358,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Sun, 08 Sep 2024 13:33:00 GMT*
 
 
+## Jason Mantzoukas
+
+## [Willy Chavarria's Debut adidas Sneakers Get Straight to the Point](https://www.highsnobiety.com/p/willy-chavarria-adidas-sneaker-ss25/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 08 Sep 2024 15:20:08 GMT*
+
+
 ## JB Smoove
 
 ## [adidas' New Sneaker Is a Gazelle Gone Skate](https://www.highsnobiety.com/p/adidas-super-gonz-sneaker/)
@@ -1257,6 +1428,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sun, 08 Sep 2024 13:33:00 GMT*
+
+
+## JB Smoove
+
+## [Willy Chavarria's Debut adidas Sneakers Get Straight to the Point](https://www.highsnobiety.com/p/willy-chavarria-adidas-sneaker-ss25/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 08 Sep 2024 15:20:08 GMT*
 
 
 ## Madison Pettis
@@ -1322,6 +1502,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Sun, 08 Sep 2024 13:33:00 GMT*
 
 
+## Madison Pettis
+
+## [Willy Chavarria's Debut adidas Sneakers Get Straight to the Point](https://www.highsnobiety.com/p/willy-chavarria-adidas-sneaker-ss25/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 08 Sep 2024 15:20:08 GMT*
+
+
 ## Austin Butler
 
 ## [adidas' New Sneaker Is a Gazelle Gone Skate](https://www.highsnobiety.com/p/adidas-super-gonz-sneaker/)
@@ -1383,6 +1572,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sun, 08 Sep 2024 13:33:00 GMT*
+
+
+## Austin Butler
+
+## [Willy Chavarria's Debut adidas Sneakers Get Straight to the Point](https://www.highsnobiety.com/p/willy-chavarria-adidas-sneaker-ss25/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 08 Sep 2024 15:20:08 GMT*
 
 
 ## Mark Zuckerberg
@@ -1448,6 +1646,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Sun, 08 Sep 2024 13:33:00 GMT*
 
 
+## Mark Zuckerberg
+
+## [Willy Chavarria's Debut adidas Sneakers Get Straight to the Point](https://www.highsnobiety.com/p/willy-chavarria-adidas-sneaker-ss25/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 08 Sep 2024 15:20:08 GMT*
+
+
 ## Ariana Grande
 
 ## [adidas' New Sneaker Is a Gazelle Gone Skate](https://www.highsnobiety.com/p/adidas-super-gonz-sneaker/)
@@ -1509,6 +1716,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sun, 08 Sep 2024 13:33:00 GMT*
+
+
+## Ariana Grande
+
+## [Willy Chavarria's Debut adidas Sneakers Get Straight to the Point](https://www.highsnobiety.com/p/willy-chavarria-adidas-sneaker-ss25/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 08 Sep 2024 15:20:08 GMT*
 
 
 ## Livvy Dunne
@@ -1574,6 +1790,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Sun, 08 Sep 2024 13:33:00 GMT*
 
 
+## Livvy Dunne
+
+## [Willy Chavarria's Debut adidas Sneakers Get Straight to the Point](https://www.highsnobiety.com/p/willy-chavarria-adidas-sneaker-ss25/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 08 Sep 2024 15:20:08 GMT*
+
+
 ## Ali Wong
 
 ## [adidas' New Sneaker Is a Gazelle Gone Skate](https://www.highsnobiety.com/p/adidas-super-gonz-sneaker/)
@@ -1635,6 +1860,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sun, 08 Sep 2024 13:33:00 GMT*
+
+
+## Ali Wong
+
+## [Willy Chavarria's Debut adidas Sneakers Get Straight to the Point](https://www.highsnobiety.com/p/willy-chavarria-adidas-sneaker-ss25/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 08 Sep 2024 15:20:08 GMT*
 
 
 ## Lizzo
@@ -1700,6 +1934,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Sun, 08 Sep 2024 13:33:00 GMT*
 
 
+## Lizzo
+
+## [Willy Chavarria's Debut adidas Sneakers Get Straight to the Point](https://www.highsnobiety.com/p/willy-chavarria-adidas-sneaker-ss25/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 08 Sep 2024 15:20:08 GMT*
+
+
 ## Alison Brie
 
 ## [adidas' New Sneaker Is a Gazelle Gone Skate](https://www.highsnobiety.com/p/adidas-super-gonz-sneaker/)
@@ -1761,6 +2004,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sun, 08 Sep 2024 13:33:00 GMT*
+
+
+## Alison Brie
+
+## [Willy Chavarria's Debut adidas Sneakers Get Straight to the Point](https://www.highsnobiety.com/p/willy-chavarria-adidas-sneaker-ss25/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 08 Sep 2024 15:20:08 GMT*
 
 
 ## Lil Wayne
@@ -1826,6 +2078,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Sun, 08 Sep 2024 13:33:00 GMT*
 
 
+## Lil Wayne
+
+## [Willy Chavarria's Debut adidas Sneakers Get Straight to the Point](https://www.highsnobiety.com/p/willy-chavarria-adidas-sneaker-ss25/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 08 Sep 2024 15:20:08 GMT*
+
+
 ## Adele
 
 ## [adidas' New Sneaker Is a Gazelle Gone Skate](https://www.highsnobiety.com/p/adidas-super-gonz-sneaker/)
@@ -1887,6 +2148,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sun, 08 Sep 2024 13:33:00 GMT*
+
+
+## Adele
+
+## [Willy Chavarria's Debut adidas Sneakers Get Straight to the Point](https://www.highsnobiety.com/p/willy-chavarria-adidas-sneaker-ss25/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 08 Sep 2024 15:20:08 GMT*
 
 
 ## Lindsay Lohan
@@ -1952,6 +2222,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Sun, 08 Sep 2024 13:33:00 GMT*
 
 
+## Lindsay Lohan
+
+## [Willy Chavarria's Debut adidas Sneakers Get Straight to the Point](https://www.highsnobiety.com/p/willy-chavarria-adidas-sneaker-ss25/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 08 Sep 2024 15:20:08 GMT*
+
+
 ## Addison Rae
 
 ## [adidas' New Sneaker Is a Gazelle Gone Skate](https://www.highsnobiety.com/p/adidas-super-gonz-sneaker/)
@@ -2013,6 +2292,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sun, 08 Sep 2024 13:33:00 GMT*
+
+
+## Addison Rae
+
+## [Willy Chavarria's Debut adidas Sneakers Get Straight to the Point](https://www.highsnobiety.com/p/willy-chavarria-adidas-sneaker-ss25/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 08 Sep 2024 15:20:08 GMT*
 
 
 ## Latto
@@ -2078,6 +2366,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Sun, 08 Sep 2024 13:33:00 GMT*
 
 
+## Latto
+
+## [Willy Chavarria's Debut adidas Sneakers Get Straight to the Point](https://www.highsnobiety.com/p/willy-chavarria-adidas-sneaker-ss25/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 08 Sep 2024 15:20:08 GMT*
+
+
 ## Aaron Paul
 
 ## [adidas' New Sneaker Is a Gazelle Gone Skate](https://www.highsnobiety.com/p/adidas-super-gonz-sneaker/)
@@ -2139,6 +2436,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sun, 08 Sep 2024 13:33:00 GMT*
+
+
+## Aaron Paul
+
+## [Willy Chavarria's Debut adidas Sneakers Get Straight to the Point](https://www.highsnobiety.com/p/willy-chavarria-adidas-sneaker-ss25/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 08 Sep 2024 15:20:08 GMT*
 
 
 ## LeBron James
@@ -2204,6 +2510,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Sun, 08 Sep 2024 13:33:00 GMT*
 
 
+## LeBron James
+
+## [Willy Chavarria's Debut adidas Sneakers Get Straight to the Point](https://www.highsnobiety.com/p/willy-chavarria-adidas-sneaker-ss25/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 08 Sep 2024 15:20:08 GMT*
+
+
 ## 50 Cent
 
 ## [adidas' New Sneaker Is a Gazelle Gone Skate](https://www.highsnobiety.com/p/adidas-super-gonz-sneaker/)
@@ -2265,6 +2580,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sun, 08 Sep 2024 13:33:00 GMT*
+
+
+## 50 Cent
+
+## [Willy Chavarria's Debut adidas Sneakers Get Straight to the Point](https://www.highsnobiety.com/p/willy-chavarria-adidas-sneaker-ss25/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 08 Sep 2024 15:20:08 GMT*
 
 
 ## Kesha
@@ -2330,6 +2654,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Sun, 08 Sep 2024 13:33:00 GMT*
 
 
+## Kesha
+
+## [Willy Chavarria's Debut adidas Sneakers Get Straight to the Point](https://www.highsnobiety.com/p/willy-chavarria-adidas-sneaker-ss25/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 08 Sep 2024 15:20:08 GMT*
+
+
 ## 21 Savage
 
 ## [adidas' New Sneaker Is a Gazelle Gone Skate](https://www.highsnobiety.com/p/adidas-super-gonz-sneaker/)
@@ -2391,6 +2724,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sun, 08 Sep 2024 13:33:00 GMT*
+
+
+## 21 Savage
+
+## [Willy Chavarria's Debut adidas Sneakers Get Straight to the Point](https://www.highsnobiety.com/p/willy-chavarria-adidas-sneaker-ss25/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 08 Sep 2024 15:20:08 GMT*
 
 
 ## Larry David
@@ -2456,6 +2798,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Sun, 08 Sep 2024 13:33:00 GMT*
 
 
+## Larry David
+
+## [Willy Chavarria's Debut adidas Sneakers Get Straight to the Point](https://www.highsnobiety.com/p/willy-chavarria-adidas-sneaker-ss25/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 08 Sep 2024 15:20:08 GMT*
+
+
 ## Seth Rogan
 
 ## [adidas' New Sneaker Is a Gazelle Gone Skate](https://www.highsnobiety.com/p/adidas-super-gonz-sneaker/)
@@ -2517,6 +2868,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sun, 08 Sep 2024 13:33:00 GMT*
+
+
+## Seth Rogan
+
+## [Willy Chavarria's Debut adidas Sneakers Get Straight to the Point](https://www.highsnobiety.com/p/willy-chavarria-adidas-sneaker-ss25/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 08 Sep 2024 15:20:08 GMT*
 
 
 ## Simone Biles
@@ -2582,6 +2942,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Sun, 08 Sep 2024 13:33:00 GMT*
 
 
+## Simone Biles
+
+## [Willy Chavarria's Debut adidas Sneakers Get Straight to the Point](https://www.highsnobiety.com/p/willy-chavarria-adidas-sneaker-ss25/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 08 Sep 2024 15:20:08 GMT*
+
+
 ## Pete Davidson
 
 ## [adidas' New Sneaker Is a Gazelle Gone Skate](https://www.highsnobiety.com/p/adidas-super-gonz-sneaker/)
@@ -2643,6 +3012,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sun, 08 Sep 2024 13:33:00 GMT*
+
+
+## Pete Davidson
+
+## [Willy Chavarria's Debut adidas Sneakers Get Straight to the Point](https://www.highsnobiety.com/p/willy-chavarria-adidas-sneaker-ss25/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 08 Sep 2024 15:20:08 GMT*
 
 
 ## Prince Harry
@@ -2708,6 +3086,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Sun, 08 Sep 2024 13:33:00 GMT*
 
 
+## Prince Harry
+
+## [Willy Chavarria's Debut adidas Sneakers Get Straight to the Point](https://www.highsnobiety.com/p/willy-chavarria-adidas-sneaker-ss25/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 08 Sep 2024 15:20:08 GMT*
+
+
 ## Princess of Wales
 
 ## [adidas' New Sneaker Is a Gazelle Gone Skate](https://www.highsnobiety.com/p/adidas-super-gonz-sneaker/)
@@ -2769,6 +3156,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sun, 08 Sep 2024 13:33:00 GMT*
+
+
+## Princess of Wales
+
+## [Willy Chavarria's Debut adidas Sneakers Get Straight to the Point](https://www.highsnobiety.com/p/willy-chavarria-adidas-sneaker-ss25/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 08 Sep 2024 15:20:08 GMT*
 
 
 ## Rachel McAdams
@@ -2834,6 +3230,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Sun, 08 Sep 2024 13:33:00 GMT*
 
 
+## Rachel McAdams
+
+## [Willy Chavarria's Debut adidas Sneakers Get Straight to the Point](https://www.highsnobiety.com/p/willy-chavarria-adidas-sneaker-ss25/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 08 Sep 2024 15:20:08 GMT*
+
+
 ## Reneé Rapp
 
 ## [adidas' New Sneaker Is a Gazelle Gone Skate](https://www.highsnobiety.com/p/adidas-super-gonz-sneaker/)
@@ -2895,6 +3300,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sun, 08 Sep 2024 13:33:00 GMT*
+
+
+## Reneé Rapp
+
+## [Willy Chavarria's Debut adidas Sneakers Get Straight to the Point](https://www.highsnobiety.com/p/willy-chavarria-adidas-sneaker-ss25/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 08 Sep 2024 15:20:08 GMT*
 
 
 ## Rick Ross
@@ -2960,6 +3374,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Sun, 08 Sep 2024 13:33:00 GMT*
 
 
+## Rick Ross
+
+## [Willy Chavarria's Debut adidas Sneakers Get Straight to the Point](https://www.highsnobiety.com/p/willy-chavarria-adidas-sneaker-ss25/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 08 Sep 2024 15:20:08 GMT*
+
+
 ## Sam Ashgari
 
 ## [adidas' New Sneaker Is a Gazelle Gone Skate](https://www.highsnobiety.com/p/adidas-super-gonz-sneaker/)
@@ -3021,6 +3444,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sun, 08 Sep 2024 13:33:00 GMT*
+
+
+## Sam Ashgari
+
+## [Willy Chavarria's Debut adidas Sneakers Get Straight to the Point](https://www.highsnobiety.com/p/willy-chavarria-adidas-sneaker-ss25/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 08 Sep 2024 15:20:08 GMT*
 
 
 ## Sandra Oh
@@ -3086,6 +3518,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Sun, 08 Sep 2024 13:33:00 GMT*
 
 
+## Sandra Oh
+
+## [Willy Chavarria's Debut adidas Sneakers Get Straight to the Point](https://www.highsnobiety.com/p/willy-chavarria-adidas-sneaker-ss25/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 08 Sep 2024 15:20:08 GMT*
+
+
 ## Donald Trump
 
 ## [adidas' New Sneaker Is a Gazelle Gone Skate](https://www.highsnobiety.com/p/adidas-super-gonz-sneaker/)
@@ -3147,6 +3588,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sun, 08 Sep 2024 13:33:00 GMT*
+
+
+## Donald Trump
+
+## [Willy Chavarria's Debut adidas Sneakers Get Straight to the Point](https://www.highsnobiety.com/p/willy-chavarria-adidas-sneaker-ss25/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 08 Sep 2024 15:20:08 GMT*
 
 
 ## Diddy
@@ -3212,6 +3662,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Sun, 08 Sep 2024 13:33:00 GMT*
 
 
+## Diddy
+
+## [Willy Chavarria's Debut adidas Sneakers Get Straight to the Point](https://www.highsnobiety.com/p/willy-chavarria-adidas-sneaker-ss25/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 08 Sep 2024 15:20:08 GMT*
+
+
 ## City Girls
 
 ## [adidas' New Sneaker Is a Gazelle Gone Skate](https://www.highsnobiety.com/p/adidas-super-gonz-sneaker/)
@@ -3273,6 +3732,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sun, 08 Sep 2024 13:33:00 GMT*
+
+
+## City Girls
+
+## [Willy Chavarria's Debut adidas Sneakers Get Straight to the Point](https://www.highsnobiety.com/p/willy-chavarria-adidas-sneaker-ss25/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 08 Sep 2024 15:20:08 GMT*
 
 
 ## Chloe Bailey
@@ -3338,6 +3806,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Sun, 08 Sep 2024 13:33:00 GMT*
 
 
+## Chloe Bailey
+
+## [Willy Chavarria's Debut adidas Sneakers Get Straight to the Point](https://www.highsnobiety.com/p/willy-chavarria-adidas-sneaker-ss25/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 08 Sep 2024 15:20:08 GMT*
+
+
 ## Charli D Amelio
 
 ## [adidas' New Sneaker Is a Gazelle Gone Skate](https://www.highsnobiety.com/p/adidas-super-gonz-sneaker/)
@@ -3399,6 +3876,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sun, 08 Sep 2024 13:33:00 GMT*
+
+
+## Charli D Amelio
+
+## [Willy Chavarria's Debut adidas Sneakers Get Straight to the Point](https://www.highsnobiety.com/p/willy-chavarria-adidas-sneaker-ss25/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 08 Sep 2024 15:20:08 GMT*
 
 
 ## Cardi B
@@ -3464,6 +3950,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Sun, 08 Sep 2024 13:33:00 GMT*
 
 
+## Cardi B
+
+## [Willy Chavarria's Debut adidas Sneakers Get Straight to the Point](https://www.highsnobiety.com/p/willy-chavarria-adidas-sneaker-ss25/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 08 Sep 2024 15:20:08 GMT*
+
+
 ## Bryan Cranston
 
 ## [adidas' New Sneaker Is a Gazelle Gone Skate](https://www.highsnobiety.com/p/adidas-super-gonz-sneaker/)
@@ -3525,6 +4020,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sun, 08 Sep 2024 13:33:00 GMT*
+
+
+## Bryan Cranston
+
+## [Willy Chavarria's Debut adidas Sneakers Get Straight to the Point](https://www.highsnobiety.com/p/willy-chavarria-adidas-sneaker-ss25/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 08 Sep 2024 15:20:08 GMT*
 
 
 ## Brielle Biermann
@@ -3590,6 +4094,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Sun, 08 Sep 2024 13:33:00 GMT*
 
 
+## Brielle Biermann
+
+## [Willy Chavarria's Debut adidas Sneakers Get Straight to the Point](https://www.highsnobiety.com/p/willy-chavarria-adidas-sneaker-ss25/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 08 Sep 2024 15:20:08 GMT*
+
+
 ## Dua Lipa
 
 ## [adidas' New Sneaker Is a Gazelle Gone Skate](https://www.highsnobiety.com/p/adidas-super-gonz-sneaker/)
@@ -3651,6 +4164,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sun, 08 Sep 2024 13:33:00 GMT*
+
+
+## Dua Lipa
+
+## [Willy Chavarria's Debut adidas Sneakers Get Straight to the Point](https://www.highsnobiety.com/p/willy-chavarria-adidas-sneaker-ss25/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 08 Sep 2024 15:20:08 GMT*
 
 
 ## Drake
@@ -3716,6 +4238,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Sun, 08 Sep 2024 13:33:00 GMT*
 
 
+## Drake
+
+## [Willy Chavarria's Debut adidas Sneakers Get Straight to the Point](https://www.highsnobiety.com/p/willy-chavarria-adidas-sneaker-ss25/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 08 Sep 2024 15:20:08 GMT*
+
+
 ## Jenner
 
 ## [adidas' New Sneaker Is a Gazelle Gone Skate](https://www.highsnobiety.com/p/adidas-super-gonz-sneaker/)
@@ -3777,6 +4308,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sun, 08 Sep 2024 13:33:00 GMT*
+
+
+## Jenner
+
+## [Willy Chavarria's Debut adidas Sneakers Get Straight to the Point](https://www.highsnobiety.com/p/willy-chavarria-adidas-sneaker-ss25/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 08 Sep 2024 15:20:08 GMT*
 
 
 ## J. Cole
@@ -3842,6 +4382,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Sun, 08 Sep 2024 13:33:00 GMT*
 
 
+## J. Cole
+
+## [Willy Chavarria's Debut adidas Sneakers Get Straight to the Point](https://www.highsnobiety.com/p/willy-chavarria-adidas-sneaker-ss25/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 08 Sep 2024 15:20:08 GMT*
+
+
 ## Jerrod Carmichael
 
 ## [adidas' New Sneaker Is a Gazelle Gone Skate](https://www.highsnobiety.com/p/adidas-super-gonz-sneaker/)
@@ -3903,6 +4452,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sun, 08 Sep 2024 13:33:00 GMT*
+
+
+## Jerrod Carmichael
+
+## [Willy Chavarria's Debut adidas Sneakers Get Straight to the Point](https://www.highsnobiety.com/p/willy-chavarria-adidas-sneaker-ss25/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 08 Sep 2024 15:20:08 GMT*
 
 
 ## Jennifer Lawrence
@@ -3968,6 +4526,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Sun, 08 Sep 2024 13:33:00 GMT*
 
 
+## Jennifer Lawrence
+
+## [Willy Chavarria's Debut adidas Sneakers Get Straight to the Point](https://www.highsnobiety.com/p/willy-chavarria-adidas-sneaker-ss25/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 08 Sep 2024 15:20:08 GMT*
+
+
 ## Joe Biden
 
 ## [adidas' New Sneaker Is a Gazelle Gone Skate](https://www.highsnobiety.com/p/adidas-super-gonz-sneaker/)
@@ -4029,6 +4596,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sun, 08 Sep 2024 13:33:00 GMT*
+
+
+## Joe Biden
+
+## [Willy Chavarria's Debut adidas Sneakers Get Straight to the Point](https://www.highsnobiety.com/p/willy-chavarria-adidas-sneaker-ss25/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 08 Sep 2024 15:20:08 GMT*
 
 
 ## J.K. Simmons
@@ -4094,6 +4670,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Sun, 08 Sep 2024 13:33:00 GMT*
 
 
+## J.K. Simmons
+
+## [Willy Chavarria's Debut adidas Sneakers Get Straight to the Point](https://www.highsnobiety.com/p/willy-chavarria-adidas-sneaker-ss25/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 08 Sep 2024 15:20:08 GMT*
+
+
 ## Kamala Harris
 
 ## [adidas' New Sneaker Is a Gazelle Gone Skate](https://www.highsnobiety.com/p/adidas-super-gonz-sneaker/)
@@ -4155,6 +4740,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sun, 08 Sep 2024 13:33:00 GMT*
+
+
+## Kamala Harris
+
+## [Willy Chavarria's Debut adidas Sneakers Get Straight to the Point](https://www.highsnobiety.com/p/willy-chavarria-adidas-sneaker-ss25/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 08 Sep 2024 15:20:08 GMT*
 
 
 ## John C Reilly
@@ -4220,6 +4814,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Sun, 08 Sep 2024 13:33:00 GMT*
 
 
+## John C Reilly
+
+## [Willy Chavarria's Debut adidas Sneakers Get Straight to the Point](https://www.highsnobiety.com/p/willy-chavarria-adidas-sneaker-ss25/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 08 Sep 2024 15:20:08 GMT*
+
+
 ## Kardashian
 
 ## [adidas' New Sneaker Is a Gazelle Gone Skate](https://www.highsnobiety.com/p/adidas-super-gonz-sneaker/)
@@ -4281,6 +4884,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sun, 08 Sep 2024 13:33:00 GMT*
+
+
+## Kardashian
+
+## [Willy Chavarria's Debut adidas Sneakers Get Straight to the Point](https://www.highsnobiety.com/p/willy-chavarria-adidas-sneaker-ss25/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 08 Sep 2024 15:20:08 GMT*
 
 
 ## Kanye
@@ -4346,6 +4958,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Sun, 08 Sep 2024 13:33:00 GMT*
 
 
+## Kanye
+
+## [Willy Chavarria's Debut adidas Sneakers Get Straight to the Point](https://www.highsnobiety.com/p/willy-chavarria-adidas-sneaker-ss25/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 08 Sep 2024 15:20:08 GMT*
+
+
 ## Zendaya
 
 ## [adidas' New Sneaker Is a Gazelle Gone Skate](https://www.highsnobiety.com/p/adidas-super-gonz-sneaker/)
@@ -4407,6 +5028,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sun, 08 Sep 2024 13:33:00 GMT*
+
+
+## Zendaya
+
+## [Willy Chavarria's Debut adidas Sneakers Get Straight to the Point](https://www.highsnobiety.com/p/willy-chavarria-adidas-sneaker-ss25/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 08 Sep 2024 15:20:08 GMT*
 
 
 ## Will Ferrell
@@ -4472,6 +5102,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Sun, 08 Sep 2024 13:33:00 GMT*
 
 
+## Will Ferrell
+
+## [Willy Chavarria's Debut adidas Sneakers Get Straight to the Point](https://www.highsnobiety.com/p/willy-chavarria-adidas-sneaker-ss25/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 08 Sep 2024 15:20:08 GMT*
+
+
 ## Zazie Beetz
 
 ## [adidas' New Sneaker Is a Gazelle Gone Skate](https://www.highsnobiety.com/p/adidas-super-gonz-sneaker/)
@@ -4533,6 +5172,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sun, 08 Sep 2024 13:33:00 GMT*
+
+
+## Zazie Beetz
+
+## [Willy Chavarria's Debut adidas Sneakers Get Straight to the Point](https://www.highsnobiety.com/p/willy-chavarria-adidas-sneaker-ss25/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 08 Sep 2024 15:20:08 GMT*
 
 
 ## Bob Odenkirk
@@ -4598,6 +5246,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Sun, 08 Sep 2024 13:33:00 GMT*
 
 
+## Bob Odenkirk
+
+## [Willy Chavarria's Debut adidas Sneakers Get Straight to the Point](https://www.highsnobiety.com/p/willy-chavarria-adidas-sneaker-ss25/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 08 Sep 2024 15:20:08 GMT*
+
+
 ## Brad Pitt
 
 ## [adidas' New Sneaker Is a Gazelle Gone Skate](https://www.highsnobiety.com/p/adidas-super-gonz-sneaker/)
@@ -4659,6 +5316,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sun, 08 Sep 2024 13:33:00 GMT*
+
+
+## Brad Pitt
+
+## [Willy Chavarria's Debut adidas Sneakers Get Straight to the Point](https://www.highsnobiety.com/p/willy-chavarria-adidas-sneaker-ss25/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 08 Sep 2024 15:20:08 GMT*
 
 
 ## Beyoncé
@@ -4724,6 +5390,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Sun, 08 Sep 2024 13:33:00 GMT*
 
 
+## Beyoncé
+
+## [Willy Chavarria's Debut adidas Sneakers Get Straight to the Point](https://www.highsnobiety.com/p/willy-chavarria-adidas-sneaker-ss25/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 08 Sep 2024 15:20:08 GMT*
+
+
 ## Bia
 
 ## [adidas' New Sneaker Is a Gazelle Gone Skate](https://www.highsnobiety.com/p/adidas-super-gonz-sneaker/)
@@ -4785,6 +5460,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sun, 08 Sep 2024 13:33:00 GMT*
+
+
+## Bia
+
+## [Willy Chavarria's Debut adidas Sneakers Get Straight to the Point](https://www.highsnobiety.com/p/willy-chavarria-adidas-sneaker-ss25/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 08 Sep 2024 15:20:08 GMT*
 
 
 ## Avantika
@@ -4850,6 +5534,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Sun, 08 Sep 2024 13:33:00 GMT*
 
 
+## Avantika
+
+## [Willy Chavarria's Debut adidas Sneakers Get Straight to the Point](https://www.highsnobiety.com/p/willy-chavarria-adidas-sneaker-ss25/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 08 Sep 2024 15:20:08 GMT*
+
+
 ## Bernie Sanders
 
 ## [adidas' New Sneaker Is a Gazelle Gone Skate](https://www.highsnobiety.com/p/adidas-super-gonz-sneaker/)
@@ -4911,6 +5604,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sun, 08 Sep 2024 13:33:00 GMT*
+
+
+## Bernie Sanders
+
+## [Willy Chavarria's Debut adidas Sneakers Get Straight to the Point](https://www.highsnobiety.com/p/willy-chavarria-adidas-sneaker-ss25/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 08 Sep 2024 15:20:08 GMT*
 
 
 ## Big Sean
@@ -4976,6 +5678,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Sun, 08 Sep 2024 13:33:00 GMT*
 
 
+## Big Sean
+
+## [Willy Chavarria's Debut adidas Sneakers Get Straight to the Point](https://www.highsnobiety.com/p/willy-chavarria-adidas-sneaker-ss25/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 08 Sep 2024 15:20:08 GMT*
+
+
 ## BlockBoy JB
 
 ## [adidas' New Sneaker Is a Gazelle Gone Skate](https://www.highsnobiety.com/p/adidas-super-gonz-sneaker/)
@@ -5037,6 +5748,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sun, 08 Sep 2024 13:33:00 GMT*
+
+
+## BlockBoy JB
+
+## [Willy Chavarria's Debut adidas Sneakers Get Straight to the Point](https://www.highsnobiety.com/p/willy-chavarria-adidas-sneaker-ss25/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 08 Sep 2024 15:20:08 GMT*
 
 
 ## Biden
@@ -5102,6 +5822,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Sun, 08 Sep 2024 13:33:00 GMT*
 
 
+## Biden
+
+## [Willy Chavarria's Debut adidas Sneakers Get Straight to the Point](https://www.highsnobiety.com/p/willy-chavarria-adidas-sneaker-ss25/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 08 Sep 2024 15:20:08 GMT*
+
+
 ## Bieber
 
 ## [adidas' New Sneaker Is a Gazelle Gone Skate](https://www.highsnobiety.com/p/adidas-super-gonz-sneaker/)
@@ -5163,6 +5892,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sun, 08 Sep 2024 13:33:00 GMT*
+
+
+## Bieber
+
+## [Willy Chavarria's Debut adidas Sneakers Get Straight to the Point](https://www.highsnobiety.com/p/willy-chavarria-adidas-sneaker-ss25/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 08 Sep 2024 15:20:08 GMT*
 
 
 ## Paulina Porizkov
@@ -5228,6 +5966,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Sun, 08 Sep 2024 13:33:00 GMT*
 
 
+## Paulina Porizkov
+
+## [Willy Chavarria's Debut adidas Sneakers Get Straight to the Point](https://www.highsnobiety.com/p/willy-chavarria-adidas-sneaker-ss25/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 08 Sep 2024 15:20:08 GMT*
+
+
 ## Paris Hilton
 
 ## [adidas' New Sneaker Is a Gazelle Gone Skate](https://www.highsnobiety.com/p/adidas-super-gonz-sneaker/)
@@ -5289,6 +6036,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sun, 08 Sep 2024 13:33:00 GMT*
+
+
+## Paris Hilton
+
+## [Willy Chavarria's Debut adidas Sneakers Get Straight to the Point](https://www.highsnobiety.com/p/willy-chavarria-adidas-sneaker-ss25/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 08 Sep 2024 15:20:08 GMT*
 
 
 ## Metro Boomin
@@ -5354,6 +6110,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Sun, 08 Sep 2024 13:33:00 GMT*
 
 
+## Metro Boomin
+
+## [Willy Chavarria's Debut adidas Sneakers Get Straight to the Point](https://www.highsnobiety.com/p/willy-chavarria-adidas-sneaker-ss25/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 08 Sep 2024 15:20:08 GMT*
+
+
 ## Meghan Markle
 
 ## [adidas' New Sneaker Is a Gazelle Gone Skate](https://www.highsnobiety.com/p/adidas-super-gonz-sneaker/)
@@ -5415,6 +6180,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sun, 08 Sep 2024 13:33:00 GMT*
+
+
+## Meghan Markle
+
+## [Willy Chavarria's Debut adidas Sneakers Get Straight to the Point](https://www.highsnobiety.com/p/willy-chavarria-adidas-sneaker-ss25/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 08 Sep 2024 15:20:08 GMT*
 
 
 ## Megan Thee Stallion
@@ -5480,6 +6254,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Sun, 08 Sep 2024 13:33:00 GMT*
 
 
+## Megan Thee Stallion
+
+## [Willy Chavarria's Debut adidas Sneakers Get Straight to the Point](https://www.highsnobiety.com/p/willy-chavarria-adidas-sneaker-ss25/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 08 Sep 2024 15:20:08 GMT*
+
+
 ## Maya Rudolph
 
 ## [adidas' New Sneaker Is a Gazelle Gone Skate](https://www.highsnobiety.com/p/adidas-super-gonz-sneaker/)
@@ -5543,6 +6326,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Sun, 08 Sep 2024 13:33:00 GMT*
 
 
+## Maya Rudolph
+
+## [Willy Chavarria's Debut adidas Sneakers Get Straight to the Point](https://www.highsnobiety.com/p/willy-chavarria-adidas-sneaker-ss25/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 08 Sep 2024 15:20:08 GMT*
+
+
 ## Olivia Rodrigo
 
 ## [adidas' New Sneaker Is a Gazelle Gone Skate](https://www.highsnobiety.com/p/adidas-super-gonz-sneaker/)
@@ -5606,6 +6398,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Sun, 08 Sep 2024 13:33:00 GMT*
 
 
+## Olivia Rodrigo
+
+## [Willy Chavarria's Debut adidas Sneakers Get Straight to the Point](https://www.highsnobiety.com/p/willy-chavarria-adidas-sneaker-ss25/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 08 Sep 2024 15:20:08 GMT*
+
+
 ## Obama
 
 ## [adidas' New Sneaker Is a Gazelle Gone Skate](https://www.highsnobiety.com/p/adidas-super-gonz-sneaker/)
@@ -5669,6 +6470,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Sun, 08 Sep 2024 13:33:00 GMT*
 
 
+## Obama
+
+## [Willy Chavarria's Debut adidas Sneakers Get Straight to the Point](https://www.highsnobiety.com/p/willy-chavarria-adidas-sneaker-ss25/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 08 Sep 2024 15:20:08 GMT*
+
+
 ## Nicki Minaj
 
 ## [adidas' New Sneaker Is a Gazelle Gone Skate](https://www.highsnobiety.com/p/adidas-super-gonz-sneaker/)
@@ -5732,6 +6542,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Sun, 08 Sep 2024 13:33:00 GMT*
 
 
+## Nicki Minaj
+
+## [Willy Chavarria's Debut adidas Sneakers Get Straight to the Point](https://www.highsnobiety.com/p/willy-chavarria-adidas-sneaker-ss25/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 08 Sep 2024 15:20:08 GMT*
+
+
 ## MrBeast
 
 ## [adidas' New Sneaker Is a Gazelle Gone Skate](https://www.highsnobiety.com/p/adidas-super-gonz-sneaker/)
@@ -5793,5 +6612,14 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sun, 08 Sep 2024 13:33:00 GMT*
+
+
+## MrBeast
+
+## [Willy Chavarria's Debut adidas Sneakers Get Straight to the Point](https://www.highsnobiety.com/p/willy-chavarria-adidas-sneaker-ss25/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 08 Sep 2024 15:20:08 GMT*
 
 
