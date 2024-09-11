@@ -64,7 +64,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Tim Cook
 
-## [Dior's Sneaker Magician Is Taking His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
+## [Dior's Footwear Magician Takes His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -172,7 +172,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Taylor Swift
 
-## [Dior's Sneaker Magician Is Taking His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
+## [Dior's Footwear Magician Takes His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -280,7 +280,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Tom Brady
 
-## [Dior's Sneaker Magician Is Taking His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
+## [Dior's Footwear Magician Takes His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -388,7 +388,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Tina Fey
 
-## [Dior's Sneaker Magician Is Taking His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
+## [Dior's Footwear Magician Takes His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -496,7 +496,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Steven Yuen
 
-## [Dior's Sneaker Magician Is Taking His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
+## [Dior's Footwear Magician Takes His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -604,7 +604,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Sommer Ray
 
-## [Dior's Sneaker Magician Is Taking His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
+## [Dior's Footwear Magician Takes His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -712,7 +712,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Sza
 
-## [Dior's Sneaker Magician Is Taking His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
+## [Dior's Footwear Magician Takes His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -820,7 +820,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Sydney Sweeney
 
-## [Dior's Sneaker Magician Is Taking His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
+## [Dior's Footwear Magician Takes His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -928,7 +928,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Walton Goggins
 
-## [Dior's Sneaker Magician Is Taking His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
+## [Dior's Footwear Magician Takes His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -1036,7 +1036,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Tom Holland
 
-## [Dior's Sneaker Magician Is Taking His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
+## [Dior's Footwear Magician Takes His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -1144,7 +1144,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Gucci Mane
 
-## [Dior's Sneaker Magician Is Taking His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
+## [Dior's Footwear Magician Takes His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -1252,7 +1252,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Harry Styles
 
-## [Dior's Sneaker Magician Is Taking His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
+## [Dior's Footwear Magician Takes His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -1360,7 +1360,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Jake Paul
 
-## [Dior's Sneaker Magician Is Taking His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
+## [Dior's Footwear Magician Takes His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -1468,7 +1468,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Jameela Jamil
 
-## [Dior's Sneaker Magician Is Taking His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
+## [Dior's Footwear Magician Takes His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -1576,7 +1576,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Elon Musk
 
-## [Dior's Sneaker Magician Is Taking His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
+## [Dior's Footwear Magician Takes His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -1684,7 +1684,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Gabrielle Union
 
-## [Dior's Sneaker Magician Is Taking His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
+## [Dior's Footwear Magician Takes His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -1792,7 +1792,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Giancarlo Esposito
 
-## [Dior's Sneaker Magician Is Taking His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
+## [Dior's Footwear Magician Takes His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -1900,7 +1900,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Gillian Jacobs
 
-## [Dior's Sneaker Magician Is Taking His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
+## [Dior's Footwear Magician Takes His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -2008,7 +2008,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Jason Mantzoukas
 
-## [Dior's Sneaker Magician Is Taking His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
+## [Dior's Footwear Magician Takes His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -2116,7 +2116,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## JB Smoove
 
-## [Dior's Sneaker Magician Is Taking His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
+## [Dior's Footwear Magician Takes His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -2224,7 +2224,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Madison Pettis
 
-## [Dior's Sneaker Magician Is Taking His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
+## [Dior's Footwear Magician Takes His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -2332,7 +2332,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Austin Butler
 
-## [Dior's Sneaker Magician Is Taking His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
+## [Dior's Footwear Magician Takes His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -2440,7 +2440,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Mark Zuckerberg
 
-## [Dior's Sneaker Magician Is Taking His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
+## [Dior's Footwear Magician Takes His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -2548,7 +2548,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Ariana Grande
 
-## [Dior's Sneaker Magician Is Taking His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
+## [Dior's Footwear Magician Takes His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -2656,7 +2656,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Livvy Dunne
 
-## [Dior's Sneaker Magician Is Taking His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
+## [Dior's Footwear Magician Takes His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -2764,7 +2764,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Ali Wong
 
-## [Dior's Sneaker Magician Is Taking His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
+## [Dior's Footwear Magician Takes His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -2872,7 +2872,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Lizzo
 
-## [Dior's Sneaker Magician Is Taking His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
+## [Dior's Footwear Magician Takes His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -2980,7 +2980,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Alison Brie
 
-## [Dior's Sneaker Magician Is Taking His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
+## [Dior's Footwear Magician Takes His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -3088,7 +3088,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Lil Wayne
 
-## [Dior's Sneaker Magician Is Taking His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
+## [Dior's Footwear Magician Takes His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -3196,7 +3196,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Adele
 
-## [Dior's Sneaker Magician Is Taking His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
+## [Dior's Footwear Magician Takes His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -3304,7 +3304,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Lindsay Lohan
 
-## [Dior's Sneaker Magician Is Taking His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
+## [Dior's Footwear Magician Takes His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -3412,7 +3412,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Addison Rae
 
-## [Dior's Sneaker Magician Is Taking His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
+## [Dior's Footwear Magician Takes His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -3520,7 +3520,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Latto
 
-## [Dior's Sneaker Magician Is Taking His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
+## [Dior's Footwear Magician Takes His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -3628,7 +3628,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Aaron Paul
 
-## [Dior's Sneaker Magician Is Taking His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
+## [Dior's Footwear Magician Takes His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -3736,7 +3736,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## LeBron James
 
-## [Dior's Sneaker Magician Is Taking His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
+## [Dior's Footwear Magician Takes His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -3844,7 +3844,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## 50 Cent
 
-## [Dior's Sneaker Magician Is Taking His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
+## [Dior's Footwear Magician Takes His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -3952,7 +3952,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Kesha
 
-## [Dior's Sneaker Magician Is Taking His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
+## [Dior's Footwear Magician Takes His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -4060,7 +4060,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## 21 Savage
 
-## [Dior's Sneaker Magician Is Taking His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
+## [Dior's Footwear Magician Takes His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -4168,7 +4168,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Larry David
 
-## [Dior's Sneaker Magician Is Taking His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
+## [Dior's Footwear Magician Takes His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -4276,7 +4276,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Seth Rogan
 
-## [Dior's Sneaker Magician Is Taking His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
+## [Dior's Footwear Magician Takes His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -4384,7 +4384,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Simone Biles
 
-## [Dior's Sneaker Magician Is Taking His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
+## [Dior's Footwear Magician Takes His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -4492,7 +4492,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Pete Davidson
 
-## [Dior's Sneaker Magician Is Taking His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
+## [Dior's Footwear Magician Takes His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -4600,7 +4600,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Prince Harry
 
-## [Dior's Sneaker Magician Is Taking His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
+## [Dior's Footwear Magician Takes His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -4708,7 +4708,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Princess of Wales
 
-## [Dior's Sneaker Magician Is Taking His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
+## [Dior's Footwear Magician Takes His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -4816,7 +4816,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Rachel McAdams
 
-## [Dior's Sneaker Magician Is Taking His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
+## [Dior's Footwear Magician Takes His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -4924,7 +4924,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Reneé Rapp
 
-## [Dior's Sneaker Magician Is Taking His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
+## [Dior's Footwear Magician Takes His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -5032,7 +5032,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Rick Ross
 
-## [Dior's Sneaker Magician Is Taking His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
+## [Dior's Footwear Magician Takes His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -5140,7 +5140,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Sam Ashgari
 
-## [Dior's Sneaker Magician Is Taking His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
+## [Dior's Footwear Magician Takes His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -5248,7 +5248,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Sandra Oh
 
-## [Dior's Sneaker Magician Is Taking His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
+## [Dior's Footwear Magician Takes His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -5356,7 +5356,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Donald Trump
 
-## [Dior's Sneaker Magician Is Taking His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
+## [Dior's Footwear Magician Takes His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -5464,7 +5464,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Diddy
 
-## [Dior's Sneaker Magician Is Taking His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
+## [Dior's Footwear Magician Takes His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -5572,7 +5572,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## City Girls
 
-## [Dior's Sneaker Magician Is Taking His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
+## [Dior's Footwear Magician Takes His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -5680,7 +5680,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Chloe Bailey
 
-## [Dior's Sneaker Magician Is Taking His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
+## [Dior's Footwear Magician Takes His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -5788,7 +5788,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Charli D Amelio
 
-## [Dior's Sneaker Magician Is Taking His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
+## [Dior's Footwear Magician Takes His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -5896,7 +5896,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Cardi B
 
-## [Dior's Sneaker Magician Is Taking His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
+## [Dior's Footwear Magician Takes His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -6004,7 +6004,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Bryan Cranston
 
-## [Dior's Sneaker Magician Is Taking His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
+## [Dior's Footwear Magician Takes His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -6112,7 +6112,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Brielle Biermann
 
-## [Dior's Sneaker Magician Is Taking His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
+## [Dior's Footwear Magician Takes His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -6220,7 +6220,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Dua Lipa
 
-## [Dior's Sneaker Magician Is Taking His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
+## [Dior's Footwear Magician Takes His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -6328,7 +6328,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Drake
 
-## [Dior's Sneaker Magician Is Taking His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
+## [Dior's Footwear Magician Takes His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -6436,7 +6436,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Jenner
 
-## [Dior's Sneaker Magician Is Taking His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
+## [Dior's Footwear Magician Takes His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -6544,7 +6544,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## J. Cole
 
-## [Dior's Sneaker Magician Is Taking His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
+## [Dior's Footwear Magician Takes His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -6652,7 +6652,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Jerrod Carmichael
 
-## [Dior's Sneaker Magician Is Taking His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
+## [Dior's Footwear Magician Takes His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -6760,7 +6760,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Jennifer Lawrence
 
-## [Dior's Sneaker Magician Is Taking His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
+## [Dior's Footwear Magician Takes His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -6868,7 +6868,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Joe Biden
 
-## [Dior's Sneaker Magician Is Taking His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
+## [Dior's Footwear Magician Takes His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -6976,7 +6976,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## J.K. Simmons
 
-## [Dior's Sneaker Magician Is Taking His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
+## [Dior's Footwear Magician Takes His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -7084,7 +7084,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Kamala Harris
 
-## [Dior's Sneaker Magician Is Taking His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
+## [Dior's Footwear Magician Takes His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -7192,7 +7192,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## John C Reilly
 
-## [Dior's Sneaker Magician Is Taking His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
+## [Dior's Footwear Magician Takes His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -7300,7 +7300,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Kardashian
 
-## [Dior's Sneaker Magician Is Taking His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
+## [Dior's Footwear Magician Takes His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -7408,7 +7408,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Kanye
 
-## [Dior's Sneaker Magician Is Taking His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
+## [Dior's Footwear Magician Takes His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -7516,7 +7516,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Zendaya
 
-## [Dior's Sneaker Magician Is Taking His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
+## [Dior's Footwear Magician Takes His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -7624,7 +7624,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Will Ferrell
 
-## [Dior's Sneaker Magician Is Taking His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
+## [Dior's Footwear Magician Takes His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -7732,7 +7732,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Zazie Beetz
 
-## [Dior's Sneaker Magician Is Taking His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
+## [Dior's Footwear Magician Takes His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -7840,7 +7840,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Bob Odenkirk
 
-## [Dior's Sneaker Magician Is Taking His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
+## [Dior's Footwear Magician Takes His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -7948,7 +7948,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Brad Pitt
 
-## [Dior's Sneaker Magician Is Taking His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
+## [Dior's Footwear Magician Takes His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -8056,7 +8056,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Beyoncé
 
-## [Dior's Sneaker Magician Is Taking His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
+## [Dior's Footwear Magician Takes His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -8164,7 +8164,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Bia
 
-## [Dior's Sneaker Magician Is Taking His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
+## [Dior's Footwear Magician Takes His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -8272,7 +8272,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Avantika
 
-## [Dior's Sneaker Magician Is Taking His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
+## [Dior's Footwear Magician Takes His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -8380,7 +8380,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Bernie Sanders
 
-## [Dior's Sneaker Magician Is Taking His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
+## [Dior's Footwear Magician Takes His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -8488,7 +8488,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Big Sean
 
-## [Dior's Sneaker Magician Is Taking His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
+## [Dior's Footwear Magician Takes His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -8596,7 +8596,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## BlockBoy JB
 
-## [Dior's Sneaker Magician Is Taking His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
+## [Dior's Footwear Magician Takes His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -8704,7 +8704,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Biden
 
-## [Dior's Sneaker Magician Is Taking His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
+## [Dior's Footwear Magician Takes His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -8812,7 +8812,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Bieber
 
-## [Dior's Sneaker Magician Is Taking His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
+## [Dior's Footwear Magician Takes His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -8920,7 +8920,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Paulina Porizkov
 
-## [Dior's Sneaker Magician Is Taking His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
+## [Dior's Footwear Magician Takes His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -9028,7 +9028,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Paris Hilton
 
-## [Dior's Sneaker Magician Is Taking His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
+## [Dior's Footwear Magician Takes His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -9136,7 +9136,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Metro Boomin
 
-## [Dior's Sneaker Magician Is Taking His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
+## [Dior's Footwear Magician Takes His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -9244,7 +9244,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Meghan Markle
 
-## [Dior's Sneaker Magician Is Taking His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
+## [Dior's Footwear Magician Takes His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -9352,7 +9352,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Megan Thee Stallion
 
-## [Dior's Sneaker Magician Is Taking His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
+## [Dior's Footwear Magician Takes His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -9460,7 +9460,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Maya Rudolph
 
-## [Dior's Sneaker Magician Is Taking His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
+## [Dior's Footwear Magician Takes His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -9568,7 +9568,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Olivia Rodrigo
 
-## [Dior's Sneaker Magician Is Taking His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
+## [Dior's Footwear Magician Takes His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -9676,7 +9676,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Obama
 
-## [Dior's Sneaker Magician Is Taking His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
+## [Dior's Footwear Magician Takes His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -9784,7 +9784,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Nicki Minaj
 
-## [Dior's Sneaker Magician Is Taking His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
+## [Dior's Footwear Magician Takes His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
@@ -9892,7 +9892,7 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## MrBeast
 
-## [Dior's Sneaker Magician Is Taking His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
+## [Dior's Footwear Magician Takes His Talents to Pharrell's Louis Vuitton (EXCLUSIVE)](https://www.highsnobiety.com/p/thibo-denis-louis-vuitton/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
