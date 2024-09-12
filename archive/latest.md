@@ -1,24 +1,6 @@
 # Latest Stories
 ## Tim Cook
 
-## [The Stefano Pilati-ssance Is Just Beginning](https://www.highsnobiety.com/p/stefano-pilati-comeback/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 08:45:03 GMT*
-
-
-## Tim Cook
-
-## [Kith's Next New Balance Sneaker Is an Admirably Suave Dad Shoe](https://www.highsnobiety.com/p/kith-new-balance-990v4-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 09:24:22 GMT*
-
-
-## Tim Cook
-
 ## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -86,29 +68,11 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 ## Tim Cook
 
-## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+## [All Other Animal Prints Are Extinct: Cowhide Is Now the Moo(d)](https://www.highsnobiety.com/p/cow-print-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 08:40:00 GMT*
-
-
-## Taylor Swift
-
-## [The Stefano Pilati-ssance Is Just Beginning](https://www.highsnobiety.com/p/stefano-pilati-comeback/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 08:45:03 GMT*
-
-
-## Taylor Swift
-
-## [Kith's Next New Balance Sneaker Is an Admirably Suave Dad Shoe](https://www.highsnobiety.com/p/kith-new-balance-990v4-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 09:24:22 GMT*
+*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
 
 
 ## Taylor Swift
@@ -180,29 +144,11 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 ## Taylor Swift
 
-## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+## [All Other Animal Prints Are Extinct: Cowhide Is Now the Moo(d)](https://www.highsnobiety.com/p/cow-print-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 08:40:00 GMT*
-
-
-## Tom Brady
-
-## [The Stefano Pilati-ssance Is Just Beginning](https://www.highsnobiety.com/p/stefano-pilati-comeback/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 08:45:03 GMT*
-
-
-## Tom Brady
-
-## [Kith's Next New Balance Sneaker Is an Admirably Suave Dad Shoe](https://www.highsnobiety.com/p/kith-new-balance-990v4-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 09:24:22 GMT*
+*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
 
 
 ## Tom Brady
@@ -274,29 +220,11 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 ## Tom Brady
 
-## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+## [All Other Animal Prints Are Extinct: Cowhide Is Now the Moo(d)](https://www.highsnobiety.com/p/cow-print-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 08:40:00 GMT*
-
-
-## Tina Fey
-
-## [The Stefano Pilati-ssance Is Just Beginning](https://www.highsnobiety.com/p/stefano-pilati-comeback/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 08:45:03 GMT*
-
-
-## Tina Fey
-
-## [Kith's Next New Balance Sneaker Is an Admirably Suave Dad Shoe](https://www.highsnobiety.com/p/kith-new-balance-990v4-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 09:24:22 GMT*
+*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
 
 
 ## Tina Fey
@@ -368,29 +296,11 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 ## Tina Fey
 
-## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+## [All Other Animal Prints Are Extinct: Cowhide Is Now the Moo(d)](https://www.highsnobiety.com/p/cow-print-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 08:40:00 GMT*
-
-
-## Steven Yuen
-
-## [The Stefano Pilati-ssance Is Just Beginning](https://www.highsnobiety.com/p/stefano-pilati-comeback/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 08:45:03 GMT*
-
-
-## Steven Yuen
-
-## [Kith's Next New Balance Sneaker Is an Admirably Suave Dad Shoe](https://www.highsnobiety.com/p/kith-new-balance-990v4-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 09:24:22 GMT*
+*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
 
 
 ## Steven Yuen
@@ -462,29 +372,11 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 ## Steven Yuen
 
-## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+## [All Other Animal Prints Are Extinct: Cowhide Is Now the Moo(d)](https://www.highsnobiety.com/p/cow-print-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 08:40:00 GMT*
-
-
-## Sommer Ray
-
-## [The Stefano Pilati-ssance Is Just Beginning](https://www.highsnobiety.com/p/stefano-pilati-comeback/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 08:45:03 GMT*
-
-
-## Sommer Ray
-
-## [Kith's Next New Balance Sneaker Is an Admirably Suave Dad Shoe](https://www.highsnobiety.com/p/kith-new-balance-990v4-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 09:24:22 GMT*
+*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
 
 
 ## Sommer Ray
@@ -556,29 +448,11 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 ## Sommer Ray
 
-## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+## [All Other Animal Prints Are Extinct: Cowhide Is Now the Moo(d)](https://www.highsnobiety.com/p/cow-print-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 08:40:00 GMT*
-
-
-## Sza
-
-## [The Stefano Pilati-ssance Is Just Beginning](https://www.highsnobiety.com/p/stefano-pilati-comeback/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 08:45:03 GMT*
-
-
-## Sza
-
-## [Kith's Next New Balance Sneaker Is an Admirably Suave Dad Shoe](https://www.highsnobiety.com/p/kith-new-balance-990v4-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 09:24:22 GMT*
+*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
 
 
 ## Sza
@@ -650,29 +524,11 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 ## Sza
 
-## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+## [All Other Animal Prints Are Extinct: Cowhide Is Now the Moo(d)](https://www.highsnobiety.com/p/cow-print-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 08:40:00 GMT*
-
-
-## Sydney Sweeney
-
-## [The Stefano Pilati-ssance Is Just Beginning](https://www.highsnobiety.com/p/stefano-pilati-comeback/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 08:45:03 GMT*
-
-
-## Sydney Sweeney
-
-## [Kith's Next New Balance Sneaker Is an Admirably Suave Dad Shoe](https://www.highsnobiety.com/p/kith-new-balance-990v4-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 09:24:22 GMT*
+*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
 
 
 ## Sydney Sweeney
@@ -744,29 +600,11 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 ## Sydney Sweeney
 
-## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+## [All Other Animal Prints Are Extinct: Cowhide Is Now the Moo(d)](https://www.highsnobiety.com/p/cow-print-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 08:40:00 GMT*
-
-
-## Walton Goggins
-
-## [The Stefano Pilati-ssance Is Just Beginning](https://www.highsnobiety.com/p/stefano-pilati-comeback/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 08:45:03 GMT*
-
-
-## Walton Goggins
-
-## [Kith's Next New Balance Sneaker Is an Admirably Suave Dad Shoe](https://www.highsnobiety.com/p/kith-new-balance-990v4-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 09:24:22 GMT*
+*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
 
 
 ## Walton Goggins
@@ -838,29 +676,11 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 ## Walton Goggins
 
-## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+## [All Other Animal Prints Are Extinct: Cowhide Is Now the Moo(d)](https://www.highsnobiety.com/p/cow-print-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 08:40:00 GMT*
-
-
-## Tom Holland
-
-## [The Stefano Pilati-ssance Is Just Beginning](https://www.highsnobiety.com/p/stefano-pilati-comeback/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 08:45:03 GMT*
-
-
-## Tom Holland
-
-## [Kith's Next New Balance Sneaker Is an Admirably Suave Dad Shoe](https://www.highsnobiety.com/p/kith-new-balance-990v4-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 09:24:22 GMT*
+*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
 
 
 ## Tom Holland
@@ -932,29 +752,11 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 ## Tom Holland
 
-## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+## [All Other Animal Prints Are Extinct: Cowhide Is Now the Moo(d)](https://www.highsnobiety.com/p/cow-print-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 08:40:00 GMT*
-
-
-## Gucci Mane
-
-## [The Stefano Pilati-ssance Is Just Beginning](https://www.highsnobiety.com/p/stefano-pilati-comeback/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 08:45:03 GMT*
-
-
-## Gucci Mane
-
-## [Kith's Next New Balance Sneaker Is an Admirably Suave Dad Shoe](https://www.highsnobiety.com/p/kith-new-balance-990v4-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 09:24:22 GMT*
+*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
 
 
 ## Gucci Mane
@@ -1026,29 +828,11 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 ## Gucci Mane
 
-## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+## [All Other Animal Prints Are Extinct: Cowhide Is Now the Moo(d)](https://www.highsnobiety.com/p/cow-print-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 08:40:00 GMT*
-
-
-## Harry Styles
-
-## [The Stefano Pilati-ssance Is Just Beginning](https://www.highsnobiety.com/p/stefano-pilati-comeback/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 08:45:03 GMT*
-
-
-## Harry Styles
-
-## [Kith's Next New Balance Sneaker Is an Admirably Suave Dad Shoe](https://www.highsnobiety.com/p/kith-new-balance-990v4-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 09:24:22 GMT*
+*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
 
 
 ## Harry Styles
@@ -1120,29 +904,11 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 ## Harry Styles
 
-## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+## [All Other Animal Prints Are Extinct: Cowhide Is Now the Moo(d)](https://www.highsnobiety.com/p/cow-print-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 08:40:00 GMT*
-
-
-## Jake Paul
-
-## [The Stefano Pilati-ssance Is Just Beginning](https://www.highsnobiety.com/p/stefano-pilati-comeback/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 08:45:03 GMT*
-
-
-## Jake Paul
-
-## [Kith's Next New Balance Sneaker Is an Admirably Suave Dad Shoe](https://www.highsnobiety.com/p/kith-new-balance-990v4-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 09:24:22 GMT*
+*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
 
 
 ## Jake Paul
@@ -1214,29 +980,11 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 ## Jake Paul
 
-## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+## [All Other Animal Prints Are Extinct: Cowhide Is Now the Moo(d)](https://www.highsnobiety.com/p/cow-print-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 08:40:00 GMT*
-
-
-## Jameela Jamil
-
-## [The Stefano Pilati-ssance Is Just Beginning](https://www.highsnobiety.com/p/stefano-pilati-comeback/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 08:45:03 GMT*
-
-
-## Jameela Jamil
-
-## [Kith's Next New Balance Sneaker Is an Admirably Suave Dad Shoe](https://www.highsnobiety.com/p/kith-new-balance-990v4-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 09:24:22 GMT*
+*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
 
 
 ## Jameela Jamil
@@ -1308,29 +1056,11 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 ## Jameela Jamil
 
-## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+## [All Other Animal Prints Are Extinct: Cowhide Is Now the Moo(d)](https://www.highsnobiety.com/p/cow-print-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 08:40:00 GMT*
-
-
-## Elon Musk
-
-## [The Stefano Pilati-ssance Is Just Beginning](https://www.highsnobiety.com/p/stefano-pilati-comeback/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 08:45:03 GMT*
-
-
-## Elon Musk
-
-## [Kith's Next New Balance Sneaker Is an Admirably Suave Dad Shoe](https://www.highsnobiety.com/p/kith-new-balance-990v4-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 09:24:22 GMT*
+*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
 
 
 ## Elon Musk
@@ -1402,29 +1132,11 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 ## Elon Musk
 
-## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+## [All Other Animal Prints Are Extinct: Cowhide Is Now the Moo(d)](https://www.highsnobiety.com/p/cow-print-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 08:40:00 GMT*
-
-
-## Gabrielle Union
-
-## [The Stefano Pilati-ssance Is Just Beginning](https://www.highsnobiety.com/p/stefano-pilati-comeback/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 08:45:03 GMT*
-
-
-## Gabrielle Union
-
-## [Kith's Next New Balance Sneaker Is an Admirably Suave Dad Shoe](https://www.highsnobiety.com/p/kith-new-balance-990v4-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 09:24:22 GMT*
+*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
 
 
 ## Gabrielle Union
@@ -1496,29 +1208,11 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 ## Gabrielle Union
 
-## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+## [All Other Animal Prints Are Extinct: Cowhide Is Now the Moo(d)](https://www.highsnobiety.com/p/cow-print-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 08:40:00 GMT*
-
-
-## Giancarlo Esposito
-
-## [The Stefano Pilati-ssance Is Just Beginning](https://www.highsnobiety.com/p/stefano-pilati-comeback/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 08:45:03 GMT*
-
-
-## Giancarlo Esposito
-
-## [Kith's Next New Balance Sneaker Is an Admirably Suave Dad Shoe](https://www.highsnobiety.com/p/kith-new-balance-990v4-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 09:24:22 GMT*
+*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
 
 
 ## Giancarlo Esposito
@@ -1590,29 +1284,11 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 ## Giancarlo Esposito
 
-## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+## [All Other Animal Prints Are Extinct: Cowhide Is Now the Moo(d)](https://www.highsnobiety.com/p/cow-print-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 08:40:00 GMT*
-
-
-## Gillian Jacobs
-
-## [The Stefano Pilati-ssance Is Just Beginning](https://www.highsnobiety.com/p/stefano-pilati-comeback/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 08:45:03 GMT*
-
-
-## Gillian Jacobs
-
-## [Kith's Next New Balance Sneaker Is an Admirably Suave Dad Shoe](https://www.highsnobiety.com/p/kith-new-balance-990v4-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 09:24:22 GMT*
+*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
 
 
 ## Gillian Jacobs
@@ -1684,29 +1360,11 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 ## Gillian Jacobs
 
-## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+## [All Other Animal Prints Are Extinct: Cowhide Is Now the Moo(d)](https://www.highsnobiety.com/p/cow-print-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 08:40:00 GMT*
-
-
-## Jason Mantzoukas
-
-## [The Stefano Pilati-ssance Is Just Beginning](https://www.highsnobiety.com/p/stefano-pilati-comeback/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 08:45:03 GMT*
-
-
-## Jason Mantzoukas
-
-## [Kith's Next New Balance Sneaker Is an Admirably Suave Dad Shoe](https://www.highsnobiety.com/p/kith-new-balance-990v4-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 09:24:22 GMT*
+*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
 
 
 ## Jason Mantzoukas
@@ -1778,29 +1436,11 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 ## Jason Mantzoukas
 
-## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+## [All Other Animal Prints Are Extinct: Cowhide Is Now the Moo(d)](https://www.highsnobiety.com/p/cow-print-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 08:40:00 GMT*
-
-
-## JB Smoove
-
-## [The Stefano Pilati-ssance Is Just Beginning](https://www.highsnobiety.com/p/stefano-pilati-comeback/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 08:45:03 GMT*
-
-
-## JB Smoove
-
-## [Kith's Next New Balance Sneaker Is an Admirably Suave Dad Shoe](https://www.highsnobiety.com/p/kith-new-balance-990v4-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 09:24:22 GMT*
+*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
 
 
 ## JB Smoove
@@ -1872,29 +1512,11 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 ## JB Smoove
 
-## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+## [All Other Animal Prints Are Extinct: Cowhide Is Now the Moo(d)](https://www.highsnobiety.com/p/cow-print-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 08:40:00 GMT*
-
-
-## Madison Pettis
-
-## [The Stefano Pilati-ssance Is Just Beginning](https://www.highsnobiety.com/p/stefano-pilati-comeback/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 08:45:03 GMT*
-
-
-## Madison Pettis
-
-## [Kith's Next New Balance Sneaker Is an Admirably Suave Dad Shoe](https://www.highsnobiety.com/p/kith-new-balance-990v4-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 09:24:22 GMT*
+*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
 
 
 ## Madison Pettis
@@ -1966,29 +1588,11 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 ## Madison Pettis
 
-## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+## [All Other Animal Prints Are Extinct: Cowhide Is Now the Moo(d)](https://www.highsnobiety.com/p/cow-print-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 08:40:00 GMT*
-
-
-## Austin Butler
-
-## [The Stefano Pilati-ssance Is Just Beginning](https://www.highsnobiety.com/p/stefano-pilati-comeback/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 08:45:03 GMT*
-
-
-## Austin Butler
-
-## [Kith's Next New Balance Sneaker Is an Admirably Suave Dad Shoe](https://www.highsnobiety.com/p/kith-new-balance-990v4-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 09:24:22 GMT*
+*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
 
 
 ## Austin Butler
@@ -2060,29 +1664,11 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 ## Austin Butler
 
-## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+## [All Other Animal Prints Are Extinct: Cowhide Is Now the Moo(d)](https://www.highsnobiety.com/p/cow-print-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 08:40:00 GMT*
-
-
-## Mark Zuckerberg
-
-## [The Stefano Pilati-ssance Is Just Beginning](https://www.highsnobiety.com/p/stefano-pilati-comeback/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 08:45:03 GMT*
-
-
-## Mark Zuckerberg
-
-## [Kith's Next New Balance Sneaker Is an Admirably Suave Dad Shoe](https://www.highsnobiety.com/p/kith-new-balance-990v4-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 09:24:22 GMT*
+*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
 
 
 ## Mark Zuckerberg
@@ -2154,29 +1740,11 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 ## Mark Zuckerberg
 
-## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+## [All Other Animal Prints Are Extinct: Cowhide Is Now the Moo(d)](https://www.highsnobiety.com/p/cow-print-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 08:40:00 GMT*
-
-
-## Ariana Grande
-
-## [The Stefano Pilati-ssance Is Just Beginning](https://www.highsnobiety.com/p/stefano-pilati-comeback/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 08:45:03 GMT*
-
-
-## Ariana Grande
-
-## [Kith's Next New Balance Sneaker Is an Admirably Suave Dad Shoe](https://www.highsnobiety.com/p/kith-new-balance-990v4-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 09:24:22 GMT*
+*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
 
 
 ## Ariana Grande
@@ -2248,29 +1816,11 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 ## Ariana Grande
 
-## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+## [All Other Animal Prints Are Extinct: Cowhide Is Now the Moo(d)](https://www.highsnobiety.com/p/cow-print-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 08:40:00 GMT*
-
-
-## Livvy Dunne
-
-## [The Stefano Pilati-ssance Is Just Beginning](https://www.highsnobiety.com/p/stefano-pilati-comeback/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 08:45:03 GMT*
-
-
-## Livvy Dunne
-
-## [Kith's Next New Balance Sneaker Is an Admirably Suave Dad Shoe](https://www.highsnobiety.com/p/kith-new-balance-990v4-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 09:24:22 GMT*
+*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
 
 
 ## Livvy Dunne
@@ -2342,29 +1892,11 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 ## Livvy Dunne
 
-## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+## [All Other Animal Prints Are Extinct: Cowhide Is Now the Moo(d)](https://www.highsnobiety.com/p/cow-print-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 08:40:00 GMT*
-
-
-## Ali Wong
-
-## [The Stefano Pilati-ssance Is Just Beginning](https://www.highsnobiety.com/p/stefano-pilati-comeback/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 08:45:03 GMT*
-
-
-## Ali Wong
-
-## [Kith's Next New Balance Sneaker Is an Admirably Suave Dad Shoe](https://www.highsnobiety.com/p/kith-new-balance-990v4-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 09:24:22 GMT*
+*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
 
 
 ## Ali Wong
@@ -2436,29 +1968,11 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 ## Ali Wong
 
-## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+## [All Other Animal Prints Are Extinct: Cowhide Is Now the Moo(d)](https://www.highsnobiety.com/p/cow-print-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 08:40:00 GMT*
-
-
-## Lizzo
-
-## [The Stefano Pilati-ssance Is Just Beginning](https://www.highsnobiety.com/p/stefano-pilati-comeback/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 08:45:03 GMT*
-
-
-## Lizzo
-
-## [Kith's Next New Balance Sneaker Is an Admirably Suave Dad Shoe](https://www.highsnobiety.com/p/kith-new-balance-990v4-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 09:24:22 GMT*
+*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
 
 
 ## Lizzo
@@ -2530,29 +2044,11 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 ## Lizzo
 
-## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+## [All Other Animal Prints Are Extinct: Cowhide Is Now the Moo(d)](https://www.highsnobiety.com/p/cow-print-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 08:40:00 GMT*
-
-
-## Alison Brie
-
-## [The Stefano Pilati-ssance Is Just Beginning](https://www.highsnobiety.com/p/stefano-pilati-comeback/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 08:45:03 GMT*
-
-
-## Alison Brie
-
-## [Kith's Next New Balance Sneaker Is an Admirably Suave Dad Shoe](https://www.highsnobiety.com/p/kith-new-balance-990v4-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 09:24:22 GMT*
+*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
 
 
 ## Alison Brie
@@ -2624,29 +2120,11 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 ## Alison Brie
 
-## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+## [All Other Animal Prints Are Extinct: Cowhide Is Now the Moo(d)](https://www.highsnobiety.com/p/cow-print-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 08:40:00 GMT*
-
-
-## Lil Wayne
-
-## [The Stefano Pilati-ssance Is Just Beginning](https://www.highsnobiety.com/p/stefano-pilati-comeback/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 08:45:03 GMT*
-
-
-## Lil Wayne
-
-## [Kith's Next New Balance Sneaker Is an Admirably Suave Dad Shoe](https://www.highsnobiety.com/p/kith-new-balance-990v4-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 09:24:22 GMT*
+*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
 
 
 ## Lil Wayne
@@ -2718,29 +2196,11 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 ## Lil Wayne
 
-## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+## [All Other Animal Prints Are Extinct: Cowhide Is Now the Moo(d)](https://www.highsnobiety.com/p/cow-print-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 08:40:00 GMT*
-
-
-## Adele
-
-## [The Stefano Pilati-ssance Is Just Beginning](https://www.highsnobiety.com/p/stefano-pilati-comeback/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 08:45:03 GMT*
-
-
-## Adele
-
-## [Kith's Next New Balance Sneaker Is an Admirably Suave Dad Shoe](https://www.highsnobiety.com/p/kith-new-balance-990v4-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 09:24:22 GMT*
+*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
 
 
 ## Adele
@@ -2812,29 +2272,11 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 ## Adele
 
-## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+## [All Other Animal Prints Are Extinct: Cowhide Is Now the Moo(d)](https://www.highsnobiety.com/p/cow-print-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 08:40:00 GMT*
-
-
-## Lindsay Lohan
-
-## [The Stefano Pilati-ssance Is Just Beginning](https://www.highsnobiety.com/p/stefano-pilati-comeback/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 08:45:03 GMT*
-
-
-## Lindsay Lohan
-
-## [Kith's Next New Balance Sneaker Is an Admirably Suave Dad Shoe](https://www.highsnobiety.com/p/kith-new-balance-990v4-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 09:24:22 GMT*
+*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
 
 
 ## Lindsay Lohan
@@ -2906,29 +2348,11 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 ## Lindsay Lohan
 
-## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+## [All Other Animal Prints Are Extinct: Cowhide Is Now the Moo(d)](https://www.highsnobiety.com/p/cow-print-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 08:40:00 GMT*
-
-
-## Addison Rae
-
-## [The Stefano Pilati-ssance Is Just Beginning](https://www.highsnobiety.com/p/stefano-pilati-comeback/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 08:45:03 GMT*
-
-
-## Addison Rae
-
-## [Kith's Next New Balance Sneaker Is an Admirably Suave Dad Shoe](https://www.highsnobiety.com/p/kith-new-balance-990v4-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 09:24:22 GMT*
+*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
 
 
 ## Addison Rae
@@ -3000,29 +2424,11 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 ## Addison Rae
 
-## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+## [All Other Animal Prints Are Extinct: Cowhide Is Now the Moo(d)](https://www.highsnobiety.com/p/cow-print-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 08:40:00 GMT*
-
-
-## Latto
-
-## [The Stefano Pilati-ssance Is Just Beginning](https://www.highsnobiety.com/p/stefano-pilati-comeback/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 08:45:03 GMT*
-
-
-## Latto
-
-## [Kith's Next New Balance Sneaker Is an Admirably Suave Dad Shoe](https://www.highsnobiety.com/p/kith-new-balance-990v4-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 09:24:22 GMT*
+*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
 
 
 ## Latto
@@ -3094,29 +2500,11 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 ## Latto
 
-## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+## [All Other Animal Prints Are Extinct: Cowhide Is Now the Moo(d)](https://www.highsnobiety.com/p/cow-print-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 08:40:00 GMT*
-
-
-## Aaron Paul
-
-## [The Stefano Pilati-ssance Is Just Beginning](https://www.highsnobiety.com/p/stefano-pilati-comeback/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 08:45:03 GMT*
-
-
-## Aaron Paul
-
-## [Kith's Next New Balance Sneaker Is an Admirably Suave Dad Shoe](https://www.highsnobiety.com/p/kith-new-balance-990v4-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 09:24:22 GMT*
+*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
 
 
 ## Aaron Paul
@@ -3188,29 +2576,11 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 ## Aaron Paul
 
-## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+## [All Other Animal Prints Are Extinct: Cowhide Is Now the Moo(d)](https://www.highsnobiety.com/p/cow-print-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 08:40:00 GMT*
-
-
-## LeBron James
-
-## [The Stefano Pilati-ssance Is Just Beginning](https://www.highsnobiety.com/p/stefano-pilati-comeback/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 08:45:03 GMT*
-
-
-## LeBron James
-
-## [Kith's Next New Balance Sneaker Is an Admirably Suave Dad Shoe](https://www.highsnobiety.com/p/kith-new-balance-990v4-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 09:24:22 GMT*
+*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
 
 
 ## LeBron James
@@ -3282,29 +2652,11 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 ## LeBron James
 
-## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+## [All Other Animal Prints Are Extinct: Cowhide Is Now the Moo(d)](https://www.highsnobiety.com/p/cow-print-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 08:40:00 GMT*
-
-
-## 50 Cent
-
-## [The Stefano Pilati-ssance Is Just Beginning](https://www.highsnobiety.com/p/stefano-pilati-comeback/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 08:45:03 GMT*
-
-
-## 50 Cent
-
-## [Kith's Next New Balance Sneaker Is an Admirably Suave Dad Shoe](https://www.highsnobiety.com/p/kith-new-balance-990v4-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 09:24:22 GMT*
+*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
 
 
 ## 50 Cent
@@ -3376,29 +2728,11 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 ## 50 Cent
 
-## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+## [All Other Animal Prints Are Extinct: Cowhide Is Now the Moo(d)](https://www.highsnobiety.com/p/cow-print-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 08:40:00 GMT*
-
-
-## Kesha
-
-## [The Stefano Pilati-ssance Is Just Beginning](https://www.highsnobiety.com/p/stefano-pilati-comeback/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 08:45:03 GMT*
-
-
-## Kesha
-
-## [Kith's Next New Balance Sneaker Is an Admirably Suave Dad Shoe](https://www.highsnobiety.com/p/kith-new-balance-990v4-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 09:24:22 GMT*
+*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
 
 
 ## Kesha
@@ -3470,29 +2804,11 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 ## Kesha
 
-## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+## [All Other Animal Prints Are Extinct: Cowhide Is Now the Moo(d)](https://www.highsnobiety.com/p/cow-print-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 08:40:00 GMT*
-
-
-## 21 Savage
-
-## [The Stefano Pilati-ssance Is Just Beginning](https://www.highsnobiety.com/p/stefano-pilati-comeback/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 08:45:03 GMT*
-
-
-## 21 Savage
-
-## [Kith's Next New Balance Sneaker Is an Admirably Suave Dad Shoe](https://www.highsnobiety.com/p/kith-new-balance-990v4-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 09:24:22 GMT*
+*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
 
 
 ## 21 Savage
@@ -3564,29 +2880,11 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 ## 21 Savage
 
-## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+## [All Other Animal Prints Are Extinct: Cowhide Is Now the Moo(d)](https://www.highsnobiety.com/p/cow-print-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 08:40:00 GMT*
-
-
-## Larry David
-
-## [The Stefano Pilati-ssance Is Just Beginning](https://www.highsnobiety.com/p/stefano-pilati-comeback/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 08:45:03 GMT*
-
-
-## Larry David
-
-## [Kith's Next New Balance Sneaker Is an Admirably Suave Dad Shoe](https://www.highsnobiety.com/p/kith-new-balance-990v4-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 09:24:22 GMT*
+*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
 
 
 ## Larry David
@@ -3658,29 +2956,11 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 ## Larry David
 
-## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+## [All Other Animal Prints Are Extinct: Cowhide Is Now the Moo(d)](https://www.highsnobiety.com/p/cow-print-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 08:40:00 GMT*
-
-
-## Seth Rogan
-
-## [The Stefano Pilati-ssance Is Just Beginning](https://www.highsnobiety.com/p/stefano-pilati-comeback/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 08:45:03 GMT*
-
-
-## Seth Rogan
-
-## [Kith's Next New Balance Sneaker Is an Admirably Suave Dad Shoe](https://www.highsnobiety.com/p/kith-new-balance-990v4-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 09:24:22 GMT*
+*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
 
 
 ## Seth Rogan
@@ -3752,29 +3032,11 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 ## Seth Rogan
 
-## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+## [All Other Animal Prints Are Extinct: Cowhide Is Now the Moo(d)](https://www.highsnobiety.com/p/cow-print-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 08:40:00 GMT*
-
-
-## Simone Biles
-
-## [The Stefano Pilati-ssance Is Just Beginning](https://www.highsnobiety.com/p/stefano-pilati-comeback/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 08:45:03 GMT*
-
-
-## Simone Biles
-
-## [Kith's Next New Balance Sneaker Is an Admirably Suave Dad Shoe](https://www.highsnobiety.com/p/kith-new-balance-990v4-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 09:24:22 GMT*
+*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
 
 
 ## Simone Biles
@@ -3846,29 +3108,11 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 ## Simone Biles
 
-## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+## [All Other Animal Prints Are Extinct: Cowhide Is Now the Moo(d)](https://www.highsnobiety.com/p/cow-print-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 08:40:00 GMT*
-
-
-## Pete Davidson
-
-## [The Stefano Pilati-ssance Is Just Beginning](https://www.highsnobiety.com/p/stefano-pilati-comeback/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 08:45:03 GMT*
-
-
-## Pete Davidson
-
-## [Kith's Next New Balance Sneaker Is an Admirably Suave Dad Shoe](https://www.highsnobiety.com/p/kith-new-balance-990v4-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 09:24:22 GMT*
+*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
 
 
 ## Pete Davidson
@@ -3940,29 +3184,11 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 ## Pete Davidson
 
-## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+## [All Other Animal Prints Are Extinct: Cowhide Is Now the Moo(d)](https://www.highsnobiety.com/p/cow-print-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 08:40:00 GMT*
-
-
-## Prince Harry
-
-## [The Stefano Pilati-ssance Is Just Beginning](https://www.highsnobiety.com/p/stefano-pilati-comeback/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 08:45:03 GMT*
-
-
-## Prince Harry
-
-## [Kith's Next New Balance Sneaker Is an Admirably Suave Dad Shoe](https://www.highsnobiety.com/p/kith-new-balance-990v4-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 09:24:22 GMT*
+*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
 
 
 ## Prince Harry
@@ -4034,29 +3260,11 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 ## Prince Harry
 
-## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+## [All Other Animal Prints Are Extinct: Cowhide Is Now the Moo(d)](https://www.highsnobiety.com/p/cow-print-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 08:40:00 GMT*
-
-
-## Princess of Wales
-
-## [The Stefano Pilati-ssance Is Just Beginning](https://www.highsnobiety.com/p/stefano-pilati-comeback/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 08:45:03 GMT*
-
-
-## Princess of Wales
-
-## [Kith's Next New Balance Sneaker Is an Admirably Suave Dad Shoe](https://www.highsnobiety.com/p/kith-new-balance-990v4-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 09:24:22 GMT*
+*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
 
 
 ## Princess of Wales
@@ -4128,29 +3336,11 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 ## Princess of Wales
 
-## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+## [All Other Animal Prints Are Extinct: Cowhide Is Now the Moo(d)](https://www.highsnobiety.com/p/cow-print-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 08:40:00 GMT*
-
-
-## Rachel McAdams
-
-## [The Stefano Pilati-ssance Is Just Beginning](https://www.highsnobiety.com/p/stefano-pilati-comeback/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 08:45:03 GMT*
-
-
-## Rachel McAdams
-
-## [Kith's Next New Balance Sneaker Is an Admirably Suave Dad Shoe](https://www.highsnobiety.com/p/kith-new-balance-990v4-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 09:24:22 GMT*
+*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
 
 
 ## Rachel McAdams
@@ -4222,29 +3412,11 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 ## Rachel McAdams
 
-## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+## [All Other Animal Prints Are Extinct: Cowhide Is Now the Moo(d)](https://www.highsnobiety.com/p/cow-print-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 08:40:00 GMT*
-
-
-## Reneé Rapp
-
-## [The Stefano Pilati-ssance Is Just Beginning](https://www.highsnobiety.com/p/stefano-pilati-comeback/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 08:45:03 GMT*
-
-
-## Reneé Rapp
-
-## [Kith's Next New Balance Sneaker Is an Admirably Suave Dad Shoe](https://www.highsnobiety.com/p/kith-new-balance-990v4-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 09:24:22 GMT*
+*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
 
 
 ## Reneé Rapp
@@ -4316,29 +3488,11 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 ## Reneé Rapp
 
-## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+## [All Other Animal Prints Are Extinct: Cowhide Is Now the Moo(d)](https://www.highsnobiety.com/p/cow-print-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 08:40:00 GMT*
-
-
-## Rick Ross
-
-## [The Stefano Pilati-ssance Is Just Beginning](https://www.highsnobiety.com/p/stefano-pilati-comeback/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 08:45:03 GMT*
-
-
-## Rick Ross
-
-## [Kith's Next New Balance Sneaker Is an Admirably Suave Dad Shoe](https://www.highsnobiety.com/p/kith-new-balance-990v4-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 09:24:22 GMT*
+*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
 
 
 ## Rick Ross
@@ -4410,29 +3564,11 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 ## Rick Ross
 
-## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+## [All Other Animal Prints Are Extinct: Cowhide Is Now the Moo(d)](https://www.highsnobiety.com/p/cow-print-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 08:40:00 GMT*
-
-
-## Sam Ashgari
-
-## [The Stefano Pilati-ssance Is Just Beginning](https://www.highsnobiety.com/p/stefano-pilati-comeback/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 08:45:03 GMT*
-
-
-## Sam Ashgari
-
-## [Kith's Next New Balance Sneaker Is an Admirably Suave Dad Shoe](https://www.highsnobiety.com/p/kith-new-balance-990v4-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 09:24:22 GMT*
+*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
 
 
 ## Sam Ashgari
@@ -4504,29 +3640,11 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 ## Sam Ashgari
 
-## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+## [All Other Animal Prints Are Extinct: Cowhide Is Now the Moo(d)](https://www.highsnobiety.com/p/cow-print-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 08:40:00 GMT*
-
-
-## Sandra Oh
-
-## [The Stefano Pilati-ssance Is Just Beginning](https://www.highsnobiety.com/p/stefano-pilati-comeback/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 08:45:03 GMT*
-
-
-## Sandra Oh
-
-## [Kith's Next New Balance Sneaker Is an Admirably Suave Dad Shoe](https://www.highsnobiety.com/p/kith-new-balance-990v4-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 09:24:22 GMT*
+*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
 
 
 ## Sandra Oh
@@ -4598,29 +3716,11 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 ## Sandra Oh
 
-## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+## [All Other Animal Prints Are Extinct: Cowhide Is Now the Moo(d)](https://www.highsnobiety.com/p/cow-print-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 08:40:00 GMT*
-
-
-## Donald Trump
-
-## [The Stefano Pilati-ssance Is Just Beginning](https://www.highsnobiety.com/p/stefano-pilati-comeback/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 08:45:03 GMT*
-
-
-## Donald Trump
-
-## [Kith's Next New Balance Sneaker Is an Admirably Suave Dad Shoe](https://www.highsnobiety.com/p/kith-new-balance-990v4-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 09:24:22 GMT*
+*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
 
 
 ## Donald Trump
@@ -4692,29 +3792,11 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 ## Donald Trump
 
-## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+## [All Other Animal Prints Are Extinct: Cowhide Is Now the Moo(d)](https://www.highsnobiety.com/p/cow-print-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 08:40:00 GMT*
-
-
-## Diddy
-
-## [The Stefano Pilati-ssance Is Just Beginning](https://www.highsnobiety.com/p/stefano-pilati-comeback/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 08:45:03 GMT*
-
-
-## Diddy
-
-## [Kith's Next New Balance Sneaker Is an Admirably Suave Dad Shoe](https://www.highsnobiety.com/p/kith-new-balance-990v4-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 09:24:22 GMT*
+*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
 
 
 ## Diddy
@@ -4786,29 +3868,11 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 ## Diddy
 
-## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+## [All Other Animal Prints Are Extinct: Cowhide Is Now the Moo(d)](https://www.highsnobiety.com/p/cow-print-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 08:40:00 GMT*
-
-
-## City Girls
-
-## [The Stefano Pilati-ssance Is Just Beginning](https://www.highsnobiety.com/p/stefano-pilati-comeback/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 08:45:03 GMT*
-
-
-## City Girls
-
-## [Kith's Next New Balance Sneaker Is an Admirably Suave Dad Shoe](https://www.highsnobiety.com/p/kith-new-balance-990v4-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 09:24:22 GMT*
+*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
 
 
 ## City Girls
@@ -4880,29 +3944,11 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 ## City Girls
 
-## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+## [All Other Animal Prints Are Extinct: Cowhide Is Now the Moo(d)](https://www.highsnobiety.com/p/cow-print-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 08:40:00 GMT*
-
-
-## Chloe Bailey
-
-## [The Stefano Pilati-ssance Is Just Beginning](https://www.highsnobiety.com/p/stefano-pilati-comeback/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 08:45:03 GMT*
-
-
-## Chloe Bailey
-
-## [Kith's Next New Balance Sneaker Is an Admirably Suave Dad Shoe](https://www.highsnobiety.com/p/kith-new-balance-990v4-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 09:24:22 GMT*
+*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
 
 
 ## Chloe Bailey
@@ -4974,29 +4020,11 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 ## Chloe Bailey
 
-## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+## [All Other Animal Prints Are Extinct: Cowhide Is Now the Moo(d)](https://www.highsnobiety.com/p/cow-print-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 08:40:00 GMT*
-
-
-## Charli D Amelio
-
-## [The Stefano Pilati-ssance Is Just Beginning](https://www.highsnobiety.com/p/stefano-pilati-comeback/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 08:45:03 GMT*
-
-
-## Charli D Amelio
-
-## [Kith's Next New Balance Sneaker Is an Admirably Suave Dad Shoe](https://www.highsnobiety.com/p/kith-new-balance-990v4-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 09:24:22 GMT*
+*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
 
 
 ## Charli D Amelio
@@ -5068,29 +4096,11 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 ## Charli D Amelio
 
-## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+## [All Other Animal Prints Are Extinct: Cowhide Is Now the Moo(d)](https://www.highsnobiety.com/p/cow-print-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 08:40:00 GMT*
-
-
-## Cardi B
-
-## [The Stefano Pilati-ssance Is Just Beginning](https://www.highsnobiety.com/p/stefano-pilati-comeback/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 08:45:03 GMT*
-
-
-## Cardi B
-
-## [Kith's Next New Balance Sneaker Is an Admirably Suave Dad Shoe](https://www.highsnobiety.com/p/kith-new-balance-990v4-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 09:24:22 GMT*
+*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
 
 
 ## Cardi B
@@ -5162,29 +4172,11 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 ## Cardi B
 
-## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+## [All Other Animal Prints Are Extinct: Cowhide Is Now the Moo(d)](https://www.highsnobiety.com/p/cow-print-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 08:40:00 GMT*
-
-
-## Bryan Cranston
-
-## [The Stefano Pilati-ssance Is Just Beginning](https://www.highsnobiety.com/p/stefano-pilati-comeback/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 08:45:03 GMT*
-
-
-## Bryan Cranston
-
-## [Kith's Next New Balance Sneaker Is an Admirably Suave Dad Shoe](https://www.highsnobiety.com/p/kith-new-balance-990v4-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 09:24:22 GMT*
+*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
 
 
 ## Bryan Cranston
@@ -5256,29 +4248,11 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 ## Bryan Cranston
 
-## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+## [All Other Animal Prints Are Extinct: Cowhide Is Now the Moo(d)](https://www.highsnobiety.com/p/cow-print-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 08:40:00 GMT*
-
-
-## Brielle Biermann
-
-## [The Stefano Pilati-ssance Is Just Beginning](https://www.highsnobiety.com/p/stefano-pilati-comeback/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 08:45:03 GMT*
-
-
-## Brielle Biermann
-
-## [Kith's Next New Balance Sneaker Is an Admirably Suave Dad Shoe](https://www.highsnobiety.com/p/kith-new-balance-990v4-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 09:24:22 GMT*
+*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
 
 
 ## Brielle Biermann
@@ -5350,29 +4324,11 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 ## Brielle Biermann
 
-## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+## [All Other Animal Prints Are Extinct: Cowhide Is Now the Moo(d)](https://www.highsnobiety.com/p/cow-print-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 08:40:00 GMT*
-
-
-## Dua Lipa
-
-## [The Stefano Pilati-ssance Is Just Beginning](https://www.highsnobiety.com/p/stefano-pilati-comeback/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 08:45:03 GMT*
-
-
-## Dua Lipa
-
-## [Kith's Next New Balance Sneaker Is an Admirably Suave Dad Shoe](https://www.highsnobiety.com/p/kith-new-balance-990v4-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 09:24:22 GMT*
+*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
 
 
 ## Dua Lipa
@@ -5444,29 +4400,11 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 ## Dua Lipa
 
-## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+## [All Other Animal Prints Are Extinct: Cowhide Is Now the Moo(d)](https://www.highsnobiety.com/p/cow-print-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 08:40:00 GMT*
-
-
-## Drake
-
-## [The Stefano Pilati-ssance Is Just Beginning](https://www.highsnobiety.com/p/stefano-pilati-comeback/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 08:45:03 GMT*
-
-
-## Drake
-
-## [Kith's Next New Balance Sneaker Is an Admirably Suave Dad Shoe](https://www.highsnobiety.com/p/kith-new-balance-990v4-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 09:24:22 GMT*
+*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
 
 
 ## Drake
@@ -5538,29 +4476,11 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 ## Drake
 
-## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+## [All Other Animal Prints Are Extinct: Cowhide Is Now the Moo(d)](https://www.highsnobiety.com/p/cow-print-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 08:40:00 GMT*
-
-
-## Jenner
-
-## [The Stefano Pilati-ssance Is Just Beginning](https://www.highsnobiety.com/p/stefano-pilati-comeback/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 08:45:03 GMT*
-
-
-## Jenner
-
-## [Kith's Next New Balance Sneaker Is an Admirably Suave Dad Shoe](https://www.highsnobiety.com/p/kith-new-balance-990v4-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 09:24:22 GMT*
+*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
 
 
 ## Jenner
@@ -5632,29 +4552,11 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 ## Jenner
 
-## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+## [All Other Animal Prints Are Extinct: Cowhide Is Now the Moo(d)](https://www.highsnobiety.com/p/cow-print-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 08:40:00 GMT*
-
-
-## J. Cole
-
-## [The Stefano Pilati-ssance Is Just Beginning](https://www.highsnobiety.com/p/stefano-pilati-comeback/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 08:45:03 GMT*
-
-
-## J. Cole
-
-## [Kith's Next New Balance Sneaker Is an Admirably Suave Dad Shoe](https://www.highsnobiety.com/p/kith-new-balance-990v4-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 09:24:22 GMT*
+*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
 
 
 ## J. Cole
@@ -5726,29 +4628,11 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 ## J. Cole
 
-## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+## [All Other Animal Prints Are Extinct: Cowhide Is Now the Moo(d)](https://www.highsnobiety.com/p/cow-print-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 08:40:00 GMT*
-
-
-## Jerrod Carmichael
-
-## [The Stefano Pilati-ssance Is Just Beginning](https://www.highsnobiety.com/p/stefano-pilati-comeback/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 08:45:03 GMT*
-
-
-## Jerrod Carmichael
-
-## [Kith's Next New Balance Sneaker Is an Admirably Suave Dad Shoe](https://www.highsnobiety.com/p/kith-new-balance-990v4-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 09:24:22 GMT*
+*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
 
 
 ## Jerrod Carmichael
@@ -5820,29 +4704,11 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 ## Jerrod Carmichael
 
-## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+## [All Other Animal Prints Are Extinct: Cowhide Is Now the Moo(d)](https://www.highsnobiety.com/p/cow-print-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 08:40:00 GMT*
-
-
-## Jennifer Lawrence
-
-## [The Stefano Pilati-ssance Is Just Beginning](https://www.highsnobiety.com/p/stefano-pilati-comeback/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 08:45:03 GMT*
-
-
-## Jennifer Lawrence
-
-## [Kith's Next New Balance Sneaker Is an Admirably Suave Dad Shoe](https://www.highsnobiety.com/p/kith-new-balance-990v4-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 09:24:22 GMT*
+*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
 
 
 ## Jennifer Lawrence
@@ -5914,29 +4780,11 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 ## Jennifer Lawrence
 
-## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+## [All Other Animal Prints Are Extinct: Cowhide Is Now the Moo(d)](https://www.highsnobiety.com/p/cow-print-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 08:40:00 GMT*
-
-
-## Joe Biden
-
-## [The Stefano Pilati-ssance Is Just Beginning](https://www.highsnobiety.com/p/stefano-pilati-comeback/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 08:45:03 GMT*
-
-
-## Joe Biden
-
-## [Kith's Next New Balance Sneaker Is an Admirably Suave Dad Shoe](https://www.highsnobiety.com/p/kith-new-balance-990v4-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 09:24:22 GMT*
+*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
 
 
 ## Joe Biden
@@ -6008,29 +4856,11 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 ## Joe Biden
 
-## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+## [All Other Animal Prints Are Extinct: Cowhide Is Now the Moo(d)](https://www.highsnobiety.com/p/cow-print-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 08:40:00 GMT*
-
-
-## J.K. Simmons
-
-## [The Stefano Pilati-ssance Is Just Beginning](https://www.highsnobiety.com/p/stefano-pilati-comeback/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 08:45:03 GMT*
-
-
-## J.K. Simmons
-
-## [Kith's Next New Balance Sneaker Is an Admirably Suave Dad Shoe](https://www.highsnobiety.com/p/kith-new-balance-990v4-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 09:24:22 GMT*
+*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
 
 
 ## J.K. Simmons
@@ -6102,29 +4932,11 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 ## J.K. Simmons
 
-## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+## [All Other Animal Prints Are Extinct: Cowhide Is Now the Moo(d)](https://www.highsnobiety.com/p/cow-print-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 08:40:00 GMT*
-
-
-## Kamala Harris
-
-## [The Stefano Pilati-ssance Is Just Beginning](https://www.highsnobiety.com/p/stefano-pilati-comeback/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 08:45:03 GMT*
-
-
-## Kamala Harris
-
-## [Kith's Next New Balance Sneaker Is an Admirably Suave Dad Shoe](https://www.highsnobiety.com/p/kith-new-balance-990v4-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 09:24:22 GMT*
+*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
 
 
 ## Kamala Harris
@@ -6196,29 +5008,11 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 ## Kamala Harris
 
-## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+## [All Other Animal Prints Are Extinct: Cowhide Is Now the Moo(d)](https://www.highsnobiety.com/p/cow-print-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 08:40:00 GMT*
-
-
-## John C Reilly
-
-## [The Stefano Pilati-ssance Is Just Beginning](https://www.highsnobiety.com/p/stefano-pilati-comeback/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 08:45:03 GMT*
-
-
-## John C Reilly
-
-## [Kith's Next New Balance Sneaker Is an Admirably Suave Dad Shoe](https://www.highsnobiety.com/p/kith-new-balance-990v4-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 09:24:22 GMT*
+*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
 
 
 ## John C Reilly
@@ -6290,29 +5084,11 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 ## John C Reilly
 
-## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+## [All Other Animal Prints Are Extinct: Cowhide Is Now the Moo(d)](https://www.highsnobiety.com/p/cow-print-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 08:40:00 GMT*
-
-
-## Kardashian
-
-## [The Stefano Pilati-ssance Is Just Beginning](https://www.highsnobiety.com/p/stefano-pilati-comeback/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 08:45:03 GMT*
-
-
-## Kardashian
-
-## [Kith's Next New Balance Sneaker Is an Admirably Suave Dad Shoe](https://www.highsnobiety.com/p/kith-new-balance-990v4-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 09:24:22 GMT*
+*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
 
 
 ## Kardashian
@@ -6384,29 +5160,11 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 ## Kardashian
 
-## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+## [All Other Animal Prints Are Extinct: Cowhide Is Now the Moo(d)](https://www.highsnobiety.com/p/cow-print-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 08:40:00 GMT*
-
-
-## Kanye
-
-## [The Stefano Pilati-ssance Is Just Beginning](https://www.highsnobiety.com/p/stefano-pilati-comeback/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 08:45:03 GMT*
-
-
-## Kanye
-
-## [Kith's Next New Balance Sneaker Is an Admirably Suave Dad Shoe](https://www.highsnobiety.com/p/kith-new-balance-990v4-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 09:24:22 GMT*
+*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
 
 
 ## Kanye
@@ -6478,29 +5236,11 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 ## Kanye
 
-## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+## [All Other Animal Prints Are Extinct: Cowhide Is Now the Moo(d)](https://www.highsnobiety.com/p/cow-print-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 08:40:00 GMT*
-
-
-## Zendaya
-
-## [The Stefano Pilati-ssance Is Just Beginning](https://www.highsnobiety.com/p/stefano-pilati-comeback/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 08:45:03 GMT*
-
-
-## Zendaya
-
-## [Kith's Next New Balance Sneaker Is an Admirably Suave Dad Shoe](https://www.highsnobiety.com/p/kith-new-balance-990v4-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 09:24:22 GMT*
+*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
 
 
 ## Zendaya
@@ -6572,29 +5312,11 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 ## Zendaya
 
-## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+## [All Other Animal Prints Are Extinct: Cowhide Is Now the Moo(d)](https://www.highsnobiety.com/p/cow-print-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 08:40:00 GMT*
-
-
-## Will Ferrell
-
-## [The Stefano Pilati-ssance Is Just Beginning](https://www.highsnobiety.com/p/stefano-pilati-comeback/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 08:45:03 GMT*
-
-
-## Will Ferrell
-
-## [Kith's Next New Balance Sneaker Is an Admirably Suave Dad Shoe](https://www.highsnobiety.com/p/kith-new-balance-990v4-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 09:24:22 GMT*
+*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
 
 
 ## Will Ferrell
@@ -6666,29 +5388,11 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 ## Will Ferrell
 
-## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+## [All Other Animal Prints Are Extinct: Cowhide Is Now the Moo(d)](https://www.highsnobiety.com/p/cow-print-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 08:40:00 GMT*
-
-
-## Zazie Beetz
-
-## [The Stefano Pilati-ssance Is Just Beginning](https://www.highsnobiety.com/p/stefano-pilati-comeback/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 08:45:03 GMT*
-
-
-## Zazie Beetz
-
-## [Kith's Next New Balance Sneaker Is an Admirably Suave Dad Shoe](https://www.highsnobiety.com/p/kith-new-balance-990v4-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 09:24:22 GMT*
+*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
 
 
 ## Zazie Beetz
@@ -6760,29 +5464,11 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 ## Zazie Beetz
 
-## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+## [All Other Animal Prints Are Extinct: Cowhide Is Now the Moo(d)](https://www.highsnobiety.com/p/cow-print-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 08:40:00 GMT*
-
-
-## Bob Odenkirk
-
-## [The Stefano Pilati-ssance Is Just Beginning](https://www.highsnobiety.com/p/stefano-pilati-comeback/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 08:45:03 GMT*
-
-
-## Bob Odenkirk
-
-## [Kith's Next New Balance Sneaker Is an Admirably Suave Dad Shoe](https://www.highsnobiety.com/p/kith-new-balance-990v4-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 09:24:22 GMT*
+*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
 
 
 ## Bob Odenkirk
@@ -6854,29 +5540,11 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 ## Bob Odenkirk
 
-## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+## [All Other Animal Prints Are Extinct: Cowhide Is Now the Moo(d)](https://www.highsnobiety.com/p/cow-print-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 08:40:00 GMT*
-
-
-## Brad Pitt
-
-## [The Stefano Pilati-ssance Is Just Beginning](https://www.highsnobiety.com/p/stefano-pilati-comeback/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 08:45:03 GMT*
-
-
-## Brad Pitt
-
-## [Kith's Next New Balance Sneaker Is an Admirably Suave Dad Shoe](https://www.highsnobiety.com/p/kith-new-balance-990v4-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 09:24:22 GMT*
+*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
 
 
 ## Brad Pitt
@@ -6948,29 +5616,11 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 ## Brad Pitt
 
-## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+## [All Other Animal Prints Are Extinct: Cowhide Is Now the Moo(d)](https://www.highsnobiety.com/p/cow-print-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 08:40:00 GMT*
-
-
-## Beyoncé
-
-## [The Stefano Pilati-ssance Is Just Beginning](https://www.highsnobiety.com/p/stefano-pilati-comeback/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 08:45:03 GMT*
-
-
-## Beyoncé
-
-## [Kith's Next New Balance Sneaker Is an Admirably Suave Dad Shoe](https://www.highsnobiety.com/p/kith-new-balance-990v4-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 09:24:22 GMT*
+*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
 
 
 ## Beyoncé
@@ -7042,29 +5692,11 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 ## Beyoncé
 
-## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+## [All Other Animal Prints Are Extinct: Cowhide Is Now the Moo(d)](https://www.highsnobiety.com/p/cow-print-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 08:40:00 GMT*
-
-
-## Bia
-
-## [The Stefano Pilati-ssance Is Just Beginning](https://www.highsnobiety.com/p/stefano-pilati-comeback/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 08:45:03 GMT*
-
-
-## Bia
-
-## [Kith's Next New Balance Sneaker Is an Admirably Suave Dad Shoe](https://www.highsnobiety.com/p/kith-new-balance-990v4-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 09:24:22 GMT*
+*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
 
 
 ## Bia
@@ -7136,29 +5768,11 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 ## Bia
 
-## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+## [All Other Animal Prints Are Extinct: Cowhide Is Now the Moo(d)](https://www.highsnobiety.com/p/cow-print-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 08:40:00 GMT*
-
-
-## Avantika
-
-## [The Stefano Pilati-ssance Is Just Beginning](https://www.highsnobiety.com/p/stefano-pilati-comeback/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 08:45:03 GMT*
-
-
-## Avantika
-
-## [Kith's Next New Balance Sneaker Is an Admirably Suave Dad Shoe](https://www.highsnobiety.com/p/kith-new-balance-990v4-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 09:24:22 GMT*
+*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
 
 
 ## Avantika
@@ -7230,29 +5844,11 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 ## Avantika
 
-## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+## [All Other Animal Prints Are Extinct: Cowhide Is Now the Moo(d)](https://www.highsnobiety.com/p/cow-print-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 08:40:00 GMT*
-
-
-## Bernie Sanders
-
-## [The Stefano Pilati-ssance Is Just Beginning](https://www.highsnobiety.com/p/stefano-pilati-comeback/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 08:45:03 GMT*
-
-
-## Bernie Sanders
-
-## [Kith's Next New Balance Sneaker Is an Admirably Suave Dad Shoe](https://www.highsnobiety.com/p/kith-new-balance-990v4-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 09:24:22 GMT*
+*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
 
 
 ## Bernie Sanders
@@ -7324,29 +5920,11 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 ## Bernie Sanders
 
-## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+## [All Other Animal Prints Are Extinct: Cowhide Is Now the Moo(d)](https://www.highsnobiety.com/p/cow-print-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 08:40:00 GMT*
-
-
-## Big Sean
-
-## [The Stefano Pilati-ssance Is Just Beginning](https://www.highsnobiety.com/p/stefano-pilati-comeback/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 08:45:03 GMT*
-
-
-## Big Sean
-
-## [Kith's Next New Balance Sneaker Is an Admirably Suave Dad Shoe](https://www.highsnobiety.com/p/kith-new-balance-990v4-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 09:24:22 GMT*
+*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
 
 
 ## Big Sean
@@ -7418,29 +5996,11 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 ## Big Sean
 
-## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+## [All Other Animal Prints Are Extinct: Cowhide Is Now the Moo(d)](https://www.highsnobiety.com/p/cow-print-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 08:40:00 GMT*
-
-
-## BlockBoy JB
-
-## [The Stefano Pilati-ssance Is Just Beginning](https://www.highsnobiety.com/p/stefano-pilati-comeback/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 08:45:03 GMT*
-
-
-## BlockBoy JB
-
-## [Kith's Next New Balance Sneaker Is an Admirably Suave Dad Shoe](https://www.highsnobiety.com/p/kith-new-balance-990v4-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 09:24:22 GMT*
+*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
 
 
 ## BlockBoy JB
@@ -7512,29 +6072,11 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 ## BlockBoy JB
 
-## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+## [All Other Animal Prints Are Extinct: Cowhide Is Now the Moo(d)](https://www.highsnobiety.com/p/cow-print-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 08:40:00 GMT*
-
-
-## Biden
-
-## [The Stefano Pilati-ssance Is Just Beginning](https://www.highsnobiety.com/p/stefano-pilati-comeback/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 08:45:03 GMT*
-
-
-## Biden
-
-## [Kith's Next New Balance Sneaker Is an Admirably Suave Dad Shoe](https://www.highsnobiety.com/p/kith-new-balance-990v4-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 09:24:22 GMT*
+*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
 
 
 ## Biden
@@ -7606,29 +6148,11 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 ## Biden
 
-## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+## [All Other Animal Prints Are Extinct: Cowhide Is Now the Moo(d)](https://www.highsnobiety.com/p/cow-print-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 08:40:00 GMT*
-
-
-## Bieber
-
-## [The Stefano Pilati-ssance Is Just Beginning](https://www.highsnobiety.com/p/stefano-pilati-comeback/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 08:45:03 GMT*
-
-
-## Bieber
-
-## [Kith's Next New Balance Sneaker Is an Admirably Suave Dad Shoe](https://www.highsnobiety.com/p/kith-new-balance-990v4-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 09:24:22 GMT*
+*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
 
 
 ## Bieber
@@ -7700,29 +6224,11 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 ## Bieber
 
-## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+## [All Other Animal Prints Are Extinct: Cowhide Is Now the Moo(d)](https://www.highsnobiety.com/p/cow-print-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 08:40:00 GMT*
-
-
-## Paulina Porizkov
-
-## [The Stefano Pilati-ssance Is Just Beginning](https://www.highsnobiety.com/p/stefano-pilati-comeback/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 08:45:03 GMT*
-
-
-## Paulina Porizkov
-
-## [Kith's Next New Balance Sneaker Is an Admirably Suave Dad Shoe](https://www.highsnobiety.com/p/kith-new-balance-990v4-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 09:24:22 GMT*
+*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
 
 
 ## Paulina Porizkov
@@ -7794,29 +6300,11 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 ## Paulina Porizkov
 
-## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+## [All Other Animal Prints Are Extinct: Cowhide Is Now the Moo(d)](https://www.highsnobiety.com/p/cow-print-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 08:40:00 GMT*
-
-
-## Paris Hilton
-
-## [The Stefano Pilati-ssance Is Just Beginning](https://www.highsnobiety.com/p/stefano-pilati-comeback/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 08:45:03 GMT*
-
-
-## Paris Hilton
-
-## [Kith's Next New Balance Sneaker Is an Admirably Suave Dad Shoe](https://www.highsnobiety.com/p/kith-new-balance-990v4-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 09:24:22 GMT*
+*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
 
 
 ## Paris Hilton
@@ -7888,29 +6376,11 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 ## Paris Hilton
 
-## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+## [All Other Animal Prints Are Extinct: Cowhide Is Now the Moo(d)](https://www.highsnobiety.com/p/cow-print-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 08:40:00 GMT*
-
-
-## Metro Boomin
-
-## [The Stefano Pilati-ssance Is Just Beginning](https://www.highsnobiety.com/p/stefano-pilati-comeback/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 08:45:03 GMT*
-
-
-## Metro Boomin
-
-## [Kith's Next New Balance Sneaker Is an Admirably Suave Dad Shoe](https://www.highsnobiety.com/p/kith-new-balance-990v4-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 09:24:22 GMT*
+*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
 
 
 ## Metro Boomin
@@ -7982,29 +6452,11 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 ## Metro Boomin
 
-## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+## [All Other Animal Prints Are Extinct: Cowhide Is Now the Moo(d)](https://www.highsnobiety.com/p/cow-print-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 08:40:00 GMT*
-
-
-## Meghan Markle
-
-## [The Stefano Pilati-ssance Is Just Beginning](https://www.highsnobiety.com/p/stefano-pilati-comeback/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 08:45:03 GMT*
-
-
-## Meghan Markle
-
-## [Kith's Next New Balance Sneaker Is an Admirably Suave Dad Shoe](https://www.highsnobiety.com/p/kith-new-balance-990v4-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 09:24:22 GMT*
+*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
 
 
 ## Meghan Markle
@@ -8076,29 +6528,11 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 ## Meghan Markle
 
-## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+## [All Other Animal Prints Are Extinct: Cowhide Is Now the Moo(d)](https://www.highsnobiety.com/p/cow-print-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 08:40:00 GMT*
-
-
-## Megan Thee Stallion
-
-## [The Stefano Pilati-ssance Is Just Beginning](https://www.highsnobiety.com/p/stefano-pilati-comeback/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 08:45:03 GMT*
-
-
-## Megan Thee Stallion
-
-## [Kith's Next New Balance Sneaker Is an Admirably Suave Dad Shoe](https://www.highsnobiety.com/p/kith-new-balance-990v4-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 09:24:22 GMT*
+*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
 
 
 ## Megan Thee Stallion
@@ -8170,29 +6604,11 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 ## Megan Thee Stallion
 
-## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+## [All Other Animal Prints Are Extinct: Cowhide Is Now the Moo(d)](https://www.highsnobiety.com/p/cow-print-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 08:40:00 GMT*
-
-
-## Maya Rudolph
-
-## [The Stefano Pilati-ssance Is Just Beginning](https://www.highsnobiety.com/p/stefano-pilati-comeback/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 08:45:03 GMT*
-
-
-## Maya Rudolph
-
-## [Kith's Next New Balance Sneaker Is an Admirably Suave Dad Shoe](https://www.highsnobiety.com/p/kith-new-balance-990v4-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 09:24:22 GMT*
+*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
 
 
 ## Maya Rudolph
@@ -8264,29 +6680,11 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 ## Maya Rudolph
 
-## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+## [All Other Animal Prints Are Extinct: Cowhide Is Now the Moo(d)](https://www.highsnobiety.com/p/cow-print-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 08:40:00 GMT*
-
-
-## Olivia Rodrigo
-
-## [The Stefano Pilati-ssance Is Just Beginning](https://www.highsnobiety.com/p/stefano-pilati-comeback/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 08:45:03 GMT*
-
-
-## Olivia Rodrigo
-
-## [Kith's Next New Balance Sneaker Is an Admirably Suave Dad Shoe](https://www.highsnobiety.com/p/kith-new-balance-990v4-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 09:24:22 GMT*
+*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
 
 
 ## Olivia Rodrigo
@@ -8358,29 +6756,11 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 ## Olivia Rodrigo
 
-## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+## [All Other Animal Prints Are Extinct: Cowhide Is Now the Moo(d)](https://www.highsnobiety.com/p/cow-print-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 08:40:00 GMT*
-
-
-## Obama
-
-## [The Stefano Pilati-ssance Is Just Beginning](https://www.highsnobiety.com/p/stefano-pilati-comeback/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 08:45:03 GMT*
-
-
-## Obama
-
-## [Kith's Next New Balance Sneaker Is an Admirably Suave Dad Shoe](https://www.highsnobiety.com/p/kith-new-balance-990v4-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 09:24:22 GMT*
+*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
 
 
 ## Obama
@@ -8452,29 +6832,11 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 ## Obama
 
-## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+## [All Other Animal Prints Are Extinct: Cowhide Is Now the Moo(d)](https://www.highsnobiety.com/p/cow-print-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 08:40:00 GMT*
-
-
-## Nicki Minaj
-
-## [The Stefano Pilati-ssance Is Just Beginning](https://www.highsnobiety.com/p/stefano-pilati-comeback/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 08:45:03 GMT*
-
-
-## Nicki Minaj
-
-## [Kith's Next New Balance Sneaker Is an Admirably Suave Dad Shoe](https://www.highsnobiety.com/p/kith-new-balance-990v4-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 09:24:22 GMT*
+*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
 
 
 ## Nicki Minaj
@@ -8546,29 +6908,11 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 ## Nicki Minaj
 
-## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+## [All Other Animal Prints Are Extinct: Cowhide Is Now the Moo(d)](https://www.highsnobiety.com/p/cow-print-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 08:40:00 GMT*
-
-
-## MrBeast
-
-## [The Stefano Pilati-ssance Is Just Beginning](https://www.highsnobiety.com/p/stefano-pilati-comeback/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 08:45:03 GMT*
-
-
-## MrBeast
-
-## [Kith's Next New Balance Sneaker Is an Admirably Suave Dad Shoe](https://www.highsnobiety.com/p/kith-new-balance-990v4-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 09:24:22 GMT*
+*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
 
 
 ## MrBeast
@@ -8640,10 +6984,10 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 ## MrBeast
 
-## [Isabel Marant  Converse Drive  a Wedge in the Sneaker Heel Debate ](https://www.highsnobiety.com/p/isabel-marant-converse-sneaker/)
+## [All Other Animal Prints Are Extinct: Cowhide Is Now the Moo(d)](https://www.highsnobiety.com/p/cow-print-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 08:40:00 GMT*
+*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
 
 
