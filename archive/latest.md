@@ -1,24 +1,6 @@
 # Latest Stories
 ## Tim Cook
 
-## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 09:56:08 GMT*
-
-
-## Tim Cook
-
-## [Mr Porter and CHERRY LA's Collab Is a Roadtrip Out West](https://www.highsnobiety.com/p/mr-porter-cherry-la/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 11:00:00 GMT*
-
-
-## Tim Cook
-
 ## [Your Favorite '90s Hair Product Is Back — Original Formula Included](https://www.highsnobiety.com/p/fekkai-glossing-cream-original-formula/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -55,15 +37,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Tim Cook
 
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
+## [ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 15:43:00 GMT
-Thu, 12 Sep 2024 15:23:40 GMT*
+*Published on: Thu, 12 Sep 2024 15:23:40 GMT*
 
 
 ## Tim Cook
@@ -72,25 +50,25 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
+*Published on: Fri, 13 Sep 2024 09:42:59 GMT*
 
 
-## Taylor Swift
+## Tim Cook
+
+## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 09:47:46 GMT*
+
+
+## Tim Cook
 
 ## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 09:56:08 GMT*
-
-
-## Taylor Swift
-
-## [Mr Porter and CHERRY LA's Collab Is a Roadtrip Out West](https://www.highsnobiety.com/p/mr-porter-cherry-la/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 11:00:00 GMT*
+*Published on: Fri, 13 Sep 2024 09:56:08 GMT*
 
 
 ## Taylor Swift
@@ -131,15 +109,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Taylor Swift
 
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
+## [ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 15:43:00 GMT
-Thu, 12 Sep 2024 15:23:40 GMT*
+*Published on: Thu, 12 Sep 2024 15:23:40 GMT*
 
 
 ## Taylor Swift
@@ -148,25 +122,25 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
+*Published on: Fri, 13 Sep 2024 09:42:59 GMT*
 
 
-## Tom Brady
+## Taylor Swift
+
+## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 09:47:46 GMT*
+
+
+## Taylor Swift
 
 ## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 09:56:08 GMT*
-
-
-## Tom Brady
-
-## [Mr Porter and CHERRY LA's Collab Is a Roadtrip Out West](https://www.highsnobiety.com/p/mr-porter-cherry-la/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 11:00:00 GMT*
+*Published on: Fri, 13 Sep 2024 09:56:08 GMT*
 
 
 ## Tom Brady
@@ -207,15 +181,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Tom Brady
 
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
+## [ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 15:43:00 GMT
-Thu, 12 Sep 2024 15:23:40 GMT*
+*Published on: Thu, 12 Sep 2024 15:23:40 GMT*
 
 
 ## Tom Brady
@@ -224,25 +194,25 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
+*Published on: Fri, 13 Sep 2024 09:42:59 GMT*
 
 
-## Tina Fey
+## Tom Brady
+
+## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 09:47:46 GMT*
+
+
+## Tom Brady
 
 ## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 09:56:08 GMT*
-
-
-## Tina Fey
-
-## [Mr Porter and CHERRY LA's Collab Is a Roadtrip Out West](https://www.highsnobiety.com/p/mr-porter-cherry-la/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 11:00:00 GMT*
+*Published on: Fri, 13 Sep 2024 09:56:08 GMT*
 
 
 ## Tina Fey
@@ -283,15 +253,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Tina Fey
 
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
+## [ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 15:43:00 GMT
-Thu, 12 Sep 2024 15:23:40 GMT*
+*Published on: Thu, 12 Sep 2024 15:23:40 GMT*
 
 
 ## Tina Fey
@@ -300,25 +266,25 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
+*Published on: Fri, 13 Sep 2024 09:42:59 GMT*
 
 
-## Steven Yuen
+## Tina Fey
+
+## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 09:47:46 GMT*
+
+
+## Tina Fey
 
 ## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 09:56:08 GMT*
-
-
-## Steven Yuen
-
-## [Mr Porter and CHERRY LA's Collab Is a Roadtrip Out West](https://www.highsnobiety.com/p/mr-porter-cherry-la/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 11:00:00 GMT*
+*Published on: Fri, 13 Sep 2024 09:56:08 GMT*
 
 
 ## Steven Yuen
@@ -359,15 +325,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Steven Yuen
 
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
+## [ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 15:43:00 GMT
-Thu, 12 Sep 2024 15:23:40 GMT*
+*Published on: Thu, 12 Sep 2024 15:23:40 GMT*
 
 
 ## Steven Yuen
@@ -376,25 +338,25 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
+*Published on: Fri, 13 Sep 2024 09:42:59 GMT*
 
 
-## Sommer Ray
+## Steven Yuen
+
+## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 09:47:46 GMT*
+
+
+## Steven Yuen
 
 ## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 09:56:08 GMT*
-
-
-## Sommer Ray
-
-## [Mr Porter and CHERRY LA's Collab Is a Roadtrip Out West](https://www.highsnobiety.com/p/mr-porter-cherry-la/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 11:00:00 GMT*
+*Published on: Fri, 13 Sep 2024 09:56:08 GMT*
 
 
 ## Sommer Ray
@@ -435,15 +397,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Sommer Ray
 
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
+## [ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 15:43:00 GMT
-Thu, 12 Sep 2024 15:23:40 GMT*
+*Published on: Thu, 12 Sep 2024 15:23:40 GMT*
 
 
 ## Sommer Ray
@@ -452,25 +410,25 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
+*Published on: Fri, 13 Sep 2024 09:42:59 GMT*
 
 
-## Sza
+## Sommer Ray
+
+## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 09:47:46 GMT*
+
+
+## Sommer Ray
 
 ## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 09:56:08 GMT*
-
-
-## Sza
-
-## [Mr Porter and CHERRY LA's Collab Is a Roadtrip Out West](https://www.highsnobiety.com/p/mr-porter-cherry-la/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 11:00:00 GMT*
+*Published on: Fri, 13 Sep 2024 09:56:08 GMT*
 
 
 ## Sza
@@ -511,15 +469,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Sza
 
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
+## [ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 15:43:00 GMT
-Thu, 12 Sep 2024 15:23:40 GMT*
+*Published on: Thu, 12 Sep 2024 15:23:40 GMT*
 
 
 ## Sza
@@ -528,25 +482,25 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
+*Published on: Fri, 13 Sep 2024 09:42:59 GMT*
 
 
-## Sydney Sweeney
+## Sza
+
+## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 09:47:46 GMT*
+
+
+## Sza
 
 ## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 09:56:08 GMT*
-
-
-## Sydney Sweeney
-
-## [Mr Porter and CHERRY LA's Collab Is a Roadtrip Out West](https://www.highsnobiety.com/p/mr-porter-cherry-la/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 11:00:00 GMT*
+*Published on: Fri, 13 Sep 2024 09:56:08 GMT*
 
 
 ## Sydney Sweeney
@@ -587,15 +541,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Sydney Sweeney
 
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
+## [ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 15:43:00 GMT
-Thu, 12 Sep 2024 15:23:40 GMT*
+*Published on: Thu, 12 Sep 2024 15:23:40 GMT*
 
 
 ## Sydney Sweeney
@@ -604,25 +554,25 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
+*Published on: Fri, 13 Sep 2024 09:42:59 GMT*
 
 
-## Walton Goggins
+## Sydney Sweeney
+
+## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 09:47:46 GMT*
+
+
+## Sydney Sweeney
 
 ## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 09:56:08 GMT*
-
-
-## Walton Goggins
-
-## [Mr Porter and CHERRY LA's Collab Is a Roadtrip Out West](https://www.highsnobiety.com/p/mr-porter-cherry-la/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 11:00:00 GMT*
+*Published on: Fri, 13 Sep 2024 09:56:08 GMT*
 
 
 ## Walton Goggins
@@ -663,15 +613,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Walton Goggins
 
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
+## [ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 15:43:00 GMT
-Thu, 12 Sep 2024 15:23:40 GMT*
+*Published on: Thu, 12 Sep 2024 15:23:40 GMT*
 
 
 ## Walton Goggins
@@ -680,25 +626,25 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
+*Published on: Fri, 13 Sep 2024 09:42:59 GMT*
 
 
-## Tom Holland
+## Walton Goggins
+
+## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 09:47:46 GMT*
+
+
+## Walton Goggins
 
 ## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 09:56:08 GMT*
-
-
-## Tom Holland
-
-## [Mr Porter and CHERRY LA's Collab Is a Roadtrip Out West](https://www.highsnobiety.com/p/mr-porter-cherry-la/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 11:00:00 GMT*
+*Published on: Fri, 13 Sep 2024 09:56:08 GMT*
 
 
 ## Tom Holland
@@ -739,15 +685,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Tom Holland
 
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
+## [ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 15:43:00 GMT
-Thu, 12 Sep 2024 15:23:40 GMT*
+*Published on: Thu, 12 Sep 2024 15:23:40 GMT*
 
 
 ## Tom Holland
@@ -756,25 +698,25 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
+*Published on: Fri, 13 Sep 2024 09:42:59 GMT*
 
 
-## Gucci Mane
+## Tom Holland
+
+## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 09:47:46 GMT*
+
+
+## Tom Holland
 
 ## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 09:56:08 GMT*
-
-
-## Gucci Mane
-
-## [Mr Porter and CHERRY LA's Collab Is a Roadtrip Out West](https://www.highsnobiety.com/p/mr-porter-cherry-la/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 11:00:00 GMT*
+*Published on: Fri, 13 Sep 2024 09:56:08 GMT*
 
 
 ## Gucci Mane
@@ -815,15 +757,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Gucci Mane
 
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
+## [ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 15:43:00 GMT
-Thu, 12 Sep 2024 15:23:40 GMT*
+*Published on: Thu, 12 Sep 2024 15:23:40 GMT*
 
 
 ## Gucci Mane
@@ -832,25 +770,25 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
+*Published on: Fri, 13 Sep 2024 09:42:59 GMT*
 
 
-## Harry Styles
+## Gucci Mane
+
+## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 09:47:46 GMT*
+
+
+## Gucci Mane
 
 ## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 09:56:08 GMT*
-
-
-## Harry Styles
-
-## [Mr Porter and CHERRY LA's Collab Is a Roadtrip Out West](https://www.highsnobiety.com/p/mr-porter-cherry-la/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 11:00:00 GMT*
+*Published on: Fri, 13 Sep 2024 09:56:08 GMT*
 
 
 ## Harry Styles
@@ -891,15 +829,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Harry Styles
 
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
+## [ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 15:43:00 GMT
-Thu, 12 Sep 2024 15:23:40 GMT*
+*Published on: Thu, 12 Sep 2024 15:23:40 GMT*
 
 
 ## Harry Styles
@@ -908,25 +842,25 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
+*Published on: Fri, 13 Sep 2024 09:42:59 GMT*
 
 
-## Jake Paul
+## Harry Styles
+
+## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 09:47:46 GMT*
+
+
+## Harry Styles
 
 ## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 09:56:08 GMT*
-
-
-## Jake Paul
-
-## [Mr Porter and CHERRY LA's Collab Is a Roadtrip Out West](https://www.highsnobiety.com/p/mr-porter-cherry-la/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 11:00:00 GMT*
+*Published on: Fri, 13 Sep 2024 09:56:08 GMT*
 
 
 ## Jake Paul
@@ -967,15 +901,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Jake Paul
 
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
+## [ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 15:43:00 GMT
-Thu, 12 Sep 2024 15:23:40 GMT*
+*Published on: Thu, 12 Sep 2024 15:23:40 GMT*
 
 
 ## Jake Paul
@@ -984,25 +914,25 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
+*Published on: Fri, 13 Sep 2024 09:42:59 GMT*
 
 
-## Jameela Jamil
+## Jake Paul
+
+## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 09:47:46 GMT*
+
+
+## Jake Paul
 
 ## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 09:56:08 GMT*
-
-
-## Jameela Jamil
-
-## [Mr Porter and CHERRY LA's Collab Is a Roadtrip Out West](https://www.highsnobiety.com/p/mr-porter-cherry-la/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 11:00:00 GMT*
+*Published on: Fri, 13 Sep 2024 09:56:08 GMT*
 
 
 ## Jameela Jamil
@@ -1043,15 +973,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Jameela Jamil
 
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
+## [ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 15:43:00 GMT
-Thu, 12 Sep 2024 15:23:40 GMT*
+*Published on: Thu, 12 Sep 2024 15:23:40 GMT*
 
 
 ## Jameela Jamil
@@ -1060,25 +986,25 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
+*Published on: Fri, 13 Sep 2024 09:42:59 GMT*
 
 
-## Elon Musk
+## Jameela Jamil
+
+## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 09:47:46 GMT*
+
+
+## Jameela Jamil
 
 ## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 09:56:08 GMT*
-
-
-## Elon Musk
-
-## [Mr Porter and CHERRY LA's Collab Is a Roadtrip Out West](https://www.highsnobiety.com/p/mr-porter-cherry-la/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 11:00:00 GMT*
+*Published on: Fri, 13 Sep 2024 09:56:08 GMT*
 
 
 ## Elon Musk
@@ -1119,15 +1045,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Elon Musk
 
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
+## [ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 15:43:00 GMT
-Thu, 12 Sep 2024 15:23:40 GMT*
+*Published on: Thu, 12 Sep 2024 15:23:40 GMT*
 
 
 ## Elon Musk
@@ -1136,25 +1058,25 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
+*Published on: Fri, 13 Sep 2024 09:42:59 GMT*
 
 
-## Gabrielle Union
+## Elon Musk
+
+## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 09:47:46 GMT*
+
+
+## Elon Musk
 
 ## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 09:56:08 GMT*
-
-
-## Gabrielle Union
-
-## [Mr Porter and CHERRY LA's Collab Is a Roadtrip Out West](https://www.highsnobiety.com/p/mr-porter-cherry-la/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 11:00:00 GMT*
+*Published on: Fri, 13 Sep 2024 09:56:08 GMT*
 
 
 ## Gabrielle Union
@@ -1195,15 +1117,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Gabrielle Union
 
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
+## [ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 15:43:00 GMT
-Thu, 12 Sep 2024 15:23:40 GMT*
+*Published on: Thu, 12 Sep 2024 15:23:40 GMT*
 
 
 ## Gabrielle Union
@@ -1212,25 +1130,25 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
+*Published on: Fri, 13 Sep 2024 09:42:59 GMT*
 
 
-## Giancarlo Esposito
+## Gabrielle Union
+
+## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 09:47:46 GMT*
+
+
+## Gabrielle Union
 
 ## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 09:56:08 GMT*
-
-
-## Giancarlo Esposito
-
-## [Mr Porter and CHERRY LA's Collab Is a Roadtrip Out West](https://www.highsnobiety.com/p/mr-porter-cherry-la/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 11:00:00 GMT*
+*Published on: Fri, 13 Sep 2024 09:56:08 GMT*
 
 
 ## Giancarlo Esposito
@@ -1271,15 +1189,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Giancarlo Esposito
 
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
+## [ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 15:43:00 GMT
-Thu, 12 Sep 2024 15:23:40 GMT*
+*Published on: Thu, 12 Sep 2024 15:23:40 GMT*
 
 
 ## Giancarlo Esposito
@@ -1288,25 +1202,25 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
+*Published on: Fri, 13 Sep 2024 09:42:59 GMT*
 
 
-## Gillian Jacobs
+## Giancarlo Esposito
+
+## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 09:47:46 GMT*
+
+
+## Giancarlo Esposito
 
 ## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 09:56:08 GMT*
-
-
-## Gillian Jacobs
-
-## [Mr Porter and CHERRY LA's Collab Is a Roadtrip Out West](https://www.highsnobiety.com/p/mr-porter-cherry-la/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 11:00:00 GMT*
+*Published on: Fri, 13 Sep 2024 09:56:08 GMT*
 
 
 ## Gillian Jacobs
@@ -1347,15 +1261,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Gillian Jacobs
 
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
+## [ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 15:43:00 GMT
-Thu, 12 Sep 2024 15:23:40 GMT*
+*Published on: Thu, 12 Sep 2024 15:23:40 GMT*
 
 
 ## Gillian Jacobs
@@ -1364,25 +1274,25 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
+*Published on: Fri, 13 Sep 2024 09:42:59 GMT*
 
 
-## Jason Mantzoukas
+## Gillian Jacobs
+
+## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 09:47:46 GMT*
+
+
+## Gillian Jacobs
 
 ## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 09:56:08 GMT*
-
-
-## Jason Mantzoukas
-
-## [Mr Porter and CHERRY LA's Collab Is a Roadtrip Out West](https://www.highsnobiety.com/p/mr-porter-cherry-la/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 11:00:00 GMT*
+*Published on: Fri, 13 Sep 2024 09:56:08 GMT*
 
 
 ## Jason Mantzoukas
@@ -1423,15 +1333,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Jason Mantzoukas
 
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
+## [ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 15:43:00 GMT
-Thu, 12 Sep 2024 15:23:40 GMT*
+*Published on: Thu, 12 Sep 2024 15:23:40 GMT*
 
 
 ## Jason Mantzoukas
@@ -1440,25 +1346,25 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
+*Published on: Fri, 13 Sep 2024 09:42:59 GMT*
 
 
-## JB Smoove
+## Jason Mantzoukas
+
+## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 09:47:46 GMT*
+
+
+## Jason Mantzoukas
 
 ## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 09:56:08 GMT*
-
-
-## JB Smoove
-
-## [Mr Porter and CHERRY LA's Collab Is a Roadtrip Out West](https://www.highsnobiety.com/p/mr-porter-cherry-la/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 11:00:00 GMT*
+*Published on: Fri, 13 Sep 2024 09:56:08 GMT*
 
 
 ## JB Smoove
@@ -1499,15 +1405,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## JB Smoove
 
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
+## [ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 15:43:00 GMT
-Thu, 12 Sep 2024 15:23:40 GMT*
+*Published on: Thu, 12 Sep 2024 15:23:40 GMT*
 
 
 ## JB Smoove
@@ -1516,25 +1418,25 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
+*Published on: Fri, 13 Sep 2024 09:42:59 GMT*
 
 
-## Madison Pettis
+## JB Smoove
+
+## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 09:47:46 GMT*
+
+
+## JB Smoove
 
 ## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 09:56:08 GMT*
-
-
-## Madison Pettis
-
-## [Mr Porter and CHERRY LA's Collab Is a Roadtrip Out West](https://www.highsnobiety.com/p/mr-porter-cherry-la/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 11:00:00 GMT*
+*Published on: Fri, 13 Sep 2024 09:56:08 GMT*
 
 
 ## Madison Pettis
@@ -1575,15 +1477,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Madison Pettis
 
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
+## [ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 15:43:00 GMT
-Thu, 12 Sep 2024 15:23:40 GMT*
+*Published on: Thu, 12 Sep 2024 15:23:40 GMT*
 
 
 ## Madison Pettis
@@ -1592,25 +1490,25 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
+*Published on: Fri, 13 Sep 2024 09:42:59 GMT*
 
 
-## Austin Butler
+## Madison Pettis
+
+## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 09:47:46 GMT*
+
+
+## Madison Pettis
 
 ## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 09:56:08 GMT*
-
-
-## Austin Butler
-
-## [Mr Porter and CHERRY LA's Collab Is a Roadtrip Out West](https://www.highsnobiety.com/p/mr-porter-cherry-la/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 11:00:00 GMT*
+*Published on: Fri, 13 Sep 2024 09:56:08 GMT*
 
 
 ## Austin Butler
@@ -1651,15 +1549,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Austin Butler
 
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
+## [ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 15:43:00 GMT
-Thu, 12 Sep 2024 15:23:40 GMT*
+*Published on: Thu, 12 Sep 2024 15:23:40 GMT*
 
 
 ## Austin Butler
@@ -1668,25 +1562,25 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
+*Published on: Fri, 13 Sep 2024 09:42:59 GMT*
 
 
-## Mark Zuckerberg
+## Austin Butler
+
+## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 09:47:46 GMT*
+
+
+## Austin Butler
 
 ## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 09:56:08 GMT*
-
-
-## Mark Zuckerberg
-
-## [Mr Porter and CHERRY LA's Collab Is a Roadtrip Out West](https://www.highsnobiety.com/p/mr-porter-cherry-la/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 11:00:00 GMT*
+*Published on: Fri, 13 Sep 2024 09:56:08 GMT*
 
 
 ## Mark Zuckerberg
@@ -1727,15 +1621,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Mark Zuckerberg
 
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
+## [ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 15:43:00 GMT
-Thu, 12 Sep 2024 15:23:40 GMT*
+*Published on: Thu, 12 Sep 2024 15:23:40 GMT*
 
 
 ## Mark Zuckerberg
@@ -1744,25 +1634,25 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
+*Published on: Fri, 13 Sep 2024 09:42:59 GMT*
 
 
-## Ariana Grande
+## Mark Zuckerberg
+
+## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 09:47:46 GMT*
+
+
+## Mark Zuckerberg
 
 ## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 09:56:08 GMT*
-
-
-## Ariana Grande
-
-## [Mr Porter and CHERRY LA's Collab Is a Roadtrip Out West](https://www.highsnobiety.com/p/mr-porter-cherry-la/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 11:00:00 GMT*
+*Published on: Fri, 13 Sep 2024 09:56:08 GMT*
 
 
 ## Ariana Grande
@@ -1803,15 +1693,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Ariana Grande
 
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
+## [ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 15:43:00 GMT
-Thu, 12 Sep 2024 15:23:40 GMT*
+*Published on: Thu, 12 Sep 2024 15:23:40 GMT*
 
 
 ## Ariana Grande
@@ -1820,25 +1706,25 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
+*Published on: Fri, 13 Sep 2024 09:42:59 GMT*
 
 
-## Livvy Dunne
+## Ariana Grande
+
+## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 09:47:46 GMT*
+
+
+## Ariana Grande
 
 ## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 09:56:08 GMT*
-
-
-## Livvy Dunne
-
-## [Mr Porter and CHERRY LA's Collab Is a Roadtrip Out West](https://www.highsnobiety.com/p/mr-porter-cherry-la/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 11:00:00 GMT*
+*Published on: Fri, 13 Sep 2024 09:56:08 GMT*
 
 
 ## Livvy Dunne
@@ -1879,15 +1765,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Livvy Dunne
 
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
+## [ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 15:43:00 GMT
-Thu, 12 Sep 2024 15:23:40 GMT*
+*Published on: Thu, 12 Sep 2024 15:23:40 GMT*
 
 
 ## Livvy Dunne
@@ -1896,25 +1778,25 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
+*Published on: Fri, 13 Sep 2024 09:42:59 GMT*
 
 
-## Ali Wong
+## Livvy Dunne
+
+## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 09:47:46 GMT*
+
+
+## Livvy Dunne
 
 ## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 09:56:08 GMT*
-
-
-## Ali Wong
-
-## [Mr Porter and CHERRY LA's Collab Is a Roadtrip Out West](https://www.highsnobiety.com/p/mr-porter-cherry-la/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 11:00:00 GMT*
+*Published on: Fri, 13 Sep 2024 09:56:08 GMT*
 
 
 ## Ali Wong
@@ -1955,15 +1837,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Ali Wong
 
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
+## [ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 15:43:00 GMT
-Thu, 12 Sep 2024 15:23:40 GMT*
+*Published on: Thu, 12 Sep 2024 15:23:40 GMT*
 
 
 ## Ali Wong
@@ -1972,25 +1850,25 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
+*Published on: Fri, 13 Sep 2024 09:42:59 GMT*
 
 
-## Lizzo
+## Ali Wong
+
+## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 09:47:46 GMT*
+
+
+## Ali Wong
 
 ## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 09:56:08 GMT*
-
-
-## Lizzo
-
-## [Mr Porter and CHERRY LA's Collab Is a Roadtrip Out West](https://www.highsnobiety.com/p/mr-porter-cherry-la/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 11:00:00 GMT*
+*Published on: Fri, 13 Sep 2024 09:56:08 GMT*
 
 
 ## Lizzo
@@ -2031,15 +1909,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Lizzo
 
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
+## [ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 15:43:00 GMT
-Thu, 12 Sep 2024 15:23:40 GMT*
+*Published on: Thu, 12 Sep 2024 15:23:40 GMT*
 
 
 ## Lizzo
@@ -2048,25 +1922,25 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
+*Published on: Fri, 13 Sep 2024 09:42:59 GMT*
 
 
-## Alison Brie
+## Lizzo
+
+## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 09:47:46 GMT*
+
+
+## Lizzo
 
 ## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 09:56:08 GMT*
-
-
-## Alison Brie
-
-## [Mr Porter and CHERRY LA's Collab Is a Roadtrip Out West](https://www.highsnobiety.com/p/mr-porter-cherry-la/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 11:00:00 GMT*
+*Published on: Fri, 13 Sep 2024 09:56:08 GMT*
 
 
 ## Alison Brie
@@ -2107,15 +1981,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Alison Brie
 
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
+## [ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 15:43:00 GMT
-Thu, 12 Sep 2024 15:23:40 GMT*
+*Published on: Thu, 12 Sep 2024 15:23:40 GMT*
 
 
 ## Alison Brie
@@ -2124,25 +1994,25 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
+*Published on: Fri, 13 Sep 2024 09:42:59 GMT*
 
 
-## Lil Wayne
+## Alison Brie
+
+## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 09:47:46 GMT*
+
+
+## Alison Brie
 
 ## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 09:56:08 GMT*
-
-
-## Lil Wayne
-
-## [Mr Porter and CHERRY LA's Collab Is a Roadtrip Out West](https://www.highsnobiety.com/p/mr-porter-cherry-la/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 11:00:00 GMT*
+*Published on: Fri, 13 Sep 2024 09:56:08 GMT*
 
 
 ## Lil Wayne
@@ -2183,15 +2053,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Lil Wayne
 
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
+## [ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 15:43:00 GMT
-Thu, 12 Sep 2024 15:23:40 GMT*
+*Published on: Thu, 12 Sep 2024 15:23:40 GMT*
 
 
 ## Lil Wayne
@@ -2200,25 +2066,25 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
+*Published on: Fri, 13 Sep 2024 09:42:59 GMT*
 
 
-## Adele
+## Lil Wayne
+
+## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 09:47:46 GMT*
+
+
+## Lil Wayne
 
 ## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 09:56:08 GMT*
-
-
-## Adele
-
-## [Mr Porter and CHERRY LA's Collab Is a Roadtrip Out West](https://www.highsnobiety.com/p/mr-porter-cherry-la/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 11:00:00 GMT*
+*Published on: Fri, 13 Sep 2024 09:56:08 GMT*
 
 
 ## Adele
@@ -2259,15 +2125,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Adele
 
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
+## [ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 15:43:00 GMT
-Thu, 12 Sep 2024 15:23:40 GMT*
+*Published on: Thu, 12 Sep 2024 15:23:40 GMT*
 
 
 ## Adele
@@ -2276,25 +2138,25 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
+*Published on: Fri, 13 Sep 2024 09:42:59 GMT*
 
 
-## Lindsay Lohan
+## Adele
+
+## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 09:47:46 GMT*
+
+
+## Adele
 
 ## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 09:56:08 GMT*
-
-
-## Lindsay Lohan
-
-## [Mr Porter and CHERRY LA's Collab Is a Roadtrip Out West](https://www.highsnobiety.com/p/mr-porter-cherry-la/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 11:00:00 GMT*
+*Published on: Fri, 13 Sep 2024 09:56:08 GMT*
 
 
 ## Lindsay Lohan
@@ -2335,15 +2197,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Lindsay Lohan
 
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
+## [ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 15:43:00 GMT
-Thu, 12 Sep 2024 15:23:40 GMT*
+*Published on: Thu, 12 Sep 2024 15:23:40 GMT*
 
 
 ## Lindsay Lohan
@@ -2352,25 +2210,25 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
+*Published on: Fri, 13 Sep 2024 09:42:59 GMT*
 
 
-## Addison Rae
+## Lindsay Lohan
+
+## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 09:47:46 GMT*
+
+
+## Lindsay Lohan
 
 ## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 09:56:08 GMT*
-
-
-## Addison Rae
-
-## [Mr Porter and CHERRY LA's Collab Is a Roadtrip Out West](https://www.highsnobiety.com/p/mr-porter-cherry-la/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 11:00:00 GMT*
+*Published on: Fri, 13 Sep 2024 09:56:08 GMT*
 
 
 ## Addison Rae
@@ -2411,15 +2269,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Addison Rae
 
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
+## [ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 15:43:00 GMT
-Thu, 12 Sep 2024 15:23:40 GMT*
+*Published on: Thu, 12 Sep 2024 15:23:40 GMT*
 
 
 ## Addison Rae
@@ -2428,25 +2282,25 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
+*Published on: Fri, 13 Sep 2024 09:42:59 GMT*
 
 
-## Latto
+## Addison Rae
+
+## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 09:47:46 GMT*
+
+
+## Addison Rae
 
 ## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 09:56:08 GMT*
-
-
-## Latto
-
-## [Mr Porter and CHERRY LA's Collab Is a Roadtrip Out West](https://www.highsnobiety.com/p/mr-porter-cherry-la/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 11:00:00 GMT*
+*Published on: Fri, 13 Sep 2024 09:56:08 GMT*
 
 
 ## Latto
@@ -2487,15 +2341,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Latto
 
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
+## [ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 15:43:00 GMT
-Thu, 12 Sep 2024 15:23:40 GMT*
+*Published on: Thu, 12 Sep 2024 15:23:40 GMT*
 
 
 ## Latto
@@ -2504,25 +2354,25 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
+*Published on: Fri, 13 Sep 2024 09:42:59 GMT*
 
 
-## Aaron Paul
+## Latto
+
+## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 09:47:46 GMT*
+
+
+## Latto
 
 ## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 09:56:08 GMT*
-
-
-## Aaron Paul
-
-## [Mr Porter and CHERRY LA's Collab Is a Roadtrip Out West](https://www.highsnobiety.com/p/mr-porter-cherry-la/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 11:00:00 GMT*
+*Published on: Fri, 13 Sep 2024 09:56:08 GMT*
 
 
 ## Aaron Paul
@@ -2563,15 +2413,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Aaron Paul
 
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
+## [ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 15:43:00 GMT
-Thu, 12 Sep 2024 15:23:40 GMT*
+*Published on: Thu, 12 Sep 2024 15:23:40 GMT*
 
 
 ## Aaron Paul
@@ -2580,25 +2426,25 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
+*Published on: Fri, 13 Sep 2024 09:42:59 GMT*
 
 
-## LeBron James
+## Aaron Paul
+
+## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 09:47:46 GMT*
+
+
+## Aaron Paul
 
 ## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 09:56:08 GMT*
-
-
-## LeBron James
-
-## [Mr Porter and CHERRY LA's Collab Is a Roadtrip Out West](https://www.highsnobiety.com/p/mr-porter-cherry-la/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 11:00:00 GMT*
+*Published on: Fri, 13 Sep 2024 09:56:08 GMT*
 
 
 ## LeBron James
@@ -2639,15 +2485,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## LeBron James
 
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
+## [ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 15:43:00 GMT
-Thu, 12 Sep 2024 15:23:40 GMT*
+*Published on: Thu, 12 Sep 2024 15:23:40 GMT*
 
 
 ## LeBron James
@@ -2656,25 +2498,25 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
+*Published on: Fri, 13 Sep 2024 09:42:59 GMT*
 
 
-## 50 Cent
+## LeBron James
+
+## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 09:47:46 GMT*
+
+
+## LeBron James
 
 ## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 09:56:08 GMT*
-
-
-## 50 Cent
-
-## [Mr Porter and CHERRY LA's Collab Is a Roadtrip Out West](https://www.highsnobiety.com/p/mr-porter-cherry-la/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 11:00:00 GMT*
+*Published on: Fri, 13 Sep 2024 09:56:08 GMT*
 
 
 ## 50 Cent
@@ -2715,15 +2557,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## 50 Cent
 
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
+## [ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 15:43:00 GMT
-Thu, 12 Sep 2024 15:23:40 GMT*
+*Published on: Thu, 12 Sep 2024 15:23:40 GMT*
 
 
 ## 50 Cent
@@ -2732,25 +2570,25 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
+*Published on: Fri, 13 Sep 2024 09:42:59 GMT*
 
 
-## Kesha
+## 50 Cent
+
+## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 09:47:46 GMT*
+
+
+## 50 Cent
 
 ## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 09:56:08 GMT*
-
-
-## Kesha
-
-## [Mr Porter and CHERRY LA's Collab Is a Roadtrip Out West](https://www.highsnobiety.com/p/mr-porter-cherry-la/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 11:00:00 GMT*
+*Published on: Fri, 13 Sep 2024 09:56:08 GMT*
 
 
 ## Kesha
@@ -2791,15 +2629,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Kesha
 
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
+## [ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 15:43:00 GMT
-Thu, 12 Sep 2024 15:23:40 GMT*
+*Published on: Thu, 12 Sep 2024 15:23:40 GMT*
 
 
 ## Kesha
@@ -2808,25 +2642,25 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
+*Published on: Fri, 13 Sep 2024 09:42:59 GMT*
 
 
-## 21 Savage
+## Kesha
+
+## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 09:47:46 GMT*
+
+
+## Kesha
 
 ## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 09:56:08 GMT*
-
-
-## 21 Savage
-
-## [Mr Porter and CHERRY LA's Collab Is a Roadtrip Out West](https://www.highsnobiety.com/p/mr-porter-cherry-la/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 11:00:00 GMT*
+*Published on: Fri, 13 Sep 2024 09:56:08 GMT*
 
 
 ## 21 Savage
@@ -2867,15 +2701,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## 21 Savage
 
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
+## [ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 15:43:00 GMT
-Thu, 12 Sep 2024 15:23:40 GMT*
+*Published on: Thu, 12 Sep 2024 15:23:40 GMT*
 
 
 ## 21 Savage
@@ -2884,25 +2714,25 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
+*Published on: Fri, 13 Sep 2024 09:42:59 GMT*
 
 
-## Larry David
+## 21 Savage
+
+## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 09:47:46 GMT*
+
+
+## 21 Savage
 
 ## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 09:56:08 GMT*
-
-
-## Larry David
-
-## [Mr Porter and CHERRY LA's Collab Is a Roadtrip Out West](https://www.highsnobiety.com/p/mr-porter-cherry-la/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 11:00:00 GMT*
+*Published on: Fri, 13 Sep 2024 09:56:08 GMT*
 
 
 ## Larry David
@@ -2943,15 +2773,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Larry David
 
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
+## [ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 15:43:00 GMT
-Thu, 12 Sep 2024 15:23:40 GMT*
+*Published on: Thu, 12 Sep 2024 15:23:40 GMT*
 
 
 ## Larry David
@@ -2960,25 +2786,25 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
+*Published on: Fri, 13 Sep 2024 09:42:59 GMT*
 
 
-## Seth Rogan
+## Larry David
+
+## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 09:47:46 GMT*
+
+
+## Larry David
 
 ## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 09:56:08 GMT*
-
-
-## Seth Rogan
-
-## [Mr Porter and CHERRY LA's Collab Is a Roadtrip Out West](https://www.highsnobiety.com/p/mr-porter-cherry-la/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 11:00:00 GMT*
+*Published on: Fri, 13 Sep 2024 09:56:08 GMT*
 
 
 ## Seth Rogan
@@ -3019,15 +2845,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Seth Rogan
 
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
+## [ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 15:43:00 GMT
-Thu, 12 Sep 2024 15:23:40 GMT*
+*Published on: Thu, 12 Sep 2024 15:23:40 GMT*
 
 
 ## Seth Rogan
@@ -3036,25 +2858,25 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
+*Published on: Fri, 13 Sep 2024 09:42:59 GMT*
 
 
-## Simone Biles
+## Seth Rogan
+
+## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 09:47:46 GMT*
+
+
+## Seth Rogan
 
 ## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 09:56:08 GMT*
-
-
-## Simone Biles
-
-## [Mr Porter and CHERRY LA's Collab Is a Roadtrip Out West](https://www.highsnobiety.com/p/mr-porter-cherry-la/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 11:00:00 GMT*
+*Published on: Fri, 13 Sep 2024 09:56:08 GMT*
 
 
 ## Simone Biles
@@ -3095,15 +2917,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Simone Biles
 
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
+## [ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 15:43:00 GMT
-Thu, 12 Sep 2024 15:23:40 GMT*
+*Published on: Thu, 12 Sep 2024 15:23:40 GMT*
 
 
 ## Simone Biles
@@ -3112,25 +2930,25 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
+*Published on: Fri, 13 Sep 2024 09:42:59 GMT*
 
 
-## Pete Davidson
+## Simone Biles
+
+## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 09:47:46 GMT*
+
+
+## Simone Biles
 
 ## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 09:56:08 GMT*
-
-
-## Pete Davidson
-
-## [Mr Porter and CHERRY LA's Collab Is a Roadtrip Out West](https://www.highsnobiety.com/p/mr-porter-cherry-la/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 11:00:00 GMT*
+*Published on: Fri, 13 Sep 2024 09:56:08 GMT*
 
 
 ## Pete Davidson
@@ -3171,15 +2989,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Pete Davidson
 
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
+## [ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 15:43:00 GMT
-Thu, 12 Sep 2024 15:23:40 GMT*
+*Published on: Thu, 12 Sep 2024 15:23:40 GMT*
 
 
 ## Pete Davidson
@@ -3188,25 +3002,25 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
+*Published on: Fri, 13 Sep 2024 09:42:59 GMT*
 
 
-## Prince Harry
+## Pete Davidson
+
+## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 09:47:46 GMT*
+
+
+## Pete Davidson
 
 ## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 09:56:08 GMT*
-
-
-## Prince Harry
-
-## [Mr Porter and CHERRY LA's Collab Is a Roadtrip Out West](https://www.highsnobiety.com/p/mr-porter-cherry-la/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 11:00:00 GMT*
+*Published on: Fri, 13 Sep 2024 09:56:08 GMT*
 
 
 ## Prince Harry
@@ -3247,15 +3061,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Prince Harry
 
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
+## [ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 15:43:00 GMT
-Thu, 12 Sep 2024 15:23:40 GMT*
+*Published on: Thu, 12 Sep 2024 15:23:40 GMT*
 
 
 ## Prince Harry
@@ -3264,25 +3074,25 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
+*Published on: Fri, 13 Sep 2024 09:42:59 GMT*
 
 
-## Princess of Wales
+## Prince Harry
+
+## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 09:47:46 GMT*
+
+
+## Prince Harry
 
 ## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 09:56:08 GMT*
-
-
-## Princess of Wales
-
-## [Mr Porter and CHERRY LA's Collab Is a Roadtrip Out West](https://www.highsnobiety.com/p/mr-porter-cherry-la/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 11:00:00 GMT*
+*Published on: Fri, 13 Sep 2024 09:56:08 GMT*
 
 
 ## Princess of Wales
@@ -3323,15 +3133,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Princess of Wales
 
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
+## [ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 15:43:00 GMT
-Thu, 12 Sep 2024 15:23:40 GMT*
+*Published on: Thu, 12 Sep 2024 15:23:40 GMT*
 
 
 ## Princess of Wales
@@ -3340,25 +3146,25 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
+*Published on: Fri, 13 Sep 2024 09:42:59 GMT*
 
 
-## Rachel McAdams
+## Princess of Wales
+
+## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 09:47:46 GMT*
+
+
+## Princess of Wales
 
 ## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 09:56:08 GMT*
-
-
-## Rachel McAdams
-
-## [Mr Porter and CHERRY LA's Collab Is a Roadtrip Out West](https://www.highsnobiety.com/p/mr-porter-cherry-la/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 11:00:00 GMT*
+*Published on: Fri, 13 Sep 2024 09:56:08 GMT*
 
 
 ## Rachel McAdams
@@ -3399,15 +3205,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Rachel McAdams
 
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
+## [ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 15:43:00 GMT
-Thu, 12 Sep 2024 15:23:40 GMT*
+*Published on: Thu, 12 Sep 2024 15:23:40 GMT*
 
 
 ## Rachel McAdams
@@ -3416,25 +3218,25 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
+*Published on: Fri, 13 Sep 2024 09:42:59 GMT*
 
 
-## Reneé Rapp
+## Rachel McAdams
+
+## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 09:47:46 GMT*
+
+
+## Rachel McAdams
 
 ## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 09:56:08 GMT*
-
-
-## Reneé Rapp
-
-## [Mr Porter and CHERRY LA's Collab Is a Roadtrip Out West](https://www.highsnobiety.com/p/mr-porter-cherry-la/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 11:00:00 GMT*
+*Published on: Fri, 13 Sep 2024 09:56:08 GMT*
 
 
 ## Reneé Rapp
@@ -3475,15 +3277,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Reneé Rapp
 
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
+## [ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 15:43:00 GMT
-Thu, 12 Sep 2024 15:23:40 GMT*
+*Published on: Thu, 12 Sep 2024 15:23:40 GMT*
 
 
 ## Reneé Rapp
@@ -3492,25 +3290,25 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
+*Published on: Fri, 13 Sep 2024 09:42:59 GMT*
 
 
-## Rick Ross
+## Reneé Rapp
+
+## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 09:47:46 GMT*
+
+
+## Reneé Rapp
 
 ## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 09:56:08 GMT*
-
-
-## Rick Ross
-
-## [Mr Porter and CHERRY LA's Collab Is a Roadtrip Out West](https://www.highsnobiety.com/p/mr-porter-cherry-la/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 11:00:00 GMT*
+*Published on: Fri, 13 Sep 2024 09:56:08 GMT*
 
 
 ## Rick Ross
@@ -3551,15 +3349,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Rick Ross
 
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
+## [ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 15:43:00 GMT
-Thu, 12 Sep 2024 15:23:40 GMT*
+*Published on: Thu, 12 Sep 2024 15:23:40 GMT*
 
 
 ## Rick Ross
@@ -3568,25 +3362,25 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
+*Published on: Fri, 13 Sep 2024 09:42:59 GMT*
 
 
-## Sam Ashgari
+## Rick Ross
+
+## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 09:47:46 GMT*
+
+
+## Rick Ross
 
 ## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 09:56:08 GMT*
-
-
-## Sam Ashgari
-
-## [Mr Porter and CHERRY LA's Collab Is a Roadtrip Out West](https://www.highsnobiety.com/p/mr-porter-cherry-la/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 11:00:00 GMT*
+*Published on: Fri, 13 Sep 2024 09:56:08 GMT*
 
 
 ## Sam Ashgari
@@ -3627,15 +3421,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Sam Ashgari
 
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
+## [ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 15:43:00 GMT
-Thu, 12 Sep 2024 15:23:40 GMT*
+*Published on: Thu, 12 Sep 2024 15:23:40 GMT*
 
 
 ## Sam Ashgari
@@ -3644,25 +3434,25 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
+*Published on: Fri, 13 Sep 2024 09:42:59 GMT*
 
 
-## Sandra Oh
+## Sam Ashgari
+
+## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 09:47:46 GMT*
+
+
+## Sam Ashgari
 
 ## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 09:56:08 GMT*
-
-
-## Sandra Oh
-
-## [Mr Porter and CHERRY LA's Collab Is a Roadtrip Out West](https://www.highsnobiety.com/p/mr-porter-cherry-la/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 11:00:00 GMT*
+*Published on: Fri, 13 Sep 2024 09:56:08 GMT*
 
 
 ## Sandra Oh
@@ -3703,15 +3493,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Sandra Oh
 
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
+## [ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 15:43:00 GMT
-Thu, 12 Sep 2024 15:23:40 GMT*
+*Published on: Thu, 12 Sep 2024 15:23:40 GMT*
 
 
 ## Sandra Oh
@@ -3720,25 +3506,25 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
+*Published on: Fri, 13 Sep 2024 09:42:59 GMT*
 
 
-## Donald Trump
+## Sandra Oh
+
+## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 09:47:46 GMT*
+
+
+## Sandra Oh
 
 ## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 09:56:08 GMT*
-
-
-## Donald Trump
-
-## [Mr Porter and CHERRY LA's Collab Is a Roadtrip Out West](https://www.highsnobiety.com/p/mr-porter-cherry-la/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 11:00:00 GMT*
+*Published on: Fri, 13 Sep 2024 09:56:08 GMT*
 
 
 ## Donald Trump
@@ -3779,15 +3565,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Donald Trump
 
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
+## [ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 15:43:00 GMT
-Thu, 12 Sep 2024 15:23:40 GMT*
+*Published on: Thu, 12 Sep 2024 15:23:40 GMT*
 
 
 ## Donald Trump
@@ -3796,25 +3578,25 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
+*Published on: Fri, 13 Sep 2024 09:42:59 GMT*
 
 
-## Diddy
+## Donald Trump
+
+## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 09:47:46 GMT*
+
+
+## Donald Trump
 
 ## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 09:56:08 GMT*
-
-
-## Diddy
-
-## [Mr Porter and CHERRY LA's Collab Is a Roadtrip Out West](https://www.highsnobiety.com/p/mr-porter-cherry-la/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 11:00:00 GMT*
+*Published on: Fri, 13 Sep 2024 09:56:08 GMT*
 
 
 ## Diddy
@@ -3855,15 +3637,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Diddy
 
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
+## [ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 15:43:00 GMT
-Thu, 12 Sep 2024 15:23:40 GMT*
+*Published on: Thu, 12 Sep 2024 15:23:40 GMT*
 
 
 ## Diddy
@@ -3872,25 +3650,25 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
+*Published on: Fri, 13 Sep 2024 09:42:59 GMT*
 
 
-## City Girls
+## Diddy
+
+## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 09:47:46 GMT*
+
+
+## Diddy
 
 ## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 09:56:08 GMT*
-
-
-## City Girls
-
-## [Mr Porter and CHERRY LA's Collab Is a Roadtrip Out West](https://www.highsnobiety.com/p/mr-porter-cherry-la/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 11:00:00 GMT*
+*Published on: Fri, 13 Sep 2024 09:56:08 GMT*
 
 
 ## City Girls
@@ -3931,15 +3709,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## City Girls
 
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
+## [ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 15:43:00 GMT
-Thu, 12 Sep 2024 15:23:40 GMT*
+*Published on: Thu, 12 Sep 2024 15:23:40 GMT*
 
 
 ## City Girls
@@ -3948,25 +3722,25 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
+*Published on: Fri, 13 Sep 2024 09:42:59 GMT*
 
 
-## Chloe Bailey
+## City Girls
+
+## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 09:47:46 GMT*
+
+
+## City Girls
 
 ## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 09:56:08 GMT*
-
-
-## Chloe Bailey
-
-## [Mr Porter and CHERRY LA's Collab Is a Roadtrip Out West](https://www.highsnobiety.com/p/mr-porter-cherry-la/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 11:00:00 GMT*
+*Published on: Fri, 13 Sep 2024 09:56:08 GMT*
 
 
 ## Chloe Bailey
@@ -4007,15 +3781,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Chloe Bailey
 
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
+## [ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 15:43:00 GMT
-Thu, 12 Sep 2024 15:23:40 GMT*
+*Published on: Thu, 12 Sep 2024 15:23:40 GMT*
 
 
 ## Chloe Bailey
@@ -4024,25 +3794,25 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
+*Published on: Fri, 13 Sep 2024 09:42:59 GMT*
 
 
-## Charli D Amelio
+## Chloe Bailey
+
+## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 09:47:46 GMT*
+
+
+## Chloe Bailey
 
 ## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 09:56:08 GMT*
-
-
-## Charli D Amelio
-
-## [Mr Porter and CHERRY LA's Collab Is a Roadtrip Out West](https://www.highsnobiety.com/p/mr-porter-cherry-la/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 11:00:00 GMT*
+*Published on: Fri, 13 Sep 2024 09:56:08 GMT*
 
 
 ## Charli D Amelio
@@ -4083,15 +3853,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Charli D Amelio
 
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
+## [ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 15:43:00 GMT
-Thu, 12 Sep 2024 15:23:40 GMT*
+*Published on: Thu, 12 Sep 2024 15:23:40 GMT*
 
 
 ## Charli D Amelio
@@ -4100,25 +3866,25 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
+*Published on: Fri, 13 Sep 2024 09:42:59 GMT*
 
 
-## Cardi B
+## Charli D Amelio
+
+## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 09:47:46 GMT*
+
+
+## Charli D Amelio
 
 ## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 09:56:08 GMT*
-
-
-## Cardi B
-
-## [Mr Porter and CHERRY LA's Collab Is a Roadtrip Out West](https://www.highsnobiety.com/p/mr-porter-cherry-la/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 11:00:00 GMT*
+*Published on: Fri, 13 Sep 2024 09:56:08 GMT*
 
 
 ## Cardi B
@@ -4159,15 +3925,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Cardi B
 
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
+## [ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 15:43:00 GMT
-Thu, 12 Sep 2024 15:23:40 GMT*
+*Published on: Thu, 12 Sep 2024 15:23:40 GMT*
 
 
 ## Cardi B
@@ -4176,25 +3938,25 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
+*Published on: Fri, 13 Sep 2024 09:42:59 GMT*
 
 
-## Bryan Cranston
+## Cardi B
+
+## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 09:47:46 GMT*
+
+
+## Cardi B
 
 ## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 09:56:08 GMT*
-
-
-## Bryan Cranston
-
-## [Mr Porter and CHERRY LA's Collab Is a Roadtrip Out West](https://www.highsnobiety.com/p/mr-porter-cherry-la/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 11:00:00 GMT*
+*Published on: Fri, 13 Sep 2024 09:56:08 GMT*
 
 
 ## Bryan Cranston
@@ -4235,15 +3997,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Bryan Cranston
 
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
+## [ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 15:43:00 GMT
-Thu, 12 Sep 2024 15:23:40 GMT*
+*Published on: Thu, 12 Sep 2024 15:23:40 GMT*
 
 
 ## Bryan Cranston
@@ -4252,25 +4010,25 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
+*Published on: Fri, 13 Sep 2024 09:42:59 GMT*
 
 
-## Brielle Biermann
+## Bryan Cranston
+
+## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 09:47:46 GMT*
+
+
+## Bryan Cranston
 
 ## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 09:56:08 GMT*
-
-
-## Brielle Biermann
-
-## [Mr Porter and CHERRY LA's Collab Is a Roadtrip Out West](https://www.highsnobiety.com/p/mr-porter-cherry-la/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 11:00:00 GMT*
+*Published on: Fri, 13 Sep 2024 09:56:08 GMT*
 
 
 ## Brielle Biermann
@@ -4311,15 +4069,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Brielle Biermann
 
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
+## [ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 15:43:00 GMT
-Thu, 12 Sep 2024 15:23:40 GMT*
+*Published on: Thu, 12 Sep 2024 15:23:40 GMT*
 
 
 ## Brielle Biermann
@@ -4328,25 +4082,25 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
+*Published on: Fri, 13 Sep 2024 09:42:59 GMT*
 
 
-## Dua Lipa
+## Brielle Biermann
+
+## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 09:47:46 GMT*
+
+
+## Brielle Biermann
 
 ## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 09:56:08 GMT*
-
-
-## Dua Lipa
-
-## [Mr Porter and CHERRY LA's Collab Is a Roadtrip Out West](https://www.highsnobiety.com/p/mr-porter-cherry-la/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 11:00:00 GMT*
+*Published on: Fri, 13 Sep 2024 09:56:08 GMT*
 
 
 ## Dua Lipa
@@ -4387,15 +4141,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Dua Lipa
 
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
+## [ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 15:43:00 GMT
-Thu, 12 Sep 2024 15:23:40 GMT*
+*Published on: Thu, 12 Sep 2024 15:23:40 GMT*
 
 
 ## Dua Lipa
@@ -4404,25 +4154,25 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
+*Published on: Fri, 13 Sep 2024 09:42:59 GMT*
 
 
-## Drake
+## Dua Lipa
+
+## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 09:47:46 GMT*
+
+
+## Dua Lipa
 
 ## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 09:56:08 GMT*
-
-
-## Drake
-
-## [Mr Porter and CHERRY LA's Collab Is a Roadtrip Out West](https://www.highsnobiety.com/p/mr-porter-cherry-la/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 11:00:00 GMT*
+*Published on: Fri, 13 Sep 2024 09:56:08 GMT*
 
 
 ## Drake
@@ -4463,15 +4213,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Drake
 
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
+## [ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 15:43:00 GMT
-Thu, 12 Sep 2024 15:23:40 GMT*
+*Published on: Thu, 12 Sep 2024 15:23:40 GMT*
 
 
 ## Drake
@@ -4480,25 +4226,25 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
+*Published on: Fri, 13 Sep 2024 09:42:59 GMT*
 
 
-## Jenner
+## Drake
+
+## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 09:47:46 GMT*
+
+
+## Drake
 
 ## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 09:56:08 GMT*
-
-
-## Jenner
-
-## [Mr Porter and CHERRY LA's Collab Is a Roadtrip Out West](https://www.highsnobiety.com/p/mr-porter-cherry-la/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 11:00:00 GMT*
+*Published on: Fri, 13 Sep 2024 09:56:08 GMT*
 
 
 ## Jenner
@@ -4539,15 +4285,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Jenner
 
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
+## [ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 15:43:00 GMT
-Thu, 12 Sep 2024 15:23:40 GMT*
+*Published on: Thu, 12 Sep 2024 15:23:40 GMT*
 
 
 ## Jenner
@@ -4556,25 +4298,25 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
+*Published on: Fri, 13 Sep 2024 09:42:59 GMT*
 
 
-## J. Cole
+## Jenner
+
+## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 09:47:46 GMT*
+
+
+## Jenner
 
 ## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 09:56:08 GMT*
-
-
-## J. Cole
-
-## [Mr Porter and CHERRY LA's Collab Is a Roadtrip Out West](https://www.highsnobiety.com/p/mr-porter-cherry-la/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 11:00:00 GMT*
+*Published on: Fri, 13 Sep 2024 09:56:08 GMT*
 
 
 ## J. Cole
@@ -4615,15 +4357,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## J. Cole
 
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
+## [ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 15:43:00 GMT
-Thu, 12 Sep 2024 15:23:40 GMT*
+*Published on: Thu, 12 Sep 2024 15:23:40 GMT*
 
 
 ## J. Cole
@@ -4632,25 +4370,25 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
+*Published on: Fri, 13 Sep 2024 09:42:59 GMT*
 
 
-## Jerrod Carmichael
+## J. Cole
+
+## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 09:47:46 GMT*
+
+
+## J. Cole
 
 ## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 09:56:08 GMT*
-
-
-## Jerrod Carmichael
-
-## [Mr Porter and CHERRY LA's Collab Is a Roadtrip Out West](https://www.highsnobiety.com/p/mr-porter-cherry-la/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 11:00:00 GMT*
+*Published on: Fri, 13 Sep 2024 09:56:08 GMT*
 
 
 ## Jerrod Carmichael
@@ -4691,15 +4429,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Jerrod Carmichael
 
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
+## [ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 15:43:00 GMT
-Thu, 12 Sep 2024 15:23:40 GMT*
+*Published on: Thu, 12 Sep 2024 15:23:40 GMT*
 
 
 ## Jerrod Carmichael
@@ -4708,25 +4442,25 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
+*Published on: Fri, 13 Sep 2024 09:42:59 GMT*
 
 
-## Jennifer Lawrence
+## Jerrod Carmichael
+
+## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 09:47:46 GMT*
+
+
+## Jerrod Carmichael
 
 ## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 09:56:08 GMT*
-
-
-## Jennifer Lawrence
-
-## [Mr Porter and CHERRY LA's Collab Is a Roadtrip Out West](https://www.highsnobiety.com/p/mr-porter-cherry-la/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 11:00:00 GMT*
+*Published on: Fri, 13 Sep 2024 09:56:08 GMT*
 
 
 ## Jennifer Lawrence
@@ -4767,15 +4501,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Jennifer Lawrence
 
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
+## [ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 15:43:00 GMT
-Thu, 12 Sep 2024 15:23:40 GMT*
+*Published on: Thu, 12 Sep 2024 15:23:40 GMT*
 
 
 ## Jennifer Lawrence
@@ -4784,25 +4514,25 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
+*Published on: Fri, 13 Sep 2024 09:42:59 GMT*
 
 
-## Joe Biden
+## Jennifer Lawrence
+
+## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 09:47:46 GMT*
+
+
+## Jennifer Lawrence
 
 ## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 09:56:08 GMT*
-
-
-## Joe Biden
-
-## [Mr Porter and CHERRY LA's Collab Is a Roadtrip Out West](https://www.highsnobiety.com/p/mr-porter-cherry-la/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 11:00:00 GMT*
+*Published on: Fri, 13 Sep 2024 09:56:08 GMT*
 
 
 ## Joe Biden
@@ -4843,15 +4573,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Joe Biden
 
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
+## [ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 15:43:00 GMT
-Thu, 12 Sep 2024 15:23:40 GMT*
+*Published on: Thu, 12 Sep 2024 15:23:40 GMT*
 
 
 ## Joe Biden
@@ -4860,25 +4586,25 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
+*Published on: Fri, 13 Sep 2024 09:42:59 GMT*
 
 
-## J.K. Simmons
+## Joe Biden
+
+## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 09:47:46 GMT*
+
+
+## Joe Biden
 
 ## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 09:56:08 GMT*
-
-
-## J.K. Simmons
-
-## [Mr Porter and CHERRY LA's Collab Is a Roadtrip Out West](https://www.highsnobiety.com/p/mr-porter-cherry-la/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 11:00:00 GMT*
+*Published on: Fri, 13 Sep 2024 09:56:08 GMT*
 
 
 ## J.K. Simmons
@@ -4919,15 +4645,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## J.K. Simmons
 
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
+## [ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 15:43:00 GMT
-Thu, 12 Sep 2024 15:23:40 GMT*
+*Published on: Thu, 12 Sep 2024 15:23:40 GMT*
 
 
 ## J.K. Simmons
@@ -4936,25 +4658,25 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
+*Published on: Fri, 13 Sep 2024 09:42:59 GMT*
 
 
-## Kamala Harris
+## J.K. Simmons
+
+## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 09:47:46 GMT*
+
+
+## J.K. Simmons
 
 ## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 09:56:08 GMT*
-
-
-## Kamala Harris
-
-## [Mr Porter and CHERRY LA's Collab Is a Roadtrip Out West](https://www.highsnobiety.com/p/mr-porter-cherry-la/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 11:00:00 GMT*
+*Published on: Fri, 13 Sep 2024 09:56:08 GMT*
 
 
 ## Kamala Harris
@@ -4995,15 +4717,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Kamala Harris
 
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
+## [ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 15:43:00 GMT
-Thu, 12 Sep 2024 15:23:40 GMT*
+*Published on: Thu, 12 Sep 2024 15:23:40 GMT*
 
 
 ## Kamala Harris
@@ -5012,25 +4730,25 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
+*Published on: Fri, 13 Sep 2024 09:42:59 GMT*
 
 
-## John C Reilly
+## Kamala Harris
+
+## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 09:47:46 GMT*
+
+
+## Kamala Harris
 
 ## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 09:56:08 GMT*
-
-
-## John C Reilly
-
-## [Mr Porter and CHERRY LA's Collab Is a Roadtrip Out West](https://www.highsnobiety.com/p/mr-porter-cherry-la/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 11:00:00 GMT*
+*Published on: Fri, 13 Sep 2024 09:56:08 GMT*
 
 
 ## John C Reilly
@@ -5071,15 +4789,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## John C Reilly
 
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
+## [ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 15:43:00 GMT
-Thu, 12 Sep 2024 15:23:40 GMT*
+*Published on: Thu, 12 Sep 2024 15:23:40 GMT*
 
 
 ## John C Reilly
@@ -5088,25 +4802,25 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
+*Published on: Fri, 13 Sep 2024 09:42:59 GMT*
 
 
-## Kardashian
+## John C Reilly
+
+## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 09:47:46 GMT*
+
+
+## John C Reilly
 
 ## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 09:56:08 GMT*
-
-
-## Kardashian
-
-## [Mr Porter and CHERRY LA's Collab Is a Roadtrip Out West](https://www.highsnobiety.com/p/mr-porter-cherry-la/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 11:00:00 GMT*
+*Published on: Fri, 13 Sep 2024 09:56:08 GMT*
 
 
 ## Kardashian
@@ -5147,15 +4861,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Kardashian
 
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
+## [ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 15:43:00 GMT
-Thu, 12 Sep 2024 15:23:40 GMT*
+*Published on: Thu, 12 Sep 2024 15:23:40 GMT*
 
 
 ## Kardashian
@@ -5164,25 +4874,25 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
+*Published on: Fri, 13 Sep 2024 09:42:59 GMT*
 
 
-## Kanye
+## Kardashian
+
+## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 09:47:46 GMT*
+
+
+## Kardashian
 
 ## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 09:56:08 GMT*
-
-
-## Kanye
-
-## [Mr Porter and CHERRY LA's Collab Is a Roadtrip Out West](https://www.highsnobiety.com/p/mr-porter-cherry-la/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 11:00:00 GMT*
+*Published on: Fri, 13 Sep 2024 09:56:08 GMT*
 
 
 ## Kanye
@@ -5223,15 +4933,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Kanye
 
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
+## [ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 15:43:00 GMT
-Thu, 12 Sep 2024 15:23:40 GMT*
+*Published on: Thu, 12 Sep 2024 15:23:40 GMT*
 
 
 ## Kanye
@@ -5240,25 +4946,25 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
+*Published on: Fri, 13 Sep 2024 09:42:59 GMT*
 
 
-## Zendaya
+## Kanye
+
+## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 09:47:46 GMT*
+
+
+## Kanye
 
 ## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 09:56:08 GMT*
-
-
-## Zendaya
-
-## [Mr Porter and CHERRY LA's Collab Is a Roadtrip Out West](https://www.highsnobiety.com/p/mr-porter-cherry-la/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 11:00:00 GMT*
+*Published on: Fri, 13 Sep 2024 09:56:08 GMT*
 
 
 ## Zendaya
@@ -5299,15 +5005,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Zendaya
 
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
+## [ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 15:43:00 GMT
-Thu, 12 Sep 2024 15:23:40 GMT*
+*Published on: Thu, 12 Sep 2024 15:23:40 GMT*
 
 
 ## Zendaya
@@ -5316,25 +5018,25 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
+*Published on: Fri, 13 Sep 2024 09:42:59 GMT*
 
 
-## Will Ferrell
+## Zendaya
+
+## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 09:47:46 GMT*
+
+
+## Zendaya
 
 ## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 09:56:08 GMT*
-
-
-## Will Ferrell
-
-## [Mr Porter and CHERRY LA's Collab Is a Roadtrip Out West](https://www.highsnobiety.com/p/mr-porter-cherry-la/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 11:00:00 GMT*
+*Published on: Fri, 13 Sep 2024 09:56:08 GMT*
 
 
 ## Will Ferrell
@@ -5375,15 +5077,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Will Ferrell
 
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
+## [ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 15:43:00 GMT
-Thu, 12 Sep 2024 15:23:40 GMT*
+*Published on: Thu, 12 Sep 2024 15:23:40 GMT*
 
 
 ## Will Ferrell
@@ -5392,25 +5090,25 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
+*Published on: Fri, 13 Sep 2024 09:42:59 GMT*
 
 
-## Zazie Beetz
+## Will Ferrell
+
+## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 09:47:46 GMT*
+
+
+## Will Ferrell
 
 ## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 09:56:08 GMT*
-
-
-## Zazie Beetz
-
-## [Mr Porter and CHERRY LA's Collab Is a Roadtrip Out West](https://www.highsnobiety.com/p/mr-porter-cherry-la/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 11:00:00 GMT*
+*Published on: Fri, 13 Sep 2024 09:56:08 GMT*
 
 
 ## Zazie Beetz
@@ -5451,15 +5149,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Zazie Beetz
 
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
+## [ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 15:43:00 GMT
-Thu, 12 Sep 2024 15:23:40 GMT*
+*Published on: Thu, 12 Sep 2024 15:23:40 GMT*
 
 
 ## Zazie Beetz
@@ -5468,25 +5162,25 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
+*Published on: Fri, 13 Sep 2024 09:42:59 GMT*
 
 
-## Bob Odenkirk
+## Zazie Beetz
+
+## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 09:47:46 GMT*
+
+
+## Zazie Beetz
 
 ## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 09:56:08 GMT*
-
-
-## Bob Odenkirk
-
-## [Mr Porter and CHERRY LA's Collab Is a Roadtrip Out West](https://www.highsnobiety.com/p/mr-porter-cherry-la/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 11:00:00 GMT*
+*Published on: Fri, 13 Sep 2024 09:56:08 GMT*
 
 
 ## Bob Odenkirk
@@ -5527,15 +5221,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Bob Odenkirk
 
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
+## [ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 15:43:00 GMT
-Thu, 12 Sep 2024 15:23:40 GMT*
+*Published on: Thu, 12 Sep 2024 15:23:40 GMT*
 
 
 ## Bob Odenkirk
@@ -5544,25 +5234,25 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
+*Published on: Fri, 13 Sep 2024 09:42:59 GMT*
 
 
-## Brad Pitt
+## Bob Odenkirk
+
+## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 09:47:46 GMT*
+
+
+## Bob Odenkirk
 
 ## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 09:56:08 GMT*
-
-
-## Brad Pitt
-
-## [Mr Porter and CHERRY LA's Collab Is a Roadtrip Out West](https://www.highsnobiety.com/p/mr-porter-cherry-la/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 11:00:00 GMT*
+*Published on: Fri, 13 Sep 2024 09:56:08 GMT*
 
 
 ## Brad Pitt
@@ -5603,15 +5293,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Brad Pitt
 
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
+## [ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 15:43:00 GMT
-Thu, 12 Sep 2024 15:23:40 GMT*
+*Published on: Thu, 12 Sep 2024 15:23:40 GMT*
 
 
 ## Brad Pitt
@@ -5620,25 +5306,25 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
+*Published on: Fri, 13 Sep 2024 09:42:59 GMT*
 
 
-## Beyoncé
+## Brad Pitt
+
+## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 09:47:46 GMT*
+
+
+## Brad Pitt
 
 ## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 09:56:08 GMT*
-
-
-## Beyoncé
-
-## [Mr Porter and CHERRY LA's Collab Is a Roadtrip Out West](https://www.highsnobiety.com/p/mr-porter-cherry-la/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 11:00:00 GMT*
+*Published on: Fri, 13 Sep 2024 09:56:08 GMT*
 
 
 ## Beyoncé
@@ -5679,15 +5365,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Beyoncé
 
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
+## [ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 15:43:00 GMT
-Thu, 12 Sep 2024 15:23:40 GMT*
+*Published on: Thu, 12 Sep 2024 15:23:40 GMT*
 
 
 ## Beyoncé
@@ -5696,25 +5378,25 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
+*Published on: Fri, 13 Sep 2024 09:42:59 GMT*
 
 
-## Bia
+## Beyoncé
+
+## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 09:47:46 GMT*
+
+
+## Beyoncé
 
 ## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 09:56:08 GMT*
-
-
-## Bia
-
-## [Mr Porter and CHERRY LA's Collab Is a Roadtrip Out West](https://www.highsnobiety.com/p/mr-porter-cherry-la/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 11:00:00 GMT*
+*Published on: Fri, 13 Sep 2024 09:56:08 GMT*
 
 
 ## Bia
@@ -5755,15 +5437,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Bia
 
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
+## [ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 15:43:00 GMT
-Thu, 12 Sep 2024 15:23:40 GMT*
+*Published on: Thu, 12 Sep 2024 15:23:40 GMT*
 
 
 ## Bia
@@ -5772,25 +5450,25 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
+*Published on: Fri, 13 Sep 2024 09:42:59 GMT*
 
 
-## Avantika
+## Bia
+
+## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 09:47:46 GMT*
+
+
+## Bia
 
 ## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 09:56:08 GMT*
-
-
-## Avantika
-
-## [Mr Porter and CHERRY LA's Collab Is a Roadtrip Out West](https://www.highsnobiety.com/p/mr-porter-cherry-la/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 11:00:00 GMT*
+*Published on: Fri, 13 Sep 2024 09:56:08 GMT*
 
 
 ## Avantika
@@ -5831,15 +5509,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Avantika
 
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
+## [ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 15:43:00 GMT
-Thu, 12 Sep 2024 15:23:40 GMT*
+*Published on: Thu, 12 Sep 2024 15:23:40 GMT*
 
 
 ## Avantika
@@ -5848,25 +5522,25 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
+*Published on: Fri, 13 Sep 2024 09:42:59 GMT*
 
 
-## Bernie Sanders
+## Avantika
+
+## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 09:47:46 GMT*
+
+
+## Avantika
 
 ## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 09:56:08 GMT*
-
-
-## Bernie Sanders
-
-## [Mr Porter and CHERRY LA's Collab Is a Roadtrip Out West](https://www.highsnobiety.com/p/mr-porter-cherry-la/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 11:00:00 GMT*
+*Published on: Fri, 13 Sep 2024 09:56:08 GMT*
 
 
 ## Bernie Sanders
@@ -5907,15 +5581,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Bernie Sanders
 
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
+## [ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 15:43:00 GMT
-Thu, 12 Sep 2024 15:23:40 GMT*
+*Published on: Thu, 12 Sep 2024 15:23:40 GMT*
 
 
 ## Bernie Sanders
@@ -5924,25 +5594,25 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
+*Published on: Fri, 13 Sep 2024 09:42:59 GMT*
 
 
-## Big Sean
+## Bernie Sanders
+
+## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 09:47:46 GMT*
+
+
+## Bernie Sanders
 
 ## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 09:56:08 GMT*
-
-
-## Big Sean
-
-## [Mr Porter and CHERRY LA's Collab Is a Roadtrip Out West](https://www.highsnobiety.com/p/mr-porter-cherry-la/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 11:00:00 GMT*
+*Published on: Fri, 13 Sep 2024 09:56:08 GMT*
 
 
 ## Big Sean
@@ -5983,15 +5653,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Big Sean
 
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
+## [ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 15:43:00 GMT
-Thu, 12 Sep 2024 15:23:40 GMT*
+*Published on: Thu, 12 Sep 2024 15:23:40 GMT*
 
 
 ## Big Sean
@@ -6000,25 +5666,25 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
+*Published on: Fri, 13 Sep 2024 09:42:59 GMT*
 
 
-## BlockBoy JB
+## Big Sean
+
+## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 09:47:46 GMT*
+
+
+## Big Sean
 
 ## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 09:56:08 GMT*
-
-
-## BlockBoy JB
-
-## [Mr Porter and CHERRY LA's Collab Is a Roadtrip Out West](https://www.highsnobiety.com/p/mr-porter-cherry-la/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 11:00:00 GMT*
+*Published on: Fri, 13 Sep 2024 09:56:08 GMT*
 
 
 ## BlockBoy JB
@@ -6059,15 +5725,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## BlockBoy JB
 
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
+## [ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 15:43:00 GMT
-Thu, 12 Sep 2024 15:23:40 GMT*
+*Published on: Thu, 12 Sep 2024 15:23:40 GMT*
 
 
 ## BlockBoy JB
@@ -6076,25 +5738,25 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
+*Published on: Fri, 13 Sep 2024 09:42:59 GMT*
 
 
-## Biden
+## BlockBoy JB
+
+## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 09:47:46 GMT*
+
+
+## BlockBoy JB
 
 ## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 09:56:08 GMT*
-
-
-## Biden
-
-## [Mr Porter and CHERRY LA's Collab Is a Roadtrip Out West](https://www.highsnobiety.com/p/mr-porter-cherry-la/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 11:00:00 GMT*
+*Published on: Fri, 13 Sep 2024 09:56:08 GMT*
 
 
 ## Biden
@@ -6135,15 +5797,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Biden
 
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
+## [ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 15:43:00 GMT
-Thu, 12 Sep 2024 15:23:40 GMT*
+*Published on: Thu, 12 Sep 2024 15:23:40 GMT*
 
 
 ## Biden
@@ -6152,25 +5810,25 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
+*Published on: Fri, 13 Sep 2024 09:42:59 GMT*
 
 
-## Bieber
+## Biden
+
+## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 09:47:46 GMT*
+
+
+## Biden
 
 ## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 09:56:08 GMT*
-
-
-## Bieber
-
-## [Mr Porter and CHERRY LA's Collab Is a Roadtrip Out West](https://www.highsnobiety.com/p/mr-porter-cherry-la/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 11:00:00 GMT*
+*Published on: Fri, 13 Sep 2024 09:56:08 GMT*
 
 
 ## Bieber
@@ -6211,15 +5869,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Bieber
 
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
+## [ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 15:43:00 GMT
-Thu, 12 Sep 2024 15:23:40 GMT*
+*Published on: Thu, 12 Sep 2024 15:23:40 GMT*
 
 
 ## Bieber
@@ -6228,25 +5882,25 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
+*Published on: Fri, 13 Sep 2024 09:42:59 GMT*
 
 
-## Paulina Porizkov
+## Bieber
+
+## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 09:47:46 GMT*
+
+
+## Bieber
 
 ## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 09:56:08 GMT*
-
-
-## Paulina Porizkov
-
-## [Mr Porter and CHERRY LA's Collab Is a Roadtrip Out West](https://www.highsnobiety.com/p/mr-porter-cherry-la/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 11:00:00 GMT*
+*Published on: Fri, 13 Sep 2024 09:56:08 GMT*
 
 
 ## Paulina Porizkov
@@ -6287,15 +5941,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Paulina Porizkov
 
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
+## [ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 15:43:00 GMT
-Thu, 12 Sep 2024 15:23:40 GMT*
+*Published on: Thu, 12 Sep 2024 15:23:40 GMT*
 
 
 ## Paulina Porizkov
@@ -6304,25 +5954,25 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
+*Published on: Fri, 13 Sep 2024 09:42:59 GMT*
 
 
-## Paris Hilton
+## Paulina Porizkov
+
+## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 09:47:46 GMT*
+
+
+## Paulina Porizkov
 
 ## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 09:56:08 GMT*
-
-
-## Paris Hilton
-
-## [Mr Porter and CHERRY LA's Collab Is a Roadtrip Out West](https://www.highsnobiety.com/p/mr-porter-cherry-la/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 11:00:00 GMT*
+*Published on: Fri, 13 Sep 2024 09:56:08 GMT*
 
 
 ## Paris Hilton
@@ -6363,15 +6013,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Paris Hilton
 
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
+## [ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 15:43:00 GMT
-Thu, 12 Sep 2024 15:23:40 GMT*
+*Published on: Thu, 12 Sep 2024 15:23:40 GMT*
 
 
 ## Paris Hilton
@@ -6380,25 +6026,25 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
+*Published on: Fri, 13 Sep 2024 09:42:59 GMT*
 
 
-## Metro Boomin
+## Paris Hilton
+
+## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 09:47:46 GMT*
+
+
+## Paris Hilton
 
 ## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 09:56:08 GMT*
-
-
-## Metro Boomin
-
-## [Mr Porter and CHERRY LA's Collab Is a Roadtrip Out West](https://www.highsnobiety.com/p/mr-porter-cherry-la/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 11:00:00 GMT*
+*Published on: Fri, 13 Sep 2024 09:56:08 GMT*
 
 
 ## Metro Boomin
@@ -6439,15 +6085,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Metro Boomin
 
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
+## [ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 15:43:00 GMT
-Thu, 12 Sep 2024 15:23:40 GMT*
+*Published on: Thu, 12 Sep 2024 15:23:40 GMT*
 
 
 ## Metro Boomin
@@ -6456,25 +6098,25 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
+*Published on: Fri, 13 Sep 2024 09:42:59 GMT*
 
 
-## Meghan Markle
+## Metro Boomin
+
+## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 09:47:46 GMT*
+
+
+## Metro Boomin
 
 ## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 09:56:08 GMT*
-
-
-## Meghan Markle
-
-## [Mr Porter and CHERRY LA's Collab Is a Roadtrip Out West](https://www.highsnobiety.com/p/mr-porter-cherry-la/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 11:00:00 GMT*
+*Published on: Fri, 13 Sep 2024 09:56:08 GMT*
 
 
 ## Meghan Markle
@@ -6515,15 +6157,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Meghan Markle
 
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
+## [ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 15:43:00 GMT
-Thu, 12 Sep 2024 15:23:40 GMT*
+*Published on: Thu, 12 Sep 2024 15:23:40 GMT*
 
 
 ## Meghan Markle
@@ -6532,25 +6170,25 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
+*Published on: Fri, 13 Sep 2024 09:42:59 GMT*
 
 
-## Megan Thee Stallion
+## Meghan Markle
+
+## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 09:47:46 GMT*
+
+
+## Meghan Markle
 
 ## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 09:56:08 GMT*
-
-
-## Megan Thee Stallion
-
-## [Mr Porter and CHERRY LA's Collab Is a Roadtrip Out West](https://www.highsnobiety.com/p/mr-porter-cherry-la/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 11:00:00 GMT*
+*Published on: Fri, 13 Sep 2024 09:56:08 GMT*
 
 
 ## Megan Thee Stallion
@@ -6591,15 +6229,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Megan Thee Stallion
 
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
+## [ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 15:43:00 GMT
-Thu, 12 Sep 2024 15:23:40 GMT*
+*Published on: Thu, 12 Sep 2024 15:23:40 GMT*
 
 
 ## Megan Thee Stallion
@@ -6608,25 +6242,25 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
+*Published on: Fri, 13 Sep 2024 09:42:59 GMT*
 
 
-## Maya Rudolph
+## Megan Thee Stallion
+
+## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 09:47:46 GMT*
+
+
+## Megan Thee Stallion
 
 ## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 09:56:08 GMT*
-
-
-## Maya Rudolph
-
-## [Mr Porter and CHERRY LA's Collab Is a Roadtrip Out West](https://www.highsnobiety.com/p/mr-porter-cherry-la/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 11:00:00 GMT*
+*Published on: Fri, 13 Sep 2024 09:56:08 GMT*
 
 
 ## Maya Rudolph
@@ -6667,15 +6301,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Maya Rudolph
 
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
+## [ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 15:43:00 GMT
-Thu, 12 Sep 2024 15:23:40 GMT*
+*Published on: Thu, 12 Sep 2024 15:23:40 GMT*
 
 
 ## Maya Rudolph
@@ -6684,25 +6314,25 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
+*Published on: Fri, 13 Sep 2024 09:42:59 GMT*
 
 
-## Olivia Rodrigo
+## Maya Rudolph
+
+## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 09:47:46 GMT*
+
+
+## Maya Rudolph
 
 ## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 09:56:08 GMT*
-
-
-## Olivia Rodrigo
-
-## [Mr Porter and CHERRY LA's Collab Is a Roadtrip Out West](https://www.highsnobiety.com/p/mr-porter-cherry-la/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 11:00:00 GMT*
+*Published on: Fri, 13 Sep 2024 09:56:08 GMT*
 
 
 ## Olivia Rodrigo
@@ -6743,15 +6373,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Olivia Rodrigo
 
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
+## [ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 15:43:00 GMT
-Thu, 12 Sep 2024 15:23:40 GMT*
+*Published on: Thu, 12 Sep 2024 15:23:40 GMT*
 
 
 ## Olivia Rodrigo
@@ -6760,25 +6386,25 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
+*Published on: Fri, 13 Sep 2024 09:42:59 GMT*
 
 
-## Obama
+## Olivia Rodrigo
+
+## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 09:47:46 GMT*
+
+
+## Olivia Rodrigo
 
 ## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 09:56:08 GMT*
-
-
-## Obama
-
-## [Mr Porter and CHERRY LA's Collab Is a Roadtrip Out West](https://www.highsnobiety.com/p/mr-porter-cherry-la/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 11:00:00 GMT*
+*Published on: Fri, 13 Sep 2024 09:56:08 GMT*
 
 
 ## Obama
@@ -6819,15 +6445,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Obama
 
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
+## [ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 15:43:00 GMT
-Thu, 12 Sep 2024 15:23:40 GMT*
+*Published on: Thu, 12 Sep 2024 15:23:40 GMT*
 
 
 ## Obama
@@ -6836,25 +6458,25 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
+*Published on: Fri, 13 Sep 2024 09:42:59 GMT*
 
 
-## Nicki Minaj
+## Obama
+
+## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 09:47:46 GMT*
+
+
+## Obama
 
 ## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 09:56:08 GMT*
-
-
-## Nicki Minaj
-
-## [Mr Porter and CHERRY LA's Collab Is a Roadtrip Out West](https://www.highsnobiety.com/p/mr-porter-cherry-la/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 11:00:00 GMT*
+*Published on: Fri, 13 Sep 2024 09:56:08 GMT*
 
 
 ## Nicki Minaj
@@ -6895,15 +6517,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Nicki Minaj
 
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
+## [ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 15:43:00 GMT
-Thu, 12 Sep 2024 15:23:40 GMT*
+*Published on: Thu, 12 Sep 2024 15:23:40 GMT*
 
 
 ## Nicki Minaj
@@ -6912,25 +6530,25 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
+*Published on: Fri, 13 Sep 2024 09:42:59 GMT*
 
 
-## MrBeast
+## Nicki Minaj
+
+## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 09:47:46 GMT*
+
+
+## Nicki Minaj
 
 ## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 09:56:08 GMT*
-
-
-## MrBeast
-
-## [Mr Porter and CHERRY LA's Collab Is a Roadtrip Out West](https://www.highsnobiety.com/p/mr-porter-cherry-la/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 12 Sep 2024 11:00:00 GMT*
+*Published on: Fri, 13 Sep 2024 09:56:08 GMT*
 
 
 ## MrBeast
@@ -6971,15 +6589,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## MrBeast
 
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
+## [ASICS  EMPTY BEHAVIOR's Sneakers Belong in an Art Museum](https://www.highsnobiety.com/p/asics-gel-nimbus-10-1-empty-behavior/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 15:43:00 GMT
-Thu, 12 Sep 2024 15:23:40 GMT*
+*Published on: Thu, 12 Sep 2024 15:23:40 GMT*
 
 
 ## MrBeast
@@ -6988,6 +6602,24 @@ Thu, 12 Sep 2024 15:23:40 GMT*
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Thu, 12 Sep 2024 19:52:59 GMT*
+*Published on: Fri, 13 Sep 2024 09:42:59 GMT*
+
+
+## MrBeast
+
+## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 09:47:46 GMT*
+
+
+## MrBeast
+
+## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 09:56:08 GMT*
 
 
