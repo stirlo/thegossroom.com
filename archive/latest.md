@@ -62,6 +62,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 13 Sep 2024 16:45:33 GMT*
 
 
+## Tim Cook
+
+## [Nike's Classic Soccer Sneaker Gets a Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 20:21:58 GMT*
+
+
 ## Taylor Swift
 
 ## [All Other Animal Prints Are Extinct: Cowhide Is Now the Moo(d)](https://www.highsnobiety.com/p/cow-print-trend-2024/)
@@ -123,6 +132,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 13 Sep 2024 16:45:33 GMT*
+
+
+## Taylor Swift
+
+## [Nike's Classic Soccer Sneaker Gets a Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 20:21:58 GMT*
 
 
 ## Tom Brady
@@ -188,6 +206,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 13 Sep 2024 16:45:33 GMT*
 
 
+## Tom Brady
+
+## [Nike's Classic Soccer Sneaker Gets a Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 20:21:58 GMT*
+
+
 ## Tina Fey
 
 ## [All Other Animal Prints Are Extinct: Cowhide Is Now the Moo(d)](https://www.highsnobiety.com/p/cow-print-trend-2024/)
@@ -249,6 +276,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 13 Sep 2024 16:45:33 GMT*
+
+
+## Tina Fey
+
+## [Nike's Classic Soccer Sneaker Gets a Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 20:21:58 GMT*
 
 
 ## Steven Yuen
@@ -314,6 +350,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 13 Sep 2024 16:45:33 GMT*
 
 
+## Steven Yuen
+
+## [Nike's Classic Soccer Sneaker Gets a Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 20:21:58 GMT*
+
+
 ## Sommer Ray
 
 ## [All Other Animal Prints Are Extinct: Cowhide Is Now the Moo(d)](https://www.highsnobiety.com/p/cow-print-trend-2024/)
@@ -375,6 +420,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 13 Sep 2024 16:45:33 GMT*
+
+
+## Sommer Ray
+
+## [Nike's Classic Soccer Sneaker Gets a Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 20:21:58 GMT*
 
 
 ## Sza
@@ -440,6 +494,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 13 Sep 2024 16:45:33 GMT*
 
 
+## Sza
+
+## [Nike's Classic Soccer Sneaker Gets a Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 20:21:58 GMT*
+
+
 ## Sydney Sweeney
 
 ## [All Other Animal Prints Are Extinct: Cowhide Is Now the Moo(d)](https://www.highsnobiety.com/p/cow-print-trend-2024/)
@@ -501,6 +564,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 13 Sep 2024 16:45:33 GMT*
+
+
+## Sydney Sweeney
+
+## [Nike's Classic Soccer Sneaker Gets a Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 20:21:58 GMT*
 
 
 ## Walton Goggins
@@ -566,6 +638,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 13 Sep 2024 16:45:33 GMT*
 
 
+## Walton Goggins
+
+## [Nike's Classic Soccer Sneaker Gets a Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 20:21:58 GMT*
+
+
 ## Tom Holland
 
 ## [All Other Animal Prints Are Extinct: Cowhide Is Now the Moo(d)](https://www.highsnobiety.com/p/cow-print-trend-2024/)
@@ -627,6 +708,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 13 Sep 2024 16:45:33 GMT*
+
+
+## Tom Holland
+
+## [Nike's Classic Soccer Sneaker Gets a Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 20:21:58 GMT*
 
 
 ## Gucci Mane
@@ -692,6 +782,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 13 Sep 2024 16:45:33 GMT*
 
 
+## Gucci Mane
+
+## [Nike's Classic Soccer Sneaker Gets a Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 20:21:58 GMT*
+
+
 ## Harry Styles
 
 ## [All Other Animal Prints Are Extinct: Cowhide Is Now the Moo(d)](https://www.highsnobiety.com/p/cow-print-trend-2024/)
@@ -753,6 +852,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 13 Sep 2024 16:45:33 GMT*
+
+
+## Harry Styles
+
+## [Nike's Classic Soccer Sneaker Gets a Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 20:21:58 GMT*
 
 
 ## Jake Paul
@@ -818,6 +926,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 13 Sep 2024 16:45:33 GMT*
 
 
+## Jake Paul
+
+## [Nike's Classic Soccer Sneaker Gets a Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 20:21:58 GMT*
+
+
 ## Jameela Jamil
 
 ## [All Other Animal Prints Are Extinct: Cowhide Is Now the Moo(d)](https://www.highsnobiety.com/p/cow-print-trend-2024/)
@@ -879,6 +996,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 13 Sep 2024 16:45:33 GMT*
+
+
+## Jameela Jamil
+
+## [Nike's Classic Soccer Sneaker Gets a Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 20:21:58 GMT*
 
 
 ## Elon Musk
@@ -944,6 +1070,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 13 Sep 2024 16:45:33 GMT*
 
 
+## Elon Musk
+
+## [Nike's Classic Soccer Sneaker Gets a Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 20:21:58 GMT*
+
+
 ## Gabrielle Union
 
 ## [All Other Animal Prints Are Extinct: Cowhide Is Now the Moo(d)](https://www.highsnobiety.com/p/cow-print-trend-2024/)
@@ -1005,6 +1140,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 13 Sep 2024 16:45:33 GMT*
+
+
+## Gabrielle Union
+
+## [Nike's Classic Soccer Sneaker Gets a Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 20:21:58 GMT*
 
 
 ## Giancarlo Esposito
@@ -1070,6 +1214,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 13 Sep 2024 16:45:33 GMT*
 
 
+## Giancarlo Esposito
+
+## [Nike's Classic Soccer Sneaker Gets a Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 20:21:58 GMT*
+
+
 ## Gillian Jacobs
 
 ## [All Other Animal Prints Are Extinct: Cowhide Is Now the Moo(d)](https://www.highsnobiety.com/p/cow-print-trend-2024/)
@@ -1131,6 +1284,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 13 Sep 2024 16:45:33 GMT*
+
+
+## Gillian Jacobs
+
+## [Nike's Classic Soccer Sneaker Gets a Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 20:21:58 GMT*
 
 
 ## Jason Mantzoukas
@@ -1196,6 +1358,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 13 Sep 2024 16:45:33 GMT*
 
 
+## Jason Mantzoukas
+
+## [Nike's Classic Soccer Sneaker Gets a Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 20:21:58 GMT*
+
+
 ## JB Smoove
 
 ## [All Other Animal Prints Are Extinct: Cowhide Is Now the Moo(d)](https://www.highsnobiety.com/p/cow-print-trend-2024/)
@@ -1257,6 +1428,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 13 Sep 2024 16:45:33 GMT*
+
+
+## JB Smoove
+
+## [Nike's Classic Soccer Sneaker Gets a Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 20:21:58 GMT*
 
 
 ## Madison Pettis
@@ -1322,6 +1502,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 13 Sep 2024 16:45:33 GMT*
 
 
+## Madison Pettis
+
+## [Nike's Classic Soccer Sneaker Gets a Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 20:21:58 GMT*
+
+
 ## Austin Butler
 
 ## [All Other Animal Prints Are Extinct: Cowhide Is Now the Moo(d)](https://www.highsnobiety.com/p/cow-print-trend-2024/)
@@ -1383,6 +1572,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 13 Sep 2024 16:45:33 GMT*
+
+
+## Austin Butler
+
+## [Nike's Classic Soccer Sneaker Gets a Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 20:21:58 GMT*
 
 
 ## Mark Zuckerberg
@@ -1448,6 +1646,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 13 Sep 2024 16:45:33 GMT*
 
 
+## Mark Zuckerberg
+
+## [Nike's Classic Soccer Sneaker Gets a Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 20:21:58 GMT*
+
+
 ## Ariana Grande
 
 ## [All Other Animal Prints Are Extinct: Cowhide Is Now the Moo(d)](https://www.highsnobiety.com/p/cow-print-trend-2024/)
@@ -1509,6 +1716,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 13 Sep 2024 16:45:33 GMT*
+
+
+## Ariana Grande
+
+## [Nike's Classic Soccer Sneaker Gets a Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 20:21:58 GMT*
 
 
 ## Livvy Dunne
@@ -1574,6 +1790,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 13 Sep 2024 16:45:33 GMT*
 
 
+## Livvy Dunne
+
+## [Nike's Classic Soccer Sneaker Gets a Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 20:21:58 GMT*
+
+
 ## Ali Wong
 
 ## [All Other Animal Prints Are Extinct: Cowhide Is Now the Moo(d)](https://www.highsnobiety.com/p/cow-print-trend-2024/)
@@ -1635,6 +1860,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 13 Sep 2024 16:45:33 GMT*
+
+
+## Ali Wong
+
+## [Nike's Classic Soccer Sneaker Gets a Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 20:21:58 GMT*
 
 
 ## Lizzo
@@ -1700,6 +1934,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 13 Sep 2024 16:45:33 GMT*
 
 
+## Lizzo
+
+## [Nike's Classic Soccer Sneaker Gets a Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 20:21:58 GMT*
+
+
 ## Alison Brie
 
 ## [All Other Animal Prints Are Extinct: Cowhide Is Now the Moo(d)](https://www.highsnobiety.com/p/cow-print-trend-2024/)
@@ -1761,6 +2004,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 13 Sep 2024 16:45:33 GMT*
+
+
+## Alison Brie
+
+## [Nike's Classic Soccer Sneaker Gets a Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 20:21:58 GMT*
 
 
 ## Lil Wayne
@@ -1826,6 +2078,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 13 Sep 2024 16:45:33 GMT*
 
 
+## Lil Wayne
+
+## [Nike's Classic Soccer Sneaker Gets a Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 20:21:58 GMT*
+
+
 ## Adele
 
 ## [All Other Animal Prints Are Extinct: Cowhide Is Now the Moo(d)](https://www.highsnobiety.com/p/cow-print-trend-2024/)
@@ -1887,6 +2148,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 13 Sep 2024 16:45:33 GMT*
+
+
+## Adele
+
+## [Nike's Classic Soccer Sneaker Gets a Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 20:21:58 GMT*
 
 
 ## Lindsay Lohan
@@ -1952,6 +2222,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 13 Sep 2024 16:45:33 GMT*
 
 
+## Lindsay Lohan
+
+## [Nike's Classic Soccer Sneaker Gets a Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 20:21:58 GMT*
+
+
 ## Addison Rae
 
 ## [All Other Animal Prints Are Extinct: Cowhide Is Now the Moo(d)](https://www.highsnobiety.com/p/cow-print-trend-2024/)
@@ -2013,6 +2292,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 13 Sep 2024 16:45:33 GMT*
+
+
+## Addison Rae
+
+## [Nike's Classic Soccer Sneaker Gets a Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 20:21:58 GMT*
 
 
 ## Latto
@@ -2078,6 +2366,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 13 Sep 2024 16:45:33 GMT*
 
 
+## Latto
+
+## [Nike's Classic Soccer Sneaker Gets a Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 20:21:58 GMT*
+
+
 ## Aaron Paul
 
 ## [All Other Animal Prints Are Extinct: Cowhide Is Now the Moo(d)](https://www.highsnobiety.com/p/cow-print-trend-2024/)
@@ -2139,6 +2436,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 13 Sep 2024 16:45:33 GMT*
+
+
+## Aaron Paul
+
+## [Nike's Classic Soccer Sneaker Gets a Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 20:21:58 GMT*
 
 
 ## LeBron James
@@ -2204,6 +2510,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 13 Sep 2024 16:45:33 GMT*
 
 
+## LeBron James
+
+## [Nike's Classic Soccer Sneaker Gets a Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 20:21:58 GMT*
+
+
 ## 50 Cent
 
 ## [All Other Animal Prints Are Extinct: Cowhide Is Now the Moo(d)](https://www.highsnobiety.com/p/cow-print-trend-2024/)
@@ -2265,6 +2580,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 13 Sep 2024 16:45:33 GMT*
+
+
+## 50 Cent
+
+## [Nike's Classic Soccer Sneaker Gets a Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 20:21:58 GMT*
 
 
 ## Kesha
@@ -2330,6 +2654,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 13 Sep 2024 16:45:33 GMT*
 
 
+## Kesha
+
+## [Nike's Classic Soccer Sneaker Gets a Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 20:21:58 GMT*
+
+
 ## 21 Savage
 
 ## [All Other Animal Prints Are Extinct: Cowhide Is Now the Moo(d)](https://www.highsnobiety.com/p/cow-print-trend-2024/)
@@ -2391,6 +2724,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 13 Sep 2024 16:45:33 GMT*
+
+
+## 21 Savage
+
+## [Nike's Classic Soccer Sneaker Gets a Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 20:21:58 GMT*
 
 
 ## Larry David
@@ -2456,6 +2798,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 13 Sep 2024 16:45:33 GMT*
 
 
+## Larry David
+
+## [Nike's Classic Soccer Sneaker Gets a Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 20:21:58 GMT*
+
+
 ## Seth Rogan
 
 ## [All Other Animal Prints Are Extinct: Cowhide Is Now the Moo(d)](https://www.highsnobiety.com/p/cow-print-trend-2024/)
@@ -2517,6 +2868,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 13 Sep 2024 16:45:33 GMT*
+
+
+## Seth Rogan
+
+## [Nike's Classic Soccer Sneaker Gets a Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 20:21:58 GMT*
 
 
 ## Simone Biles
@@ -2582,6 +2942,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 13 Sep 2024 16:45:33 GMT*
 
 
+## Simone Biles
+
+## [Nike's Classic Soccer Sneaker Gets a Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 20:21:58 GMT*
+
+
 ## Pete Davidson
 
 ## [All Other Animal Prints Are Extinct: Cowhide Is Now the Moo(d)](https://www.highsnobiety.com/p/cow-print-trend-2024/)
@@ -2643,6 +3012,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 13 Sep 2024 16:45:33 GMT*
+
+
+## Pete Davidson
+
+## [Nike's Classic Soccer Sneaker Gets a Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 20:21:58 GMT*
 
 
 ## Prince Harry
@@ -2708,6 +3086,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 13 Sep 2024 16:45:33 GMT*
 
 
+## Prince Harry
+
+## [Nike's Classic Soccer Sneaker Gets a Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 20:21:58 GMT*
+
+
 ## Princess of Wales
 
 ## [All Other Animal Prints Are Extinct: Cowhide Is Now the Moo(d)](https://www.highsnobiety.com/p/cow-print-trend-2024/)
@@ -2769,6 +3156,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 13 Sep 2024 16:45:33 GMT*
+
+
+## Princess of Wales
+
+## [Nike's Classic Soccer Sneaker Gets a Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 20:21:58 GMT*
 
 
 ## Rachel McAdams
@@ -2834,6 +3230,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 13 Sep 2024 16:45:33 GMT*
 
 
+## Rachel McAdams
+
+## [Nike's Classic Soccer Sneaker Gets a Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 20:21:58 GMT*
+
+
 ## Reneé Rapp
 
 ## [All Other Animal Prints Are Extinct: Cowhide Is Now the Moo(d)](https://www.highsnobiety.com/p/cow-print-trend-2024/)
@@ -2895,6 +3300,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 13 Sep 2024 16:45:33 GMT*
+
+
+## Reneé Rapp
+
+## [Nike's Classic Soccer Sneaker Gets a Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 20:21:58 GMT*
 
 
 ## Rick Ross
@@ -2960,6 +3374,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 13 Sep 2024 16:45:33 GMT*
 
 
+## Rick Ross
+
+## [Nike's Classic Soccer Sneaker Gets a Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 20:21:58 GMT*
+
+
 ## Sam Ashgari
 
 ## [All Other Animal Prints Are Extinct: Cowhide Is Now the Moo(d)](https://www.highsnobiety.com/p/cow-print-trend-2024/)
@@ -3021,6 +3444,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 13 Sep 2024 16:45:33 GMT*
+
+
+## Sam Ashgari
+
+## [Nike's Classic Soccer Sneaker Gets a Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 20:21:58 GMT*
 
 
 ## Sandra Oh
@@ -3086,6 +3518,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 13 Sep 2024 16:45:33 GMT*
 
 
+## Sandra Oh
+
+## [Nike's Classic Soccer Sneaker Gets a Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 20:21:58 GMT*
+
+
 ## Donald Trump
 
 ## [All Other Animal Prints Are Extinct: Cowhide Is Now the Moo(d)](https://www.highsnobiety.com/p/cow-print-trend-2024/)
@@ -3147,6 +3588,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 13 Sep 2024 16:45:33 GMT*
+
+
+## Donald Trump
+
+## [Nike's Classic Soccer Sneaker Gets a Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 20:21:58 GMT*
 
 
 ## Diddy
@@ -3212,6 +3662,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 13 Sep 2024 16:45:33 GMT*
 
 
+## Diddy
+
+## [Nike's Classic Soccer Sneaker Gets a Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 20:21:58 GMT*
+
+
 ## City Girls
 
 ## [All Other Animal Prints Are Extinct: Cowhide Is Now the Moo(d)](https://www.highsnobiety.com/p/cow-print-trend-2024/)
@@ -3273,6 +3732,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 13 Sep 2024 16:45:33 GMT*
+
+
+## City Girls
+
+## [Nike's Classic Soccer Sneaker Gets a Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 20:21:58 GMT*
 
 
 ## Chloe Bailey
@@ -3338,6 +3806,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 13 Sep 2024 16:45:33 GMT*
 
 
+## Chloe Bailey
+
+## [Nike's Classic Soccer Sneaker Gets a Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 20:21:58 GMT*
+
+
 ## Charli D Amelio
 
 ## [All Other Animal Prints Are Extinct: Cowhide Is Now the Moo(d)](https://www.highsnobiety.com/p/cow-print-trend-2024/)
@@ -3399,6 +3876,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 13 Sep 2024 16:45:33 GMT*
+
+
+## Charli D Amelio
+
+## [Nike's Classic Soccer Sneaker Gets a Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 20:21:58 GMT*
 
 
 ## Cardi B
@@ -3464,6 +3950,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 13 Sep 2024 16:45:33 GMT*
 
 
+## Cardi B
+
+## [Nike's Classic Soccer Sneaker Gets a Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 20:21:58 GMT*
+
+
 ## Bryan Cranston
 
 ## [All Other Animal Prints Are Extinct: Cowhide Is Now the Moo(d)](https://www.highsnobiety.com/p/cow-print-trend-2024/)
@@ -3525,6 +4020,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 13 Sep 2024 16:45:33 GMT*
+
+
+## Bryan Cranston
+
+## [Nike's Classic Soccer Sneaker Gets a Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 20:21:58 GMT*
 
 
 ## Brielle Biermann
@@ -3590,6 +4094,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 13 Sep 2024 16:45:33 GMT*
 
 
+## Brielle Biermann
+
+## [Nike's Classic Soccer Sneaker Gets a Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 20:21:58 GMT*
+
+
 ## Dua Lipa
 
 ## [All Other Animal Prints Are Extinct: Cowhide Is Now the Moo(d)](https://www.highsnobiety.com/p/cow-print-trend-2024/)
@@ -3651,6 +4164,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 13 Sep 2024 16:45:33 GMT*
+
+
+## Dua Lipa
+
+## [Nike's Classic Soccer Sneaker Gets a Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 20:21:58 GMT*
 
 
 ## Drake
@@ -3716,6 +4238,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 13 Sep 2024 16:45:33 GMT*
 
 
+## Drake
+
+## [Nike's Classic Soccer Sneaker Gets a Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 20:21:58 GMT*
+
+
 ## Jenner
 
 ## [All Other Animal Prints Are Extinct: Cowhide Is Now the Moo(d)](https://www.highsnobiety.com/p/cow-print-trend-2024/)
@@ -3777,6 +4308,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 13 Sep 2024 16:45:33 GMT*
+
+
+## Jenner
+
+## [Nike's Classic Soccer Sneaker Gets a Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 20:21:58 GMT*
 
 
 ## J. Cole
@@ -3842,6 +4382,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 13 Sep 2024 16:45:33 GMT*
 
 
+## J. Cole
+
+## [Nike's Classic Soccer Sneaker Gets a Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 20:21:58 GMT*
+
+
 ## Jerrod Carmichael
 
 ## [All Other Animal Prints Are Extinct: Cowhide Is Now the Moo(d)](https://www.highsnobiety.com/p/cow-print-trend-2024/)
@@ -3903,6 +4452,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 13 Sep 2024 16:45:33 GMT*
+
+
+## Jerrod Carmichael
+
+## [Nike's Classic Soccer Sneaker Gets a Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 20:21:58 GMT*
 
 
 ## Jennifer Lawrence
@@ -3968,6 +4526,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 13 Sep 2024 16:45:33 GMT*
 
 
+## Jennifer Lawrence
+
+## [Nike's Classic Soccer Sneaker Gets a Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 20:21:58 GMT*
+
+
 ## Joe Biden
 
 ## [All Other Animal Prints Are Extinct: Cowhide Is Now the Moo(d)](https://www.highsnobiety.com/p/cow-print-trend-2024/)
@@ -4029,6 +4596,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 13 Sep 2024 16:45:33 GMT*
+
+
+## Joe Biden
+
+## [Nike's Classic Soccer Sneaker Gets a Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 20:21:58 GMT*
 
 
 ## J.K. Simmons
@@ -4094,6 +4670,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 13 Sep 2024 16:45:33 GMT*
 
 
+## J.K. Simmons
+
+## [Nike's Classic Soccer Sneaker Gets a Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 20:21:58 GMT*
+
+
 ## Kamala Harris
 
 ## [All Other Animal Prints Are Extinct: Cowhide Is Now the Moo(d)](https://www.highsnobiety.com/p/cow-print-trend-2024/)
@@ -4155,6 +4740,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 13 Sep 2024 16:45:33 GMT*
+
+
+## Kamala Harris
+
+## [Nike's Classic Soccer Sneaker Gets a Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 20:21:58 GMT*
 
 
 ## John C Reilly
@@ -4220,6 +4814,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 13 Sep 2024 16:45:33 GMT*
 
 
+## John C Reilly
+
+## [Nike's Classic Soccer Sneaker Gets a Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 20:21:58 GMT*
+
+
 ## Kardashian
 
 ## [All Other Animal Prints Are Extinct: Cowhide Is Now the Moo(d)](https://www.highsnobiety.com/p/cow-print-trend-2024/)
@@ -4281,6 +4884,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 13 Sep 2024 16:45:33 GMT*
+
+
+## Kardashian
+
+## [Nike's Classic Soccer Sneaker Gets a Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 20:21:58 GMT*
 
 
 ## Kanye
@@ -4346,6 +4958,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 13 Sep 2024 16:45:33 GMT*
 
 
+## Kanye
+
+## [Nike's Classic Soccer Sneaker Gets a Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 20:21:58 GMT*
+
+
 ## Zendaya
 
 ## [All Other Animal Prints Are Extinct: Cowhide Is Now the Moo(d)](https://www.highsnobiety.com/p/cow-print-trend-2024/)
@@ -4407,6 +5028,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 13 Sep 2024 16:45:33 GMT*
+
+
+## Zendaya
+
+## [Nike's Classic Soccer Sneaker Gets a Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 20:21:58 GMT*
 
 
 ## Will Ferrell
@@ -4472,6 +5102,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 13 Sep 2024 16:45:33 GMT*
 
 
+## Will Ferrell
+
+## [Nike's Classic Soccer Sneaker Gets a Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 20:21:58 GMT*
+
+
 ## Zazie Beetz
 
 ## [All Other Animal Prints Are Extinct: Cowhide Is Now the Moo(d)](https://www.highsnobiety.com/p/cow-print-trend-2024/)
@@ -4533,6 +5172,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 13 Sep 2024 16:45:33 GMT*
+
+
+## Zazie Beetz
+
+## [Nike's Classic Soccer Sneaker Gets a Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 20:21:58 GMT*
 
 
 ## Bob Odenkirk
@@ -4598,6 +5246,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 13 Sep 2024 16:45:33 GMT*
 
 
+## Bob Odenkirk
+
+## [Nike's Classic Soccer Sneaker Gets a Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 20:21:58 GMT*
+
+
 ## Brad Pitt
 
 ## [All Other Animal Prints Are Extinct: Cowhide Is Now the Moo(d)](https://www.highsnobiety.com/p/cow-print-trend-2024/)
@@ -4659,6 +5316,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 13 Sep 2024 16:45:33 GMT*
+
+
+## Brad Pitt
+
+## [Nike's Classic Soccer Sneaker Gets a Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 20:21:58 GMT*
 
 
 ## Beyoncé
@@ -4724,6 +5390,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 13 Sep 2024 16:45:33 GMT*
 
 
+## Beyoncé
+
+## [Nike's Classic Soccer Sneaker Gets a Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 20:21:58 GMT*
+
+
 ## Bia
 
 ## [All Other Animal Prints Are Extinct: Cowhide Is Now the Moo(d)](https://www.highsnobiety.com/p/cow-print-trend-2024/)
@@ -4785,6 +5460,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 13 Sep 2024 16:45:33 GMT*
+
+
+## Bia
+
+## [Nike's Classic Soccer Sneaker Gets a Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 20:21:58 GMT*
 
 
 ## Avantika
@@ -4850,6 +5534,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 13 Sep 2024 16:45:33 GMT*
 
 
+## Avantika
+
+## [Nike's Classic Soccer Sneaker Gets a Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 20:21:58 GMT*
+
+
 ## Bernie Sanders
 
 ## [All Other Animal Prints Are Extinct: Cowhide Is Now the Moo(d)](https://www.highsnobiety.com/p/cow-print-trend-2024/)
@@ -4911,6 +5604,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 13 Sep 2024 16:45:33 GMT*
+
+
+## Bernie Sanders
+
+## [Nike's Classic Soccer Sneaker Gets a Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 20:21:58 GMT*
 
 
 ## Big Sean
@@ -4976,6 +5678,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 13 Sep 2024 16:45:33 GMT*
 
 
+## Big Sean
+
+## [Nike's Classic Soccer Sneaker Gets a Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 20:21:58 GMT*
+
+
 ## BlockBoy JB
 
 ## [All Other Animal Prints Are Extinct: Cowhide Is Now the Moo(d)](https://www.highsnobiety.com/p/cow-print-trend-2024/)
@@ -5037,6 +5748,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 13 Sep 2024 16:45:33 GMT*
+
+
+## BlockBoy JB
+
+## [Nike's Classic Soccer Sneaker Gets a Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 20:21:58 GMT*
 
 
 ## Biden
@@ -5102,6 +5822,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 13 Sep 2024 16:45:33 GMT*
 
 
+## Biden
+
+## [Nike's Classic Soccer Sneaker Gets a Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 20:21:58 GMT*
+
+
 ## Bieber
 
 ## [All Other Animal Prints Are Extinct: Cowhide Is Now the Moo(d)](https://www.highsnobiety.com/p/cow-print-trend-2024/)
@@ -5163,6 +5892,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 13 Sep 2024 16:45:33 GMT*
+
+
+## Bieber
+
+## [Nike's Classic Soccer Sneaker Gets a Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 20:21:58 GMT*
 
 
 ## Paulina Porizkov
@@ -5228,6 +5966,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 13 Sep 2024 16:45:33 GMT*
 
 
+## Paulina Porizkov
+
+## [Nike's Classic Soccer Sneaker Gets a Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 20:21:58 GMT*
+
+
 ## Paris Hilton
 
 ## [All Other Animal Prints Are Extinct: Cowhide Is Now the Moo(d)](https://www.highsnobiety.com/p/cow-print-trend-2024/)
@@ -5289,6 +6036,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 13 Sep 2024 16:45:33 GMT*
+
+
+## Paris Hilton
+
+## [Nike's Classic Soccer Sneaker Gets a Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 20:21:58 GMT*
 
 
 ## Metro Boomin
@@ -5354,6 +6110,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 13 Sep 2024 16:45:33 GMT*
 
 
+## Metro Boomin
+
+## [Nike's Classic Soccer Sneaker Gets a Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 20:21:58 GMT*
+
+
 ## Meghan Markle
 
 ## [All Other Animal Prints Are Extinct: Cowhide Is Now the Moo(d)](https://www.highsnobiety.com/p/cow-print-trend-2024/)
@@ -5415,6 +6180,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 13 Sep 2024 16:45:33 GMT*
+
+
+## Meghan Markle
+
+## [Nike's Classic Soccer Sneaker Gets a Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 20:21:58 GMT*
 
 
 ## Megan Thee Stallion
@@ -5480,6 +6254,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 13 Sep 2024 16:45:33 GMT*
 
 
+## Megan Thee Stallion
+
+## [Nike's Classic Soccer Sneaker Gets a Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 20:21:58 GMT*
+
+
 ## Maya Rudolph
 
 ## [All Other Animal Prints Are Extinct: Cowhide Is Now the Moo(d)](https://www.highsnobiety.com/p/cow-print-trend-2024/)
@@ -5543,6 +6326,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 13 Sep 2024 16:45:33 GMT*
 
 
+## Maya Rudolph
+
+## [Nike's Classic Soccer Sneaker Gets a Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 20:21:58 GMT*
+
+
 ## Olivia Rodrigo
 
 ## [All Other Animal Prints Are Extinct: Cowhide Is Now the Moo(d)](https://www.highsnobiety.com/p/cow-print-trend-2024/)
@@ -5606,6 +6398,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 13 Sep 2024 16:45:33 GMT*
 
 
+## Olivia Rodrigo
+
+## [Nike's Classic Soccer Sneaker Gets a Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 20:21:58 GMT*
+
+
 ## Obama
 
 ## [All Other Animal Prints Are Extinct: Cowhide Is Now the Moo(d)](https://www.highsnobiety.com/p/cow-print-trend-2024/)
@@ -5669,6 +6470,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 13 Sep 2024 16:45:33 GMT*
 
 
+## Obama
+
+## [Nike's Classic Soccer Sneaker Gets a Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 20:21:58 GMT*
+
+
 ## Nicki Minaj
 
 ## [All Other Animal Prints Are Extinct: Cowhide Is Now the Moo(d)](https://www.highsnobiety.com/p/cow-print-trend-2024/)
@@ -5732,6 +6542,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 13 Sep 2024 16:45:33 GMT*
 
 
+## Nicki Minaj
+
+## [Nike's Classic Soccer Sneaker Gets a Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 20:21:58 GMT*
+
+
 ## MrBeast
 
 ## [All Other Animal Prints Are Extinct: Cowhide Is Now the Moo(d)](https://www.highsnobiety.com/p/cow-print-trend-2024/)
@@ -5793,5 +6612,14 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 13 Sep 2024 16:45:33 GMT*
+
+
+## MrBeast
+
+## [Nike's Classic Soccer Sneaker Gets a Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 13 Sep 2024 20:21:58 GMT*
 
 
