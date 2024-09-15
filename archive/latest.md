@@ -1,24 +1,11 @@
 # Latest Stories
 ## Tim Cook
 
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/nike-field-general-82/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 14:14:00 GMT
-Sat, 14 Sep 2024 14:13:00 GMT*
-
-
-## Tim Cook
-
-## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+## [Nike's Jordan 1 Sneaker Gets a Flawless Navy Makeover ](https://www.highsnobiety.com/p/jordan-1-midnight-navy-where-to-buy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:15:00 GMT*
+*Published on: Sat, 14 Sep 2024 12:00:00 GMT*
 
 
 ## Tim Cook
@@ -50,42 +37,60 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Tim Cook
 
-## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
+## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 19:04:09 GMT*
+*Published on: Sat, 14 Sep 2024 19:30:00 GMT*
 
 
 ## Tim Cook
 
-## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
+## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 19:30:00 GMT*
+*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
 
 
-## Taylor Swift
-
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/nike-field-general-82/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 14:14:00 GMT
-Sat, 14 Sep 2024 14:13:00 GMT*
-
-
-## Taylor Swift
+## Tim Cook
 
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:15:00 GMT*
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
+
+
+## Tim Cook
+
+## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
+
+
+## Tim Cook
+
+## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
+adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
+https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:17:00 GMT
+Sun, 15 Sep 2024 14:17:00 GMT*
+
+
+## Taylor Swift
+
+## [Nike's Jordan 1 Sneaker Gets a Flawless Navy Makeover ](https://www.highsnobiety.com/p/jordan-1-midnight-navy-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 12:00:00 GMT*
 
 
 ## Taylor Swift
@@ -117,14 +122,90 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Taylor Swift
 
-## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
+## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 19:04:09 GMT*
+*Published on: Sat, 14 Sep 2024 19:30:00 GMT*
 
 
 ## Taylor Swift
+
+## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
+
+
+## Taylor Swift
+
+## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
+
+
+## Taylor Swift
+
+## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
+
+
+## Taylor Swift
+
+## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
+adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
+https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:17:00 GMT
+Sun, 15 Sep 2024 14:17:00 GMT*
+
+
+## Tom Brady
+
+## [Nike's Jordan 1 Sneaker Gets a Flawless Navy Makeover ](https://www.highsnobiety.com/p/jordan-1-midnight-navy-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 12:00:00 GMT*
+
+
+## Tom Brady
+
+## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 15:30:00 GMT*
+
+
+## Tom Brady
+
+## [Awake NY x Levi's Is Deliciously Oversized  Overdyed](https://www.highsnobiety.com/p/awake-levis-collab-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 17:01:29 GMT*
+
+
+## Tom Brady
+
+## [Clarks Are Sexy Sportswear Now, Thanks to Ancuta Sarca  ](https://www.highsnobiety.com/p/ancuta-sarca-clarks-ss25/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 18:00:02 GMT*
+
+
+## Tom Brady
 
 ## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
 
@@ -135,15 +216,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Tom Brady
 
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/nike-field-general-82/)
+## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:14:00 GMT
-Sat, 14 Sep 2024 14:13:00 GMT*
+*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
 
 
 ## Tom Brady
@@ -152,74 +229,38 @@ Sat, 14 Sep 2024 14:13:00 GMT*
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:15:00 GMT*
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
 
 
 ## Tom Brady
 
-## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 15:30:00 GMT*
-
-
-## Tom Brady
-
-## [Awake NY x Levi's Is Deliciously Oversized  Overdyed](https://www.highsnobiety.com/p/awake-levis-collab-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 17:01:29 GMT*
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
 
 
 ## Tom Brady
 
-## [Clarks Are Sexy Sportswear Now, Thanks to Ancuta Sarca  ](https://www.highsnobiety.com/p/ancuta-sarca-clarks-ss25/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 18:00:02 GMT*
-
-
-## Tom Brady
-
-## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 19:04:09 GMT*
-
-
-## Tom Brady
-
-## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 19:30:00 GMT*
-
-
-## Tina Fey
-
 ## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/nike-field-general-82/)
+adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
+https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:14:00 GMT
-Sat, 14 Sep 2024 14:13:00 GMT*
+*Published on: Sun, 15 Sep 2024 14:17:00 GMT
+Sun, 15 Sep 2024 14:17:00 GMT*
 
 
 ## Tina Fey
 
-## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+## [Nike's Jordan 1 Sneaker Gets a Flawless Navy Makeover ](https://www.highsnobiety.com/p/jordan-1-midnight-navy-where-to-buy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:15:00 GMT*
+*Published on: Sat, 14 Sep 2024 12:00:00 GMT*
 
 
 ## Tina Fey
@@ -251,42 +292,60 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Tina Fey
 
-## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
+## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 19:04:09 GMT*
+*Published on: Sat, 14 Sep 2024 19:30:00 GMT*
 
 
 ## Tina Fey
 
-## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
+## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 19:30:00 GMT*
+*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
 
 
-## Steven Yuen
-
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/nike-field-general-82/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 14:14:00 GMT
-Sat, 14 Sep 2024 14:13:00 GMT*
-
-
-## Steven Yuen
+## Tina Fey
 
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:15:00 GMT*
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
+
+
+## Tina Fey
+
+## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
+
+
+## Tina Fey
+
+## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
+adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
+https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:17:00 GMT
+Sun, 15 Sep 2024 14:17:00 GMT*
+
+
+## Steven Yuen
+
+## [Nike's Jordan 1 Sneaker Gets a Flawless Navy Makeover ](https://www.highsnobiety.com/p/jordan-1-midnight-navy-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 12:00:00 GMT*
 
 
 ## Steven Yuen
@@ -318,14 +377,90 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Steven Yuen
 
-## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
+## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 19:04:09 GMT*
+*Published on: Sat, 14 Sep 2024 19:30:00 GMT*
 
 
 ## Steven Yuen
+
+## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
+
+
+## Steven Yuen
+
+## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
+
+
+## Steven Yuen
+
+## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
+
+
+## Steven Yuen
+
+## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
+adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
+https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:17:00 GMT
+Sun, 15 Sep 2024 14:17:00 GMT*
+
+
+## Sommer Ray
+
+## [Nike's Jordan 1 Sneaker Gets a Flawless Navy Makeover ](https://www.highsnobiety.com/p/jordan-1-midnight-navy-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 12:00:00 GMT*
+
+
+## Sommer Ray
+
+## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 15:30:00 GMT*
+
+
+## Sommer Ray
+
+## [Awake NY x Levi's Is Deliciously Oversized  Overdyed](https://www.highsnobiety.com/p/awake-levis-collab-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 17:01:29 GMT*
+
+
+## Sommer Ray
+
+## [Clarks Are Sexy Sportswear Now, Thanks to Ancuta Sarca  ](https://www.highsnobiety.com/p/ancuta-sarca-clarks-ss25/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 18:00:02 GMT*
+
+
+## Sommer Ray
 
 ## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
 
@@ -336,15 +471,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Sommer Ray
 
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/nike-field-general-82/)
+## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:14:00 GMT
-Sat, 14 Sep 2024 14:13:00 GMT*
+*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
 
 
 ## Sommer Ray
@@ -353,74 +484,38 @@ Sat, 14 Sep 2024 14:13:00 GMT*
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:15:00 GMT*
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
 
 
 ## Sommer Ray
 
-## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 15:30:00 GMT*
-
-
-## Sommer Ray
-
-## [Awake NY x Levi's Is Deliciously Oversized  Overdyed](https://www.highsnobiety.com/p/awake-levis-collab-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 17:01:29 GMT*
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
 
 
 ## Sommer Ray
 
-## [Clarks Are Sexy Sportswear Now, Thanks to Ancuta Sarca  ](https://www.highsnobiety.com/p/ancuta-sarca-clarks-ss25/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 18:00:02 GMT*
-
-
-## Sommer Ray
-
-## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 19:04:09 GMT*
-
-
-## Sommer Ray
-
-## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 19:30:00 GMT*
-
-
-## Sza
-
 ## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/nike-field-general-82/)
+adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
+https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:14:00 GMT
-Sat, 14 Sep 2024 14:13:00 GMT*
+*Published on: Sun, 15 Sep 2024 14:17:00 GMT
+Sun, 15 Sep 2024 14:17:00 GMT*
 
 
 ## Sza
 
-## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+## [Nike's Jordan 1 Sneaker Gets a Flawless Navy Makeover ](https://www.highsnobiety.com/p/jordan-1-midnight-navy-where-to-buy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:15:00 GMT*
+*Published on: Sat, 14 Sep 2024 12:00:00 GMT*
 
 
 ## Sza
@@ -452,42 +547,60 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Sza
 
-## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
+## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 19:04:09 GMT*
+*Published on: Sat, 14 Sep 2024 19:30:00 GMT*
 
 
 ## Sza
 
-## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
+## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 19:30:00 GMT*
+*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
 
 
-## Sydney Sweeney
-
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/nike-field-general-82/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 14:14:00 GMT
-Sat, 14 Sep 2024 14:13:00 GMT*
-
-
-## Sydney Sweeney
+## Sza
 
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:15:00 GMT*
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
+
+
+## Sza
+
+## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
+
+
+## Sza
+
+## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
+adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
+https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:17:00 GMT
+Sun, 15 Sep 2024 14:17:00 GMT*
+
+
+## Sydney Sweeney
+
+## [Nike's Jordan 1 Sneaker Gets a Flawless Navy Makeover ](https://www.highsnobiety.com/p/jordan-1-midnight-navy-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 12:00:00 GMT*
 
 
 ## Sydney Sweeney
@@ -519,14 +632,90 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Sydney Sweeney
 
-## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
+## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 19:04:09 GMT*
+*Published on: Sat, 14 Sep 2024 19:30:00 GMT*
 
 
 ## Sydney Sweeney
+
+## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
+
+
+## Sydney Sweeney
+
+## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
+
+
+## Sydney Sweeney
+
+## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
+
+
+## Sydney Sweeney
+
+## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
+adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
+https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:17:00 GMT
+Sun, 15 Sep 2024 14:17:00 GMT*
+
+
+## Walton Goggins
+
+## [Nike's Jordan 1 Sneaker Gets a Flawless Navy Makeover ](https://www.highsnobiety.com/p/jordan-1-midnight-navy-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 12:00:00 GMT*
+
+
+## Walton Goggins
+
+## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 15:30:00 GMT*
+
+
+## Walton Goggins
+
+## [Awake NY x Levi's Is Deliciously Oversized  Overdyed](https://www.highsnobiety.com/p/awake-levis-collab-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 17:01:29 GMT*
+
+
+## Walton Goggins
+
+## [Clarks Are Sexy Sportswear Now, Thanks to Ancuta Sarca  ](https://www.highsnobiety.com/p/ancuta-sarca-clarks-ss25/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 18:00:02 GMT*
+
+
+## Walton Goggins
 
 ## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
 
@@ -537,15 +726,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Walton Goggins
 
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/nike-field-general-82/)
+## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:14:00 GMT
-Sat, 14 Sep 2024 14:13:00 GMT*
+*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
 
 
 ## Walton Goggins
@@ -554,74 +739,38 @@ Sat, 14 Sep 2024 14:13:00 GMT*
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:15:00 GMT*
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
 
 
 ## Walton Goggins
 
-## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 15:30:00 GMT*
-
-
-## Walton Goggins
-
-## [Awake NY x Levi's Is Deliciously Oversized  Overdyed](https://www.highsnobiety.com/p/awake-levis-collab-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 17:01:29 GMT*
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
 
 
 ## Walton Goggins
 
-## [Clarks Are Sexy Sportswear Now, Thanks to Ancuta Sarca  ](https://www.highsnobiety.com/p/ancuta-sarca-clarks-ss25/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 18:00:02 GMT*
-
-
-## Walton Goggins
-
-## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 19:04:09 GMT*
-
-
-## Walton Goggins
-
-## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 19:30:00 GMT*
-
-
-## Tom Holland
-
 ## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/nike-field-general-82/)
+adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
+https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:14:00 GMT
-Sat, 14 Sep 2024 14:13:00 GMT*
+*Published on: Sun, 15 Sep 2024 14:17:00 GMT
+Sun, 15 Sep 2024 14:17:00 GMT*
 
 
 ## Tom Holland
 
-## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+## [Nike's Jordan 1 Sneaker Gets a Flawless Navy Makeover ](https://www.highsnobiety.com/p/jordan-1-midnight-navy-where-to-buy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:15:00 GMT*
+*Published on: Sat, 14 Sep 2024 12:00:00 GMT*
 
 
 ## Tom Holland
@@ -653,42 +802,60 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Tom Holland
 
-## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
+## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 19:04:09 GMT*
+*Published on: Sat, 14 Sep 2024 19:30:00 GMT*
 
 
 ## Tom Holland
 
-## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
+## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 19:30:00 GMT*
+*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
 
 
-## Gucci Mane
-
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/nike-field-general-82/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 14:14:00 GMT
-Sat, 14 Sep 2024 14:13:00 GMT*
-
-
-## Gucci Mane
+## Tom Holland
 
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:15:00 GMT*
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
+
+
+## Tom Holland
+
+## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
+
+
+## Tom Holland
+
+## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
+adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
+https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:17:00 GMT
+Sun, 15 Sep 2024 14:17:00 GMT*
+
+
+## Gucci Mane
+
+## [Nike's Jordan 1 Sneaker Gets a Flawless Navy Makeover ](https://www.highsnobiety.com/p/jordan-1-midnight-navy-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 12:00:00 GMT*
 
 
 ## Gucci Mane
@@ -720,14 +887,90 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Gucci Mane
 
-## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
+## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 19:04:09 GMT*
+*Published on: Sat, 14 Sep 2024 19:30:00 GMT*
 
 
 ## Gucci Mane
+
+## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
+
+
+## Gucci Mane
+
+## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
+
+
+## Gucci Mane
+
+## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
+
+
+## Gucci Mane
+
+## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
+adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
+https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:17:00 GMT
+Sun, 15 Sep 2024 14:17:00 GMT*
+
+
+## Harry Styles
+
+## [Nike's Jordan 1 Sneaker Gets a Flawless Navy Makeover ](https://www.highsnobiety.com/p/jordan-1-midnight-navy-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 12:00:00 GMT*
+
+
+## Harry Styles
+
+## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 15:30:00 GMT*
+
+
+## Harry Styles
+
+## [Awake NY x Levi's Is Deliciously Oversized  Overdyed](https://www.highsnobiety.com/p/awake-levis-collab-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 17:01:29 GMT*
+
+
+## Harry Styles
+
+## [Clarks Are Sexy Sportswear Now, Thanks to Ancuta Sarca  ](https://www.highsnobiety.com/p/ancuta-sarca-clarks-ss25/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 18:00:02 GMT*
+
+
+## Harry Styles
 
 ## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
 
@@ -738,15 +981,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Harry Styles
 
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/nike-field-general-82/)
+## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:14:00 GMT
-Sat, 14 Sep 2024 14:13:00 GMT*
+*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
 
 
 ## Harry Styles
@@ -755,74 +994,38 @@ Sat, 14 Sep 2024 14:13:00 GMT*
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:15:00 GMT*
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
 
 
 ## Harry Styles
 
-## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 15:30:00 GMT*
-
-
-## Harry Styles
-
-## [Awake NY x Levi's Is Deliciously Oversized  Overdyed](https://www.highsnobiety.com/p/awake-levis-collab-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 17:01:29 GMT*
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
 
 
 ## Harry Styles
 
-## [Clarks Are Sexy Sportswear Now, Thanks to Ancuta Sarca  ](https://www.highsnobiety.com/p/ancuta-sarca-clarks-ss25/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 18:00:02 GMT*
-
-
-## Harry Styles
-
-## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 19:04:09 GMT*
-
-
-## Harry Styles
-
-## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 19:30:00 GMT*
-
-
-## Jake Paul
-
 ## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/nike-field-general-82/)
+adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
+https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:14:00 GMT
-Sat, 14 Sep 2024 14:13:00 GMT*
+*Published on: Sun, 15 Sep 2024 14:17:00 GMT
+Sun, 15 Sep 2024 14:17:00 GMT*
 
 
 ## Jake Paul
 
-## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+## [Nike's Jordan 1 Sneaker Gets a Flawless Navy Makeover ](https://www.highsnobiety.com/p/jordan-1-midnight-navy-where-to-buy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:15:00 GMT*
+*Published on: Sat, 14 Sep 2024 12:00:00 GMT*
 
 
 ## Jake Paul
@@ -854,42 +1057,60 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Jake Paul
 
-## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
+## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 19:04:09 GMT*
+*Published on: Sat, 14 Sep 2024 19:30:00 GMT*
 
 
 ## Jake Paul
 
-## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
+## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 19:30:00 GMT*
+*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
 
 
-## Jameela Jamil
-
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/nike-field-general-82/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 14:14:00 GMT
-Sat, 14 Sep 2024 14:13:00 GMT*
-
-
-## Jameela Jamil
+## Jake Paul
 
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:15:00 GMT*
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
+
+
+## Jake Paul
+
+## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
+
+
+## Jake Paul
+
+## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
+adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
+https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:17:00 GMT
+Sun, 15 Sep 2024 14:17:00 GMT*
+
+
+## Jameela Jamil
+
+## [Nike's Jordan 1 Sneaker Gets a Flawless Navy Makeover ](https://www.highsnobiety.com/p/jordan-1-midnight-navy-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 12:00:00 GMT*
 
 
 ## Jameela Jamil
@@ -921,14 +1142,90 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Jameela Jamil
 
-## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
+## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 19:04:09 GMT*
+*Published on: Sat, 14 Sep 2024 19:30:00 GMT*
 
 
 ## Jameela Jamil
+
+## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
+
+
+## Jameela Jamil
+
+## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
+
+
+## Jameela Jamil
+
+## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
+
+
+## Jameela Jamil
+
+## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
+adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
+https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:17:00 GMT
+Sun, 15 Sep 2024 14:17:00 GMT*
+
+
+## Elon Musk
+
+## [Nike's Jordan 1 Sneaker Gets a Flawless Navy Makeover ](https://www.highsnobiety.com/p/jordan-1-midnight-navy-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 12:00:00 GMT*
+
+
+## Elon Musk
+
+## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 15:30:00 GMT*
+
+
+## Elon Musk
+
+## [Awake NY x Levi's Is Deliciously Oversized  Overdyed](https://www.highsnobiety.com/p/awake-levis-collab-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 17:01:29 GMT*
+
+
+## Elon Musk
+
+## [Clarks Are Sexy Sportswear Now, Thanks to Ancuta Sarca  ](https://www.highsnobiety.com/p/ancuta-sarca-clarks-ss25/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 18:00:02 GMT*
+
+
+## Elon Musk
 
 ## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
 
@@ -939,15 +1236,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Elon Musk
 
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/nike-field-general-82/)
+## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:14:00 GMT
-Sat, 14 Sep 2024 14:13:00 GMT*
+*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
 
 
 ## Elon Musk
@@ -956,74 +1249,38 @@ Sat, 14 Sep 2024 14:13:00 GMT*
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:15:00 GMT*
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
 
 
 ## Elon Musk
 
-## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 15:30:00 GMT*
-
-
-## Elon Musk
-
-## [Awake NY x Levi's Is Deliciously Oversized  Overdyed](https://www.highsnobiety.com/p/awake-levis-collab-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 17:01:29 GMT*
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
 
 
 ## Elon Musk
 
-## [Clarks Are Sexy Sportswear Now, Thanks to Ancuta Sarca  ](https://www.highsnobiety.com/p/ancuta-sarca-clarks-ss25/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 18:00:02 GMT*
-
-
-## Elon Musk
-
-## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 19:04:09 GMT*
-
-
-## Elon Musk
-
-## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 19:30:00 GMT*
-
-
-## Gabrielle Union
-
 ## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/nike-field-general-82/)
+adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
+https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:14:00 GMT
-Sat, 14 Sep 2024 14:13:00 GMT*
+*Published on: Sun, 15 Sep 2024 14:17:00 GMT
+Sun, 15 Sep 2024 14:17:00 GMT*
 
 
 ## Gabrielle Union
 
-## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+## [Nike's Jordan 1 Sneaker Gets a Flawless Navy Makeover ](https://www.highsnobiety.com/p/jordan-1-midnight-navy-where-to-buy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:15:00 GMT*
+*Published on: Sat, 14 Sep 2024 12:00:00 GMT*
 
 
 ## Gabrielle Union
@@ -1055,42 +1312,60 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Gabrielle Union
 
-## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
+## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 19:04:09 GMT*
+*Published on: Sat, 14 Sep 2024 19:30:00 GMT*
 
 
 ## Gabrielle Union
 
-## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
+## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 19:30:00 GMT*
+*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
 
 
-## Giancarlo Esposito
-
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/nike-field-general-82/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 14:14:00 GMT
-Sat, 14 Sep 2024 14:13:00 GMT*
-
-
-## Giancarlo Esposito
+## Gabrielle Union
 
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:15:00 GMT*
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
+
+
+## Gabrielle Union
+
+## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
+
+
+## Gabrielle Union
+
+## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
+adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
+https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:17:00 GMT
+Sun, 15 Sep 2024 14:17:00 GMT*
+
+
+## Giancarlo Esposito
+
+## [Nike's Jordan 1 Sneaker Gets a Flawless Navy Makeover ](https://www.highsnobiety.com/p/jordan-1-midnight-navy-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 12:00:00 GMT*
 
 
 ## Giancarlo Esposito
@@ -1122,14 +1397,90 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Giancarlo Esposito
 
-## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
+## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 19:04:09 GMT*
+*Published on: Sat, 14 Sep 2024 19:30:00 GMT*
 
 
 ## Giancarlo Esposito
+
+## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
+
+
+## Giancarlo Esposito
+
+## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
+
+
+## Giancarlo Esposito
+
+## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
+
+
+## Giancarlo Esposito
+
+## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
+adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
+https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:17:00 GMT
+Sun, 15 Sep 2024 14:17:00 GMT*
+
+
+## Gillian Jacobs
+
+## [Nike's Jordan 1 Sneaker Gets a Flawless Navy Makeover ](https://www.highsnobiety.com/p/jordan-1-midnight-navy-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 12:00:00 GMT*
+
+
+## Gillian Jacobs
+
+## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 15:30:00 GMT*
+
+
+## Gillian Jacobs
+
+## [Awake NY x Levi's Is Deliciously Oversized  Overdyed](https://www.highsnobiety.com/p/awake-levis-collab-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 17:01:29 GMT*
+
+
+## Gillian Jacobs
+
+## [Clarks Are Sexy Sportswear Now, Thanks to Ancuta Sarca  ](https://www.highsnobiety.com/p/ancuta-sarca-clarks-ss25/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 18:00:02 GMT*
+
+
+## Gillian Jacobs
 
 ## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
 
@@ -1140,15 +1491,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Gillian Jacobs
 
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/nike-field-general-82/)
+## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:14:00 GMT
-Sat, 14 Sep 2024 14:13:00 GMT*
+*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
 
 
 ## Gillian Jacobs
@@ -1157,74 +1504,38 @@ Sat, 14 Sep 2024 14:13:00 GMT*
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:15:00 GMT*
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
 
 
 ## Gillian Jacobs
 
-## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 15:30:00 GMT*
-
-
-## Gillian Jacobs
-
-## [Awake NY x Levi's Is Deliciously Oversized  Overdyed](https://www.highsnobiety.com/p/awake-levis-collab-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 17:01:29 GMT*
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
 
 
 ## Gillian Jacobs
 
-## [Clarks Are Sexy Sportswear Now, Thanks to Ancuta Sarca  ](https://www.highsnobiety.com/p/ancuta-sarca-clarks-ss25/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 18:00:02 GMT*
-
-
-## Gillian Jacobs
-
-## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 19:04:09 GMT*
-
-
-## Gillian Jacobs
-
-## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 19:30:00 GMT*
-
-
-## Jason Mantzoukas
-
 ## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/nike-field-general-82/)
+adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
+https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:14:00 GMT
-Sat, 14 Sep 2024 14:13:00 GMT*
+*Published on: Sun, 15 Sep 2024 14:17:00 GMT
+Sun, 15 Sep 2024 14:17:00 GMT*
 
 
 ## Jason Mantzoukas
 
-## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+## [Nike's Jordan 1 Sneaker Gets a Flawless Navy Makeover ](https://www.highsnobiety.com/p/jordan-1-midnight-navy-where-to-buy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:15:00 GMT*
+*Published on: Sat, 14 Sep 2024 12:00:00 GMT*
 
 
 ## Jason Mantzoukas
@@ -1256,42 +1567,60 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Jason Mantzoukas
 
-## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
+## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 19:04:09 GMT*
+*Published on: Sat, 14 Sep 2024 19:30:00 GMT*
 
 
 ## Jason Mantzoukas
 
-## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
+## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 19:30:00 GMT*
+*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
 
 
-## JB Smoove
-
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/nike-field-general-82/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 14:14:00 GMT
-Sat, 14 Sep 2024 14:13:00 GMT*
-
-
-## JB Smoove
+## Jason Mantzoukas
 
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:15:00 GMT*
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
+
+
+## Jason Mantzoukas
+
+## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
+
+
+## Jason Mantzoukas
+
+## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
+adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
+https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:17:00 GMT
+Sun, 15 Sep 2024 14:17:00 GMT*
+
+
+## JB Smoove
+
+## [Nike's Jordan 1 Sneaker Gets a Flawless Navy Makeover ](https://www.highsnobiety.com/p/jordan-1-midnight-navy-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 12:00:00 GMT*
 
 
 ## JB Smoove
@@ -1323,14 +1652,90 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## JB Smoove
 
-## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
+## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 19:04:09 GMT*
+*Published on: Sat, 14 Sep 2024 19:30:00 GMT*
 
 
 ## JB Smoove
+
+## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
+
+
+## JB Smoove
+
+## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
+
+
+## JB Smoove
+
+## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
+
+
+## JB Smoove
+
+## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
+adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
+https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:17:00 GMT
+Sun, 15 Sep 2024 14:17:00 GMT*
+
+
+## Madison Pettis
+
+## [Nike's Jordan 1 Sneaker Gets a Flawless Navy Makeover ](https://www.highsnobiety.com/p/jordan-1-midnight-navy-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 12:00:00 GMT*
+
+
+## Madison Pettis
+
+## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 15:30:00 GMT*
+
+
+## Madison Pettis
+
+## [Awake NY x Levi's Is Deliciously Oversized  Overdyed](https://www.highsnobiety.com/p/awake-levis-collab-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 17:01:29 GMT*
+
+
+## Madison Pettis
+
+## [Clarks Are Sexy Sportswear Now, Thanks to Ancuta Sarca  ](https://www.highsnobiety.com/p/ancuta-sarca-clarks-ss25/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 18:00:02 GMT*
+
+
+## Madison Pettis
 
 ## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
 
@@ -1341,15 +1746,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Madison Pettis
 
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/nike-field-general-82/)
+## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:14:00 GMT
-Sat, 14 Sep 2024 14:13:00 GMT*
+*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
 
 
 ## Madison Pettis
@@ -1358,74 +1759,38 @@ Sat, 14 Sep 2024 14:13:00 GMT*
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:15:00 GMT*
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
 
 
 ## Madison Pettis
 
-## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 15:30:00 GMT*
-
-
-## Madison Pettis
-
-## [Awake NY x Levi's Is Deliciously Oversized  Overdyed](https://www.highsnobiety.com/p/awake-levis-collab-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 17:01:29 GMT*
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
 
 
 ## Madison Pettis
 
-## [Clarks Are Sexy Sportswear Now, Thanks to Ancuta Sarca  ](https://www.highsnobiety.com/p/ancuta-sarca-clarks-ss25/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 18:00:02 GMT*
-
-
-## Madison Pettis
-
-## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 19:04:09 GMT*
-
-
-## Madison Pettis
-
-## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 19:30:00 GMT*
-
-
-## Austin Butler
-
 ## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/nike-field-general-82/)
+adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
+https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:14:00 GMT
-Sat, 14 Sep 2024 14:13:00 GMT*
+*Published on: Sun, 15 Sep 2024 14:17:00 GMT
+Sun, 15 Sep 2024 14:17:00 GMT*
 
 
 ## Austin Butler
 
-## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+## [Nike's Jordan 1 Sneaker Gets a Flawless Navy Makeover ](https://www.highsnobiety.com/p/jordan-1-midnight-navy-where-to-buy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:15:00 GMT*
+*Published on: Sat, 14 Sep 2024 12:00:00 GMT*
 
 
 ## Austin Butler
@@ -1457,42 +1822,60 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Austin Butler
 
-## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
+## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 19:04:09 GMT*
+*Published on: Sat, 14 Sep 2024 19:30:00 GMT*
 
 
 ## Austin Butler
 
-## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
+## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 19:30:00 GMT*
+*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
 
 
-## Mark Zuckerberg
-
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/nike-field-general-82/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 14:14:00 GMT
-Sat, 14 Sep 2024 14:13:00 GMT*
-
-
-## Mark Zuckerberg
+## Austin Butler
 
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:15:00 GMT*
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
+
+
+## Austin Butler
+
+## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
+
+
+## Austin Butler
+
+## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
+adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
+https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:17:00 GMT
+Sun, 15 Sep 2024 14:17:00 GMT*
+
+
+## Mark Zuckerberg
+
+## [Nike's Jordan 1 Sneaker Gets a Flawless Navy Makeover ](https://www.highsnobiety.com/p/jordan-1-midnight-navy-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 12:00:00 GMT*
 
 
 ## Mark Zuckerberg
@@ -1524,14 +1907,90 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Mark Zuckerberg
 
-## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
+## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 19:04:09 GMT*
+*Published on: Sat, 14 Sep 2024 19:30:00 GMT*
 
 
 ## Mark Zuckerberg
+
+## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
+
+
+## Mark Zuckerberg
+
+## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
+
+
+## Mark Zuckerberg
+
+## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
+
+
+## Mark Zuckerberg
+
+## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
+adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
+https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:17:00 GMT
+Sun, 15 Sep 2024 14:17:00 GMT*
+
+
+## Ariana Grande
+
+## [Nike's Jordan 1 Sneaker Gets a Flawless Navy Makeover ](https://www.highsnobiety.com/p/jordan-1-midnight-navy-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 12:00:00 GMT*
+
+
+## Ariana Grande
+
+## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 15:30:00 GMT*
+
+
+## Ariana Grande
+
+## [Awake NY x Levi's Is Deliciously Oversized  Overdyed](https://www.highsnobiety.com/p/awake-levis-collab-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 17:01:29 GMT*
+
+
+## Ariana Grande
+
+## [Clarks Are Sexy Sportswear Now, Thanks to Ancuta Sarca  ](https://www.highsnobiety.com/p/ancuta-sarca-clarks-ss25/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 18:00:02 GMT*
+
+
+## Ariana Grande
 
 ## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
 
@@ -1542,15 +2001,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Ariana Grande
 
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/nike-field-general-82/)
+## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:14:00 GMT
-Sat, 14 Sep 2024 14:13:00 GMT*
+*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
 
 
 ## Ariana Grande
@@ -1559,74 +2014,38 @@ Sat, 14 Sep 2024 14:13:00 GMT*
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:15:00 GMT*
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
 
 
 ## Ariana Grande
 
-## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 15:30:00 GMT*
-
-
-## Ariana Grande
-
-## [Awake NY x Levi's Is Deliciously Oversized  Overdyed](https://www.highsnobiety.com/p/awake-levis-collab-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 17:01:29 GMT*
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
 
 
 ## Ariana Grande
 
-## [Clarks Are Sexy Sportswear Now, Thanks to Ancuta Sarca  ](https://www.highsnobiety.com/p/ancuta-sarca-clarks-ss25/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 18:00:02 GMT*
-
-
-## Ariana Grande
-
-## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 19:04:09 GMT*
-
-
-## Ariana Grande
-
-## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 19:30:00 GMT*
-
-
-## Livvy Dunne
-
 ## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/nike-field-general-82/)
+adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
+https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:14:00 GMT
-Sat, 14 Sep 2024 14:13:00 GMT*
+*Published on: Sun, 15 Sep 2024 14:17:00 GMT
+Sun, 15 Sep 2024 14:17:00 GMT*
 
 
 ## Livvy Dunne
 
-## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+## [Nike's Jordan 1 Sneaker Gets a Flawless Navy Makeover ](https://www.highsnobiety.com/p/jordan-1-midnight-navy-where-to-buy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:15:00 GMT*
+*Published on: Sat, 14 Sep 2024 12:00:00 GMT*
 
 
 ## Livvy Dunne
@@ -1658,42 +2077,60 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Livvy Dunne
 
-## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
+## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 19:04:09 GMT*
+*Published on: Sat, 14 Sep 2024 19:30:00 GMT*
 
 
 ## Livvy Dunne
 
-## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
+## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 19:30:00 GMT*
+*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
 
 
-## Ali Wong
-
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/nike-field-general-82/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 14:14:00 GMT
-Sat, 14 Sep 2024 14:13:00 GMT*
-
-
-## Ali Wong
+## Livvy Dunne
 
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:15:00 GMT*
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
+
+
+## Livvy Dunne
+
+## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
+
+
+## Livvy Dunne
+
+## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
+adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
+https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:17:00 GMT
+Sun, 15 Sep 2024 14:17:00 GMT*
+
+
+## Ali Wong
+
+## [Nike's Jordan 1 Sneaker Gets a Flawless Navy Makeover ](https://www.highsnobiety.com/p/jordan-1-midnight-navy-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 12:00:00 GMT*
 
 
 ## Ali Wong
@@ -1725,14 +2162,90 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Ali Wong
 
-## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
+## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 19:04:09 GMT*
+*Published on: Sat, 14 Sep 2024 19:30:00 GMT*
 
 
 ## Ali Wong
+
+## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
+
+
+## Ali Wong
+
+## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
+
+
+## Ali Wong
+
+## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
+
+
+## Ali Wong
+
+## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
+adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
+https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:17:00 GMT
+Sun, 15 Sep 2024 14:17:00 GMT*
+
+
+## Lizzo
+
+## [Nike's Jordan 1 Sneaker Gets a Flawless Navy Makeover ](https://www.highsnobiety.com/p/jordan-1-midnight-navy-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 12:00:00 GMT*
+
+
+## Lizzo
+
+## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 15:30:00 GMT*
+
+
+## Lizzo
+
+## [Awake NY x Levi's Is Deliciously Oversized  Overdyed](https://www.highsnobiety.com/p/awake-levis-collab-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 17:01:29 GMT*
+
+
+## Lizzo
+
+## [Clarks Are Sexy Sportswear Now, Thanks to Ancuta Sarca  ](https://www.highsnobiety.com/p/ancuta-sarca-clarks-ss25/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 18:00:02 GMT*
+
+
+## Lizzo
 
 ## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
 
@@ -1743,15 +2256,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Lizzo
 
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/nike-field-general-82/)
+## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:14:00 GMT
-Sat, 14 Sep 2024 14:13:00 GMT*
+*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
 
 
 ## Lizzo
@@ -1760,74 +2269,38 @@ Sat, 14 Sep 2024 14:13:00 GMT*
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:15:00 GMT*
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
 
 
 ## Lizzo
 
-## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 15:30:00 GMT*
-
-
-## Lizzo
-
-## [Awake NY x Levi's Is Deliciously Oversized  Overdyed](https://www.highsnobiety.com/p/awake-levis-collab-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 17:01:29 GMT*
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
 
 
 ## Lizzo
 
-## [Clarks Are Sexy Sportswear Now, Thanks to Ancuta Sarca  ](https://www.highsnobiety.com/p/ancuta-sarca-clarks-ss25/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 18:00:02 GMT*
-
-
-## Lizzo
-
-## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 19:04:09 GMT*
-
-
-## Lizzo
-
-## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 19:30:00 GMT*
-
-
-## Alison Brie
-
 ## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/nike-field-general-82/)
+adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
+https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:14:00 GMT
-Sat, 14 Sep 2024 14:13:00 GMT*
+*Published on: Sun, 15 Sep 2024 14:17:00 GMT
+Sun, 15 Sep 2024 14:17:00 GMT*
 
 
 ## Alison Brie
 
-## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+## [Nike's Jordan 1 Sneaker Gets a Flawless Navy Makeover ](https://www.highsnobiety.com/p/jordan-1-midnight-navy-where-to-buy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:15:00 GMT*
+*Published on: Sat, 14 Sep 2024 12:00:00 GMT*
 
 
 ## Alison Brie
@@ -1859,42 +2332,60 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Alison Brie
 
-## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
+## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 19:04:09 GMT*
+*Published on: Sat, 14 Sep 2024 19:30:00 GMT*
 
 
 ## Alison Brie
 
-## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
+## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 19:30:00 GMT*
+*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
 
 
-## Lil Wayne
-
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/nike-field-general-82/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 14:14:00 GMT
-Sat, 14 Sep 2024 14:13:00 GMT*
-
-
-## Lil Wayne
+## Alison Brie
 
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:15:00 GMT*
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
+
+
+## Alison Brie
+
+## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
+
+
+## Alison Brie
+
+## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
+adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
+https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:17:00 GMT
+Sun, 15 Sep 2024 14:17:00 GMT*
+
+
+## Lil Wayne
+
+## [Nike's Jordan 1 Sneaker Gets a Flawless Navy Makeover ](https://www.highsnobiety.com/p/jordan-1-midnight-navy-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 12:00:00 GMT*
 
 
 ## Lil Wayne
@@ -1926,14 +2417,90 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Lil Wayne
 
-## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
+## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 19:04:09 GMT*
+*Published on: Sat, 14 Sep 2024 19:30:00 GMT*
 
 
 ## Lil Wayne
+
+## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
+
+
+## Lil Wayne
+
+## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
+
+
+## Lil Wayne
+
+## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
+
+
+## Lil Wayne
+
+## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
+adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
+https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:17:00 GMT
+Sun, 15 Sep 2024 14:17:00 GMT*
+
+
+## Adele
+
+## [Nike's Jordan 1 Sneaker Gets a Flawless Navy Makeover ](https://www.highsnobiety.com/p/jordan-1-midnight-navy-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 12:00:00 GMT*
+
+
+## Adele
+
+## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 15:30:00 GMT*
+
+
+## Adele
+
+## [Awake NY x Levi's Is Deliciously Oversized  Overdyed](https://www.highsnobiety.com/p/awake-levis-collab-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 17:01:29 GMT*
+
+
+## Adele
+
+## [Clarks Are Sexy Sportswear Now, Thanks to Ancuta Sarca  ](https://www.highsnobiety.com/p/ancuta-sarca-clarks-ss25/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 18:00:02 GMT*
+
+
+## Adele
 
 ## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
 
@@ -1944,15 +2511,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Adele
 
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/nike-field-general-82/)
+## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:14:00 GMT
-Sat, 14 Sep 2024 14:13:00 GMT*
+*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
 
 
 ## Adele
@@ -1961,74 +2524,38 @@ Sat, 14 Sep 2024 14:13:00 GMT*
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:15:00 GMT*
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
 
 
 ## Adele
 
-## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 15:30:00 GMT*
-
-
-## Adele
-
-## [Awake NY x Levi's Is Deliciously Oversized  Overdyed](https://www.highsnobiety.com/p/awake-levis-collab-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 17:01:29 GMT*
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
 
 
 ## Adele
 
-## [Clarks Are Sexy Sportswear Now, Thanks to Ancuta Sarca  ](https://www.highsnobiety.com/p/ancuta-sarca-clarks-ss25/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 18:00:02 GMT*
-
-
-## Adele
-
-## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 19:04:09 GMT*
-
-
-## Adele
-
-## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 19:30:00 GMT*
-
-
-## Lindsay Lohan
-
 ## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/nike-field-general-82/)
+adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
+https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:14:00 GMT
-Sat, 14 Sep 2024 14:13:00 GMT*
+*Published on: Sun, 15 Sep 2024 14:17:00 GMT
+Sun, 15 Sep 2024 14:17:00 GMT*
 
 
 ## Lindsay Lohan
 
-## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+## [Nike's Jordan 1 Sneaker Gets a Flawless Navy Makeover ](https://www.highsnobiety.com/p/jordan-1-midnight-navy-where-to-buy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:15:00 GMT*
+*Published on: Sat, 14 Sep 2024 12:00:00 GMT*
 
 
 ## Lindsay Lohan
@@ -2060,42 +2587,60 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Lindsay Lohan
 
-## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
+## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 19:04:09 GMT*
+*Published on: Sat, 14 Sep 2024 19:30:00 GMT*
 
 
 ## Lindsay Lohan
 
-## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
+## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 19:30:00 GMT*
+*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
 
 
-## Addison Rae
-
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/nike-field-general-82/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 14:14:00 GMT
-Sat, 14 Sep 2024 14:13:00 GMT*
-
-
-## Addison Rae
+## Lindsay Lohan
 
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:15:00 GMT*
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
+
+
+## Lindsay Lohan
+
+## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
+
+
+## Lindsay Lohan
+
+## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
+adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
+https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:17:00 GMT
+Sun, 15 Sep 2024 14:17:00 GMT*
+
+
+## Addison Rae
+
+## [Nike's Jordan 1 Sneaker Gets a Flawless Navy Makeover ](https://www.highsnobiety.com/p/jordan-1-midnight-navy-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 12:00:00 GMT*
 
 
 ## Addison Rae
@@ -2127,14 +2672,90 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Addison Rae
 
-## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
+## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 19:04:09 GMT*
+*Published on: Sat, 14 Sep 2024 19:30:00 GMT*
 
 
 ## Addison Rae
+
+## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
+
+
+## Addison Rae
+
+## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
+
+
+## Addison Rae
+
+## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
+
+
+## Addison Rae
+
+## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
+adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
+https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:17:00 GMT
+Sun, 15 Sep 2024 14:17:00 GMT*
+
+
+## Latto
+
+## [Nike's Jordan 1 Sneaker Gets a Flawless Navy Makeover ](https://www.highsnobiety.com/p/jordan-1-midnight-navy-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 12:00:00 GMT*
+
+
+## Latto
+
+## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 15:30:00 GMT*
+
+
+## Latto
+
+## [Awake NY x Levi's Is Deliciously Oversized  Overdyed](https://www.highsnobiety.com/p/awake-levis-collab-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 17:01:29 GMT*
+
+
+## Latto
+
+## [Clarks Are Sexy Sportswear Now, Thanks to Ancuta Sarca  ](https://www.highsnobiety.com/p/ancuta-sarca-clarks-ss25/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 18:00:02 GMT*
+
+
+## Latto
 
 ## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
 
@@ -2145,15 +2766,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Latto
 
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/nike-field-general-82/)
+## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:14:00 GMT
-Sat, 14 Sep 2024 14:13:00 GMT*
+*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
 
 
 ## Latto
@@ -2162,74 +2779,38 @@ Sat, 14 Sep 2024 14:13:00 GMT*
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:15:00 GMT*
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
 
 
 ## Latto
 
-## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 15:30:00 GMT*
-
-
-## Latto
-
-## [Awake NY x Levi's Is Deliciously Oversized  Overdyed](https://www.highsnobiety.com/p/awake-levis-collab-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 17:01:29 GMT*
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
 
 
 ## Latto
 
-## [Clarks Are Sexy Sportswear Now, Thanks to Ancuta Sarca  ](https://www.highsnobiety.com/p/ancuta-sarca-clarks-ss25/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 18:00:02 GMT*
-
-
-## Latto
-
-## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 19:04:09 GMT*
-
-
-## Latto
-
-## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 19:30:00 GMT*
-
-
-## Aaron Paul
-
 ## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/nike-field-general-82/)
+adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
+https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:14:00 GMT
-Sat, 14 Sep 2024 14:13:00 GMT*
+*Published on: Sun, 15 Sep 2024 14:17:00 GMT
+Sun, 15 Sep 2024 14:17:00 GMT*
 
 
 ## Aaron Paul
 
-## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+## [Nike's Jordan 1 Sneaker Gets a Flawless Navy Makeover ](https://www.highsnobiety.com/p/jordan-1-midnight-navy-where-to-buy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:15:00 GMT*
+*Published on: Sat, 14 Sep 2024 12:00:00 GMT*
 
 
 ## Aaron Paul
@@ -2261,42 +2842,60 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Aaron Paul
 
-## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
+## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 19:04:09 GMT*
+*Published on: Sat, 14 Sep 2024 19:30:00 GMT*
 
 
 ## Aaron Paul
 
-## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
+## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 19:30:00 GMT*
+*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
 
 
-## LeBron James
-
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/nike-field-general-82/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 14:14:00 GMT
-Sat, 14 Sep 2024 14:13:00 GMT*
-
-
-## LeBron James
+## Aaron Paul
 
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:15:00 GMT*
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
+
+
+## Aaron Paul
+
+## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
+
+
+## Aaron Paul
+
+## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
+adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
+https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:17:00 GMT
+Sun, 15 Sep 2024 14:17:00 GMT*
+
+
+## LeBron James
+
+## [Nike's Jordan 1 Sneaker Gets a Flawless Navy Makeover ](https://www.highsnobiety.com/p/jordan-1-midnight-navy-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 12:00:00 GMT*
 
 
 ## LeBron James
@@ -2328,14 +2927,90 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## LeBron James
 
-## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
+## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 19:04:09 GMT*
+*Published on: Sat, 14 Sep 2024 19:30:00 GMT*
 
 
 ## LeBron James
+
+## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
+
+
+## LeBron James
+
+## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
+
+
+## LeBron James
+
+## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
+
+
+## LeBron James
+
+## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
+adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
+https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:17:00 GMT
+Sun, 15 Sep 2024 14:17:00 GMT*
+
+
+## 50 Cent
+
+## [Nike's Jordan 1 Sneaker Gets a Flawless Navy Makeover ](https://www.highsnobiety.com/p/jordan-1-midnight-navy-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 12:00:00 GMT*
+
+
+## 50 Cent
+
+## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 15:30:00 GMT*
+
+
+## 50 Cent
+
+## [Awake NY x Levi's Is Deliciously Oversized  Overdyed](https://www.highsnobiety.com/p/awake-levis-collab-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 17:01:29 GMT*
+
+
+## 50 Cent
+
+## [Clarks Are Sexy Sportswear Now, Thanks to Ancuta Sarca  ](https://www.highsnobiety.com/p/ancuta-sarca-clarks-ss25/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 18:00:02 GMT*
+
+
+## 50 Cent
 
 ## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
 
@@ -2346,15 +3021,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## 50 Cent
 
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/nike-field-general-82/)
+## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:14:00 GMT
-Sat, 14 Sep 2024 14:13:00 GMT*
+*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
 
 
 ## 50 Cent
@@ -2363,74 +3034,38 @@ Sat, 14 Sep 2024 14:13:00 GMT*
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:15:00 GMT*
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
 
 
 ## 50 Cent
 
-## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 15:30:00 GMT*
-
-
-## 50 Cent
-
-## [Awake NY x Levi's Is Deliciously Oversized  Overdyed](https://www.highsnobiety.com/p/awake-levis-collab-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 17:01:29 GMT*
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
 
 
 ## 50 Cent
 
-## [Clarks Are Sexy Sportswear Now, Thanks to Ancuta Sarca  ](https://www.highsnobiety.com/p/ancuta-sarca-clarks-ss25/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 18:00:02 GMT*
-
-
-## 50 Cent
-
-## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 19:04:09 GMT*
-
-
-## 50 Cent
-
-## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 19:30:00 GMT*
-
-
-## Kesha
-
 ## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/nike-field-general-82/)
+adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
+https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:14:00 GMT
-Sat, 14 Sep 2024 14:13:00 GMT*
+*Published on: Sun, 15 Sep 2024 14:17:00 GMT
+Sun, 15 Sep 2024 14:17:00 GMT*
 
 
 ## Kesha
 
-## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+## [Nike's Jordan 1 Sneaker Gets a Flawless Navy Makeover ](https://www.highsnobiety.com/p/jordan-1-midnight-navy-where-to-buy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:15:00 GMT*
+*Published on: Sat, 14 Sep 2024 12:00:00 GMT*
 
 
 ## Kesha
@@ -2462,42 +3097,60 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Kesha
 
-## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
+## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 19:04:09 GMT*
+*Published on: Sat, 14 Sep 2024 19:30:00 GMT*
 
 
 ## Kesha
 
-## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
+## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 19:30:00 GMT*
+*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
 
 
-## 21 Savage
-
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/nike-field-general-82/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 14:14:00 GMT
-Sat, 14 Sep 2024 14:13:00 GMT*
-
-
-## 21 Savage
+## Kesha
 
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:15:00 GMT*
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
+
+
+## Kesha
+
+## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
+
+
+## Kesha
+
+## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
+adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
+https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:17:00 GMT
+Sun, 15 Sep 2024 14:17:00 GMT*
+
+
+## 21 Savage
+
+## [Nike's Jordan 1 Sneaker Gets a Flawless Navy Makeover ](https://www.highsnobiety.com/p/jordan-1-midnight-navy-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 12:00:00 GMT*
 
 
 ## 21 Savage
@@ -2529,14 +3182,90 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## 21 Savage
 
-## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
+## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 19:04:09 GMT*
+*Published on: Sat, 14 Sep 2024 19:30:00 GMT*
 
 
 ## 21 Savage
+
+## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
+
+
+## 21 Savage
+
+## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
+
+
+## 21 Savage
+
+## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
+
+
+## 21 Savage
+
+## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
+adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
+https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:17:00 GMT
+Sun, 15 Sep 2024 14:17:00 GMT*
+
+
+## Larry David
+
+## [Nike's Jordan 1 Sneaker Gets a Flawless Navy Makeover ](https://www.highsnobiety.com/p/jordan-1-midnight-navy-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 12:00:00 GMT*
+
+
+## Larry David
+
+## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 15:30:00 GMT*
+
+
+## Larry David
+
+## [Awake NY x Levi's Is Deliciously Oversized  Overdyed](https://www.highsnobiety.com/p/awake-levis-collab-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 17:01:29 GMT*
+
+
+## Larry David
+
+## [Clarks Are Sexy Sportswear Now, Thanks to Ancuta Sarca  ](https://www.highsnobiety.com/p/ancuta-sarca-clarks-ss25/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 18:00:02 GMT*
+
+
+## Larry David
 
 ## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
 
@@ -2547,15 +3276,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Larry David
 
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/nike-field-general-82/)
+## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:14:00 GMT
-Sat, 14 Sep 2024 14:13:00 GMT*
+*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
 
 
 ## Larry David
@@ -2564,74 +3289,38 @@ Sat, 14 Sep 2024 14:13:00 GMT*
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:15:00 GMT*
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
 
 
 ## Larry David
 
-## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 15:30:00 GMT*
-
-
-## Larry David
-
-## [Awake NY x Levi's Is Deliciously Oversized  Overdyed](https://www.highsnobiety.com/p/awake-levis-collab-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 17:01:29 GMT*
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
 
 
 ## Larry David
 
-## [Clarks Are Sexy Sportswear Now, Thanks to Ancuta Sarca  ](https://www.highsnobiety.com/p/ancuta-sarca-clarks-ss25/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 18:00:02 GMT*
-
-
-## Larry David
-
-## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 19:04:09 GMT*
-
-
-## Larry David
-
-## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 19:30:00 GMT*
-
-
-## Seth Rogan
-
 ## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/nike-field-general-82/)
+adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
+https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:14:00 GMT
-Sat, 14 Sep 2024 14:13:00 GMT*
+*Published on: Sun, 15 Sep 2024 14:17:00 GMT
+Sun, 15 Sep 2024 14:17:00 GMT*
 
 
 ## Seth Rogan
 
-## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+## [Nike's Jordan 1 Sneaker Gets a Flawless Navy Makeover ](https://www.highsnobiety.com/p/jordan-1-midnight-navy-where-to-buy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:15:00 GMT*
+*Published on: Sat, 14 Sep 2024 12:00:00 GMT*
 
 
 ## Seth Rogan
@@ -2663,42 +3352,60 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Seth Rogan
 
-## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
+## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 19:04:09 GMT*
+*Published on: Sat, 14 Sep 2024 19:30:00 GMT*
 
 
 ## Seth Rogan
 
-## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
+## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 19:30:00 GMT*
+*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
 
 
-## Simone Biles
-
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/nike-field-general-82/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 14:14:00 GMT
-Sat, 14 Sep 2024 14:13:00 GMT*
-
-
-## Simone Biles
+## Seth Rogan
 
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:15:00 GMT*
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
+
+
+## Seth Rogan
+
+## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
+
+
+## Seth Rogan
+
+## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
+adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
+https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:17:00 GMT
+Sun, 15 Sep 2024 14:17:00 GMT*
+
+
+## Simone Biles
+
+## [Nike's Jordan 1 Sneaker Gets a Flawless Navy Makeover ](https://www.highsnobiety.com/p/jordan-1-midnight-navy-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 12:00:00 GMT*
 
 
 ## Simone Biles
@@ -2730,14 +3437,90 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Simone Biles
 
-## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
+## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 19:04:09 GMT*
+*Published on: Sat, 14 Sep 2024 19:30:00 GMT*
 
 
 ## Simone Biles
+
+## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
+
+
+## Simone Biles
+
+## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
+
+
+## Simone Biles
+
+## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
+
+
+## Simone Biles
+
+## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
+adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
+https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:17:00 GMT
+Sun, 15 Sep 2024 14:17:00 GMT*
+
+
+## Pete Davidson
+
+## [Nike's Jordan 1 Sneaker Gets a Flawless Navy Makeover ](https://www.highsnobiety.com/p/jordan-1-midnight-navy-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 12:00:00 GMT*
+
+
+## Pete Davidson
+
+## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 15:30:00 GMT*
+
+
+## Pete Davidson
+
+## [Awake NY x Levi's Is Deliciously Oversized  Overdyed](https://www.highsnobiety.com/p/awake-levis-collab-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 17:01:29 GMT*
+
+
+## Pete Davidson
+
+## [Clarks Are Sexy Sportswear Now, Thanks to Ancuta Sarca  ](https://www.highsnobiety.com/p/ancuta-sarca-clarks-ss25/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 18:00:02 GMT*
+
+
+## Pete Davidson
 
 ## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
 
@@ -2748,15 +3531,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Pete Davidson
 
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/nike-field-general-82/)
+## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:14:00 GMT
-Sat, 14 Sep 2024 14:13:00 GMT*
+*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
 
 
 ## Pete Davidson
@@ -2765,74 +3544,38 @@ Sat, 14 Sep 2024 14:13:00 GMT*
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:15:00 GMT*
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
 
 
 ## Pete Davidson
 
-## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 15:30:00 GMT*
-
-
-## Pete Davidson
-
-## [Awake NY x Levi's Is Deliciously Oversized  Overdyed](https://www.highsnobiety.com/p/awake-levis-collab-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 17:01:29 GMT*
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
 
 
 ## Pete Davidson
 
-## [Clarks Are Sexy Sportswear Now, Thanks to Ancuta Sarca  ](https://www.highsnobiety.com/p/ancuta-sarca-clarks-ss25/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 18:00:02 GMT*
-
-
-## Pete Davidson
-
-## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 19:04:09 GMT*
-
-
-## Pete Davidson
-
-## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 19:30:00 GMT*
-
-
-## Prince Harry
-
 ## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/nike-field-general-82/)
+adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
+https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:14:00 GMT
-Sat, 14 Sep 2024 14:13:00 GMT*
+*Published on: Sun, 15 Sep 2024 14:17:00 GMT
+Sun, 15 Sep 2024 14:17:00 GMT*
 
 
 ## Prince Harry
 
-## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+## [Nike's Jordan 1 Sneaker Gets a Flawless Navy Makeover ](https://www.highsnobiety.com/p/jordan-1-midnight-navy-where-to-buy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:15:00 GMT*
+*Published on: Sat, 14 Sep 2024 12:00:00 GMT*
 
 
 ## Prince Harry
@@ -2864,42 +3607,60 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Prince Harry
 
-## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
+## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 19:04:09 GMT*
+*Published on: Sat, 14 Sep 2024 19:30:00 GMT*
 
 
 ## Prince Harry
 
-## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
+## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 19:30:00 GMT*
+*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
 
 
-## Princess of Wales
-
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/nike-field-general-82/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 14:14:00 GMT
-Sat, 14 Sep 2024 14:13:00 GMT*
-
-
-## Princess of Wales
+## Prince Harry
 
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:15:00 GMT*
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
+
+
+## Prince Harry
+
+## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
+
+
+## Prince Harry
+
+## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
+adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
+https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:17:00 GMT
+Sun, 15 Sep 2024 14:17:00 GMT*
+
+
+## Princess of Wales
+
+## [Nike's Jordan 1 Sneaker Gets a Flawless Navy Makeover ](https://www.highsnobiety.com/p/jordan-1-midnight-navy-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 12:00:00 GMT*
 
 
 ## Princess of Wales
@@ -2931,14 +3692,90 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Princess of Wales
 
-## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
+## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 19:04:09 GMT*
+*Published on: Sat, 14 Sep 2024 19:30:00 GMT*
 
 
 ## Princess of Wales
+
+## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
+
+
+## Princess of Wales
+
+## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
+
+
+## Princess of Wales
+
+## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
+
+
+## Princess of Wales
+
+## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
+adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
+https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:17:00 GMT
+Sun, 15 Sep 2024 14:17:00 GMT*
+
+
+## Rachel McAdams
+
+## [Nike's Jordan 1 Sneaker Gets a Flawless Navy Makeover ](https://www.highsnobiety.com/p/jordan-1-midnight-navy-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 12:00:00 GMT*
+
+
+## Rachel McAdams
+
+## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 15:30:00 GMT*
+
+
+## Rachel McAdams
+
+## [Awake NY x Levi's Is Deliciously Oversized  Overdyed](https://www.highsnobiety.com/p/awake-levis-collab-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 17:01:29 GMT*
+
+
+## Rachel McAdams
+
+## [Clarks Are Sexy Sportswear Now, Thanks to Ancuta Sarca  ](https://www.highsnobiety.com/p/ancuta-sarca-clarks-ss25/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 18:00:02 GMT*
+
+
+## Rachel McAdams
 
 ## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
 
@@ -2949,15 +3786,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Rachel McAdams
 
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/nike-field-general-82/)
+## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:14:00 GMT
-Sat, 14 Sep 2024 14:13:00 GMT*
+*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
 
 
 ## Rachel McAdams
@@ -2966,74 +3799,38 @@ Sat, 14 Sep 2024 14:13:00 GMT*
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:15:00 GMT*
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
 
 
 ## Rachel McAdams
 
-## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 15:30:00 GMT*
-
-
-## Rachel McAdams
-
-## [Awake NY x Levi's Is Deliciously Oversized  Overdyed](https://www.highsnobiety.com/p/awake-levis-collab-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 17:01:29 GMT*
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
 
 
 ## Rachel McAdams
 
-## [Clarks Are Sexy Sportswear Now, Thanks to Ancuta Sarca  ](https://www.highsnobiety.com/p/ancuta-sarca-clarks-ss25/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 18:00:02 GMT*
-
-
-## Rachel McAdams
-
-## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 19:04:09 GMT*
-
-
-## Rachel McAdams
-
-## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 19:30:00 GMT*
-
-
-## Reneé Rapp
-
 ## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/nike-field-general-82/)
+adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
+https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:14:00 GMT
-Sat, 14 Sep 2024 14:13:00 GMT*
+*Published on: Sun, 15 Sep 2024 14:17:00 GMT
+Sun, 15 Sep 2024 14:17:00 GMT*
 
 
 ## Reneé Rapp
 
-## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+## [Nike's Jordan 1 Sneaker Gets a Flawless Navy Makeover ](https://www.highsnobiety.com/p/jordan-1-midnight-navy-where-to-buy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:15:00 GMT*
+*Published on: Sat, 14 Sep 2024 12:00:00 GMT*
 
 
 ## Reneé Rapp
@@ -3065,42 +3862,60 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Reneé Rapp
 
-## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
+## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 19:04:09 GMT*
+*Published on: Sat, 14 Sep 2024 19:30:00 GMT*
 
 
 ## Reneé Rapp
 
-## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
+## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 19:30:00 GMT*
+*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
 
 
-## Rick Ross
-
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/nike-field-general-82/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 14:14:00 GMT
-Sat, 14 Sep 2024 14:13:00 GMT*
-
-
-## Rick Ross
+## Reneé Rapp
 
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:15:00 GMT*
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
+
+
+## Reneé Rapp
+
+## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
+
+
+## Reneé Rapp
+
+## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
+adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
+https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:17:00 GMT
+Sun, 15 Sep 2024 14:17:00 GMT*
+
+
+## Rick Ross
+
+## [Nike's Jordan 1 Sneaker Gets a Flawless Navy Makeover ](https://www.highsnobiety.com/p/jordan-1-midnight-navy-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 12:00:00 GMT*
 
 
 ## Rick Ross
@@ -3132,14 +3947,90 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Rick Ross
 
-## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
+## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 19:04:09 GMT*
+*Published on: Sat, 14 Sep 2024 19:30:00 GMT*
 
 
 ## Rick Ross
+
+## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
+
+
+## Rick Ross
+
+## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
+
+
+## Rick Ross
+
+## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
+
+
+## Rick Ross
+
+## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
+adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
+https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:17:00 GMT
+Sun, 15 Sep 2024 14:17:00 GMT*
+
+
+## Sam Ashgari
+
+## [Nike's Jordan 1 Sneaker Gets a Flawless Navy Makeover ](https://www.highsnobiety.com/p/jordan-1-midnight-navy-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 12:00:00 GMT*
+
+
+## Sam Ashgari
+
+## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 15:30:00 GMT*
+
+
+## Sam Ashgari
+
+## [Awake NY x Levi's Is Deliciously Oversized  Overdyed](https://www.highsnobiety.com/p/awake-levis-collab-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 17:01:29 GMT*
+
+
+## Sam Ashgari
+
+## [Clarks Are Sexy Sportswear Now, Thanks to Ancuta Sarca  ](https://www.highsnobiety.com/p/ancuta-sarca-clarks-ss25/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 18:00:02 GMT*
+
+
+## Sam Ashgari
 
 ## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
 
@@ -3150,15 +4041,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Sam Ashgari
 
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/nike-field-general-82/)
+## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:14:00 GMT
-Sat, 14 Sep 2024 14:13:00 GMT*
+*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
 
 
 ## Sam Ashgari
@@ -3167,74 +4054,38 @@ Sat, 14 Sep 2024 14:13:00 GMT*
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:15:00 GMT*
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
 
 
 ## Sam Ashgari
 
-## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 15:30:00 GMT*
-
-
-## Sam Ashgari
-
-## [Awake NY x Levi's Is Deliciously Oversized  Overdyed](https://www.highsnobiety.com/p/awake-levis-collab-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 17:01:29 GMT*
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
 
 
 ## Sam Ashgari
 
-## [Clarks Are Sexy Sportswear Now, Thanks to Ancuta Sarca  ](https://www.highsnobiety.com/p/ancuta-sarca-clarks-ss25/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 18:00:02 GMT*
-
-
-## Sam Ashgari
-
-## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 19:04:09 GMT*
-
-
-## Sam Ashgari
-
-## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 19:30:00 GMT*
-
-
-## Sandra Oh
-
 ## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/nike-field-general-82/)
+adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
+https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:14:00 GMT
-Sat, 14 Sep 2024 14:13:00 GMT*
+*Published on: Sun, 15 Sep 2024 14:17:00 GMT
+Sun, 15 Sep 2024 14:17:00 GMT*
 
 
 ## Sandra Oh
 
-## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+## [Nike's Jordan 1 Sneaker Gets a Flawless Navy Makeover ](https://www.highsnobiety.com/p/jordan-1-midnight-navy-where-to-buy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:15:00 GMT*
+*Published on: Sat, 14 Sep 2024 12:00:00 GMT*
 
 
 ## Sandra Oh
@@ -3266,42 +4117,60 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Sandra Oh
 
-## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
+## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 19:04:09 GMT*
+*Published on: Sat, 14 Sep 2024 19:30:00 GMT*
 
 
 ## Sandra Oh
 
-## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
+## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 19:30:00 GMT*
+*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
 
 
-## Donald Trump
-
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/nike-field-general-82/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 14:14:00 GMT
-Sat, 14 Sep 2024 14:13:00 GMT*
-
-
-## Donald Trump
+## Sandra Oh
 
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:15:00 GMT*
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
+
+
+## Sandra Oh
+
+## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
+
+
+## Sandra Oh
+
+## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
+adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
+https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:17:00 GMT
+Sun, 15 Sep 2024 14:17:00 GMT*
+
+
+## Donald Trump
+
+## [Nike's Jordan 1 Sneaker Gets a Flawless Navy Makeover ](https://www.highsnobiety.com/p/jordan-1-midnight-navy-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 12:00:00 GMT*
 
 
 ## Donald Trump
@@ -3333,14 +4202,90 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Donald Trump
 
-## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
+## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 19:04:09 GMT*
+*Published on: Sat, 14 Sep 2024 19:30:00 GMT*
 
 
 ## Donald Trump
+
+## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
+
+
+## Donald Trump
+
+## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
+
+
+## Donald Trump
+
+## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
+
+
+## Donald Trump
+
+## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
+adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
+https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:17:00 GMT
+Sun, 15 Sep 2024 14:17:00 GMT*
+
+
+## Diddy
+
+## [Nike's Jordan 1 Sneaker Gets a Flawless Navy Makeover ](https://www.highsnobiety.com/p/jordan-1-midnight-navy-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 12:00:00 GMT*
+
+
+## Diddy
+
+## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 15:30:00 GMT*
+
+
+## Diddy
+
+## [Awake NY x Levi's Is Deliciously Oversized  Overdyed](https://www.highsnobiety.com/p/awake-levis-collab-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 17:01:29 GMT*
+
+
+## Diddy
+
+## [Clarks Are Sexy Sportswear Now, Thanks to Ancuta Sarca  ](https://www.highsnobiety.com/p/ancuta-sarca-clarks-ss25/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 18:00:02 GMT*
+
+
+## Diddy
 
 ## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
 
@@ -3351,15 +4296,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Diddy
 
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/nike-field-general-82/)
+## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:14:00 GMT
-Sat, 14 Sep 2024 14:13:00 GMT*
+*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
 
 
 ## Diddy
@@ -3368,74 +4309,38 @@ Sat, 14 Sep 2024 14:13:00 GMT*
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:15:00 GMT*
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
 
 
 ## Diddy
 
-## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 15:30:00 GMT*
-
-
-## Diddy
-
-## [Awake NY x Levi's Is Deliciously Oversized  Overdyed](https://www.highsnobiety.com/p/awake-levis-collab-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 17:01:29 GMT*
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
 
 
 ## Diddy
 
-## [Clarks Are Sexy Sportswear Now, Thanks to Ancuta Sarca  ](https://www.highsnobiety.com/p/ancuta-sarca-clarks-ss25/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 18:00:02 GMT*
-
-
-## Diddy
-
-## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 19:04:09 GMT*
-
-
-## Diddy
-
-## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 19:30:00 GMT*
-
-
-## City Girls
-
 ## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/nike-field-general-82/)
+adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
+https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:14:00 GMT
-Sat, 14 Sep 2024 14:13:00 GMT*
+*Published on: Sun, 15 Sep 2024 14:17:00 GMT
+Sun, 15 Sep 2024 14:17:00 GMT*
 
 
 ## City Girls
 
-## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+## [Nike's Jordan 1 Sneaker Gets a Flawless Navy Makeover ](https://www.highsnobiety.com/p/jordan-1-midnight-navy-where-to-buy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:15:00 GMT*
+*Published on: Sat, 14 Sep 2024 12:00:00 GMT*
 
 
 ## City Girls
@@ -3467,42 +4372,60 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## City Girls
 
-## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
+## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 19:04:09 GMT*
+*Published on: Sat, 14 Sep 2024 19:30:00 GMT*
 
 
 ## City Girls
 
-## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
+## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 19:30:00 GMT*
+*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
 
 
-## Chloe Bailey
-
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/nike-field-general-82/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 14:14:00 GMT
-Sat, 14 Sep 2024 14:13:00 GMT*
-
-
-## Chloe Bailey
+## City Girls
 
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:15:00 GMT*
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
+
+
+## City Girls
+
+## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
+
+
+## City Girls
+
+## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
+adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
+https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:17:00 GMT
+Sun, 15 Sep 2024 14:17:00 GMT*
+
+
+## Chloe Bailey
+
+## [Nike's Jordan 1 Sneaker Gets a Flawless Navy Makeover ](https://www.highsnobiety.com/p/jordan-1-midnight-navy-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 12:00:00 GMT*
 
 
 ## Chloe Bailey
@@ -3534,14 +4457,90 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Chloe Bailey
 
-## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
+## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 19:04:09 GMT*
+*Published on: Sat, 14 Sep 2024 19:30:00 GMT*
 
 
 ## Chloe Bailey
+
+## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
+
+
+## Chloe Bailey
+
+## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
+
+
+## Chloe Bailey
+
+## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
+
+
+## Chloe Bailey
+
+## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
+adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
+https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:17:00 GMT
+Sun, 15 Sep 2024 14:17:00 GMT*
+
+
+## Charli D Amelio
+
+## [Nike's Jordan 1 Sneaker Gets a Flawless Navy Makeover ](https://www.highsnobiety.com/p/jordan-1-midnight-navy-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 12:00:00 GMT*
+
+
+## Charli D Amelio
+
+## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 15:30:00 GMT*
+
+
+## Charli D Amelio
+
+## [Awake NY x Levi's Is Deliciously Oversized  Overdyed](https://www.highsnobiety.com/p/awake-levis-collab-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 17:01:29 GMT*
+
+
+## Charli D Amelio
+
+## [Clarks Are Sexy Sportswear Now, Thanks to Ancuta Sarca  ](https://www.highsnobiety.com/p/ancuta-sarca-clarks-ss25/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 18:00:02 GMT*
+
+
+## Charli D Amelio
 
 ## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
 
@@ -3552,15 +4551,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Charli D Amelio
 
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/nike-field-general-82/)
+## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:14:00 GMT
-Sat, 14 Sep 2024 14:13:00 GMT*
+*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
 
 
 ## Charli D Amelio
@@ -3569,74 +4564,38 @@ Sat, 14 Sep 2024 14:13:00 GMT*
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:15:00 GMT*
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
 
 
 ## Charli D Amelio
 
-## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 15:30:00 GMT*
-
-
-## Charli D Amelio
-
-## [Awake NY x Levi's Is Deliciously Oversized  Overdyed](https://www.highsnobiety.com/p/awake-levis-collab-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 17:01:29 GMT*
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
 
 
 ## Charli D Amelio
 
-## [Clarks Are Sexy Sportswear Now, Thanks to Ancuta Sarca  ](https://www.highsnobiety.com/p/ancuta-sarca-clarks-ss25/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 18:00:02 GMT*
-
-
-## Charli D Amelio
-
-## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 19:04:09 GMT*
-
-
-## Charli D Amelio
-
-## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 19:30:00 GMT*
-
-
-## Cardi B
-
 ## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/nike-field-general-82/)
+adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
+https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:14:00 GMT
-Sat, 14 Sep 2024 14:13:00 GMT*
+*Published on: Sun, 15 Sep 2024 14:17:00 GMT
+Sun, 15 Sep 2024 14:17:00 GMT*
 
 
 ## Cardi B
 
-## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+## [Nike's Jordan 1 Sneaker Gets a Flawless Navy Makeover ](https://www.highsnobiety.com/p/jordan-1-midnight-navy-where-to-buy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:15:00 GMT*
+*Published on: Sat, 14 Sep 2024 12:00:00 GMT*
 
 
 ## Cardi B
@@ -3668,42 +4627,60 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Cardi B
 
-## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
+## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 19:04:09 GMT*
+*Published on: Sat, 14 Sep 2024 19:30:00 GMT*
 
 
 ## Cardi B
 
-## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
+## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 19:30:00 GMT*
+*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
 
 
-## Bryan Cranston
-
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/nike-field-general-82/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 14:14:00 GMT
-Sat, 14 Sep 2024 14:13:00 GMT*
-
-
-## Bryan Cranston
+## Cardi B
 
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:15:00 GMT*
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
+
+
+## Cardi B
+
+## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
+
+
+## Cardi B
+
+## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
+adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
+https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:17:00 GMT
+Sun, 15 Sep 2024 14:17:00 GMT*
+
+
+## Bryan Cranston
+
+## [Nike's Jordan 1 Sneaker Gets a Flawless Navy Makeover ](https://www.highsnobiety.com/p/jordan-1-midnight-navy-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 12:00:00 GMT*
 
 
 ## Bryan Cranston
@@ -3735,14 +4712,90 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Bryan Cranston
 
-## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
+## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 19:04:09 GMT*
+*Published on: Sat, 14 Sep 2024 19:30:00 GMT*
 
 
 ## Bryan Cranston
+
+## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
+
+
+## Bryan Cranston
+
+## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
+
+
+## Bryan Cranston
+
+## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
+
+
+## Bryan Cranston
+
+## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
+adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
+https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:17:00 GMT
+Sun, 15 Sep 2024 14:17:00 GMT*
+
+
+## Brielle Biermann
+
+## [Nike's Jordan 1 Sneaker Gets a Flawless Navy Makeover ](https://www.highsnobiety.com/p/jordan-1-midnight-navy-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 12:00:00 GMT*
+
+
+## Brielle Biermann
+
+## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 15:30:00 GMT*
+
+
+## Brielle Biermann
+
+## [Awake NY x Levi's Is Deliciously Oversized  Overdyed](https://www.highsnobiety.com/p/awake-levis-collab-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 17:01:29 GMT*
+
+
+## Brielle Biermann
+
+## [Clarks Are Sexy Sportswear Now, Thanks to Ancuta Sarca  ](https://www.highsnobiety.com/p/ancuta-sarca-clarks-ss25/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 18:00:02 GMT*
+
+
+## Brielle Biermann
 
 ## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
 
@@ -3753,15 +4806,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Brielle Biermann
 
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/nike-field-general-82/)
+## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:14:00 GMT
-Sat, 14 Sep 2024 14:13:00 GMT*
+*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
 
 
 ## Brielle Biermann
@@ -3770,74 +4819,38 @@ Sat, 14 Sep 2024 14:13:00 GMT*
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:15:00 GMT*
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
 
 
 ## Brielle Biermann
 
-## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 15:30:00 GMT*
-
-
-## Brielle Biermann
-
-## [Awake NY x Levi's Is Deliciously Oversized  Overdyed](https://www.highsnobiety.com/p/awake-levis-collab-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 17:01:29 GMT*
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
 
 
 ## Brielle Biermann
 
-## [Clarks Are Sexy Sportswear Now, Thanks to Ancuta Sarca  ](https://www.highsnobiety.com/p/ancuta-sarca-clarks-ss25/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 18:00:02 GMT*
-
-
-## Brielle Biermann
-
-## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 19:04:09 GMT*
-
-
-## Brielle Biermann
-
-## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 19:30:00 GMT*
-
-
-## Dua Lipa
-
 ## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/nike-field-general-82/)
+adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
+https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:14:00 GMT
-Sat, 14 Sep 2024 14:13:00 GMT*
+*Published on: Sun, 15 Sep 2024 14:17:00 GMT
+Sun, 15 Sep 2024 14:17:00 GMT*
 
 
 ## Dua Lipa
 
-## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+## [Nike's Jordan 1 Sneaker Gets a Flawless Navy Makeover ](https://www.highsnobiety.com/p/jordan-1-midnight-navy-where-to-buy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:15:00 GMT*
+*Published on: Sat, 14 Sep 2024 12:00:00 GMT*
 
 
 ## Dua Lipa
@@ -3869,42 +4882,60 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Dua Lipa
 
-## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
+## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 19:04:09 GMT*
+*Published on: Sat, 14 Sep 2024 19:30:00 GMT*
 
 
 ## Dua Lipa
 
-## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
+## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 19:30:00 GMT*
+*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
 
 
-## Drake
-
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/nike-field-general-82/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 14:14:00 GMT
-Sat, 14 Sep 2024 14:13:00 GMT*
-
-
-## Drake
+## Dua Lipa
 
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:15:00 GMT*
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
+
+
+## Dua Lipa
+
+## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
+
+
+## Dua Lipa
+
+## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
+adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
+https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:17:00 GMT
+Sun, 15 Sep 2024 14:17:00 GMT*
+
+
+## Drake
+
+## [Nike's Jordan 1 Sneaker Gets a Flawless Navy Makeover ](https://www.highsnobiety.com/p/jordan-1-midnight-navy-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 12:00:00 GMT*
 
 
 ## Drake
@@ -3936,14 +4967,90 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Drake
 
-## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
+## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 19:04:09 GMT*
+*Published on: Sat, 14 Sep 2024 19:30:00 GMT*
 
 
 ## Drake
+
+## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
+
+
+## Drake
+
+## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
+
+
+## Drake
+
+## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
+
+
+## Drake
+
+## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
+adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
+https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:17:00 GMT
+Sun, 15 Sep 2024 14:17:00 GMT*
+
+
+## Jenner
+
+## [Nike's Jordan 1 Sneaker Gets a Flawless Navy Makeover ](https://www.highsnobiety.com/p/jordan-1-midnight-navy-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 12:00:00 GMT*
+
+
+## Jenner
+
+## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 15:30:00 GMT*
+
+
+## Jenner
+
+## [Awake NY x Levi's Is Deliciously Oversized  Overdyed](https://www.highsnobiety.com/p/awake-levis-collab-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 17:01:29 GMT*
+
+
+## Jenner
+
+## [Clarks Are Sexy Sportswear Now, Thanks to Ancuta Sarca  ](https://www.highsnobiety.com/p/ancuta-sarca-clarks-ss25/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 18:00:02 GMT*
+
+
+## Jenner
 
 ## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
 
@@ -3954,15 +5061,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Jenner
 
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/nike-field-general-82/)
+## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:14:00 GMT
-Sat, 14 Sep 2024 14:13:00 GMT*
+*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
 
 
 ## Jenner
@@ -3971,74 +5074,38 @@ Sat, 14 Sep 2024 14:13:00 GMT*
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:15:00 GMT*
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
 
 
 ## Jenner
 
-## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 15:30:00 GMT*
-
-
-## Jenner
-
-## [Awake NY x Levi's Is Deliciously Oversized  Overdyed](https://www.highsnobiety.com/p/awake-levis-collab-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 17:01:29 GMT*
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
 
 
 ## Jenner
 
-## [Clarks Are Sexy Sportswear Now, Thanks to Ancuta Sarca  ](https://www.highsnobiety.com/p/ancuta-sarca-clarks-ss25/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 18:00:02 GMT*
-
-
-## Jenner
-
-## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 19:04:09 GMT*
-
-
-## Jenner
-
-## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 19:30:00 GMT*
-
-
-## J. Cole
-
 ## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/nike-field-general-82/)
+adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
+https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:14:00 GMT
-Sat, 14 Sep 2024 14:13:00 GMT*
+*Published on: Sun, 15 Sep 2024 14:17:00 GMT
+Sun, 15 Sep 2024 14:17:00 GMT*
 
 
 ## J. Cole
 
-## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+## [Nike's Jordan 1 Sneaker Gets a Flawless Navy Makeover ](https://www.highsnobiety.com/p/jordan-1-midnight-navy-where-to-buy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:15:00 GMT*
+*Published on: Sat, 14 Sep 2024 12:00:00 GMT*
 
 
 ## J. Cole
@@ -4070,42 +5137,60 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## J. Cole
 
-## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
+## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 19:04:09 GMT*
+*Published on: Sat, 14 Sep 2024 19:30:00 GMT*
 
 
 ## J. Cole
 
-## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
+## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 19:30:00 GMT*
+*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
 
 
-## Jerrod Carmichael
-
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/nike-field-general-82/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 14:14:00 GMT
-Sat, 14 Sep 2024 14:13:00 GMT*
-
-
-## Jerrod Carmichael
+## J. Cole
 
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:15:00 GMT*
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
+
+
+## J. Cole
+
+## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
+
+
+## J. Cole
+
+## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
+adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
+https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:17:00 GMT
+Sun, 15 Sep 2024 14:17:00 GMT*
+
+
+## Jerrod Carmichael
+
+## [Nike's Jordan 1 Sneaker Gets a Flawless Navy Makeover ](https://www.highsnobiety.com/p/jordan-1-midnight-navy-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 12:00:00 GMT*
 
 
 ## Jerrod Carmichael
@@ -4137,14 +5222,90 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Jerrod Carmichael
 
-## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
+## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 19:04:09 GMT*
+*Published on: Sat, 14 Sep 2024 19:30:00 GMT*
 
 
 ## Jerrod Carmichael
+
+## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
+
+
+## Jerrod Carmichael
+
+## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
+
+
+## Jerrod Carmichael
+
+## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
+
+
+## Jerrod Carmichael
+
+## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
+adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
+https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:17:00 GMT
+Sun, 15 Sep 2024 14:17:00 GMT*
+
+
+## Jennifer Lawrence
+
+## [Nike's Jordan 1 Sneaker Gets a Flawless Navy Makeover ](https://www.highsnobiety.com/p/jordan-1-midnight-navy-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 12:00:00 GMT*
+
+
+## Jennifer Lawrence
+
+## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 15:30:00 GMT*
+
+
+## Jennifer Lawrence
+
+## [Awake NY x Levi's Is Deliciously Oversized  Overdyed](https://www.highsnobiety.com/p/awake-levis-collab-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 17:01:29 GMT*
+
+
+## Jennifer Lawrence
+
+## [Clarks Are Sexy Sportswear Now, Thanks to Ancuta Sarca  ](https://www.highsnobiety.com/p/ancuta-sarca-clarks-ss25/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 18:00:02 GMT*
+
+
+## Jennifer Lawrence
 
 ## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
 
@@ -4155,15 +5316,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Jennifer Lawrence
 
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/nike-field-general-82/)
+## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:14:00 GMT
-Sat, 14 Sep 2024 14:13:00 GMT*
+*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
 
 
 ## Jennifer Lawrence
@@ -4172,74 +5329,38 @@ Sat, 14 Sep 2024 14:13:00 GMT*
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:15:00 GMT*
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
 
 
 ## Jennifer Lawrence
 
-## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 15:30:00 GMT*
-
-
-## Jennifer Lawrence
-
-## [Awake NY x Levi's Is Deliciously Oversized  Overdyed](https://www.highsnobiety.com/p/awake-levis-collab-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 17:01:29 GMT*
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
 
 
 ## Jennifer Lawrence
 
-## [Clarks Are Sexy Sportswear Now, Thanks to Ancuta Sarca  ](https://www.highsnobiety.com/p/ancuta-sarca-clarks-ss25/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 18:00:02 GMT*
-
-
-## Jennifer Lawrence
-
-## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 19:04:09 GMT*
-
-
-## Jennifer Lawrence
-
-## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 19:30:00 GMT*
-
-
-## Joe Biden
-
 ## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/nike-field-general-82/)
+adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
+https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:14:00 GMT
-Sat, 14 Sep 2024 14:13:00 GMT*
+*Published on: Sun, 15 Sep 2024 14:17:00 GMT
+Sun, 15 Sep 2024 14:17:00 GMT*
 
 
 ## Joe Biden
 
-## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+## [Nike's Jordan 1 Sneaker Gets a Flawless Navy Makeover ](https://www.highsnobiety.com/p/jordan-1-midnight-navy-where-to-buy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:15:00 GMT*
+*Published on: Sat, 14 Sep 2024 12:00:00 GMT*
 
 
 ## Joe Biden
@@ -4271,42 +5392,60 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Joe Biden
 
-## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
+## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 19:04:09 GMT*
+*Published on: Sat, 14 Sep 2024 19:30:00 GMT*
 
 
 ## Joe Biden
 
-## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
+## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 19:30:00 GMT*
+*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
 
 
-## J.K. Simmons
-
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/nike-field-general-82/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 14:14:00 GMT
-Sat, 14 Sep 2024 14:13:00 GMT*
-
-
-## J.K. Simmons
+## Joe Biden
 
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:15:00 GMT*
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
+
+
+## Joe Biden
+
+## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
+
+
+## Joe Biden
+
+## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
+adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
+https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:17:00 GMT
+Sun, 15 Sep 2024 14:17:00 GMT*
+
+
+## J.K. Simmons
+
+## [Nike's Jordan 1 Sneaker Gets a Flawless Navy Makeover ](https://www.highsnobiety.com/p/jordan-1-midnight-navy-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 12:00:00 GMT*
 
 
 ## J.K. Simmons
@@ -4338,14 +5477,90 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## J.K. Simmons
 
-## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
+## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 19:04:09 GMT*
+*Published on: Sat, 14 Sep 2024 19:30:00 GMT*
 
 
 ## J.K. Simmons
+
+## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
+
+
+## J.K. Simmons
+
+## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
+
+
+## J.K. Simmons
+
+## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
+
+
+## J.K. Simmons
+
+## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
+adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
+https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:17:00 GMT
+Sun, 15 Sep 2024 14:17:00 GMT*
+
+
+## Kamala Harris
+
+## [Nike's Jordan 1 Sneaker Gets a Flawless Navy Makeover ](https://www.highsnobiety.com/p/jordan-1-midnight-navy-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 12:00:00 GMT*
+
+
+## Kamala Harris
+
+## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 15:30:00 GMT*
+
+
+## Kamala Harris
+
+## [Awake NY x Levi's Is Deliciously Oversized  Overdyed](https://www.highsnobiety.com/p/awake-levis-collab-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 17:01:29 GMT*
+
+
+## Kamala Harris
+
+## [Clarks Are Sexy Sportswear Now, Thanks to Ancuta Sarca  ](https://www.highsnobiety.com/p/ancuta-sarca-clarks-ss25/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 18:00:02 GMT*
+
+
+## Kamala Harris
 
 ## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
 
@@ -4356,15 +5571,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Kamala Harris
 
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/nike-field-general-82/)
+## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:14:00 GMT
-Sat, 14 Sep 2024 14:13:00 GMT*
+*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
 
 
 ## Kamala Harris
@@ -4373,74 +5584,38 @@ Sat, 14 Sep 2024 14:13:00 GMT*
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:15:00 GMT*
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
 
 
 ## Kamala Harris
 
-## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 15:30:00 GMT*
-
-
-## Kamala Harris
-
-## [Awake NY x Levi's Is Deliciously Oversized  Overdyed](https://www.highsnobiety.com/p/awake-levis-collab-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 17:01:29 GMT*
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
 
 
 ## Kamala Harris
 
-## [Clarks Are Sexy Sportswear Now, Thanks to Ancuta Sarca  ](https://www.highsnobiety.com/p/ancuta-sarca-clarks-ss25/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 18:00:02 GMT*
-
-
-## Kamala Harris
-
-## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 19:04:09 GMT*
-
-
-## Kamala Harris
-
-## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 19:30:00 GMT*
-
-
-## John C Reilly
-
 ## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/nike-field-general-82/)
+adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
+https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:14:00 GMT
-Sat, 14 Sep 2024 14:13:00 GMT*
+*Published on: Sun, 15 Sep 2024 14:17:00 GMT
+Sun, 15 Sep 2024 14:17:00 GMT*
 
 
 ## John C Reilly
 
-## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+## [Nike's Jordan 1 Sneaker Gets a Flawless Navy Makeover ](https://www.highsnobiety.com/p/jordan-1-midnight-navy-where-to-buy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:15:00 GMT*
+*Published on: Sat, 14 Sep 2024 12:00:00 GMT*
 
 
 ## John C Reilly
@@ -4472,42 +5647,60 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## John C Reilly
 
-## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
+## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 19:04:09 GMT*
+*Published on: Sat, 14 Sep 2024 19:30:00 GMT*
 
 
 ## John C Reilly
 
-## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
+## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 19:30:00 GMT*
+*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
 
 
-## Kardashian
-
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/nike-field-general-82/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 14:14:00 GMT
-Sat, 14 Sep 2024 14:13:00 GMT*
-
-
-## Kardashian
+## John C Reilly
 
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:15:00 GMT*
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
+
+
+## John C Reilly
+
+## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
+
+
+## John C Reilly
+
+## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
+adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
+https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:17:00 GMT
+Sun, 15 Sep 2024 14:17:00 GMT*
+
+
+## Kardashian
+
+## [Nike's Jordan 1 Sneaker Gets a Flawless Navy Makeover ](https://www.highsnobiety.com/p/jordan-1-midnight-navy-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 12:00:00 GMT*
 
 
 ## Kardashian
@@ -4539,14 +5732,90 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Kardashian
 
-## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
+## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 19:04:09 GMT*
+*Published on: Sat, 14 Sep 2024 19:30:00 GMT*
 
 
 ## Kardashian
+
+## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
+
+
+## Kardashian
+
+## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
+
+
+## Kardashian
+
+## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
+
+
+## Kardashian
+
+## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
+adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
+https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:17:00 GMT
+Sun, 15 Sep 2024 14:17:00 GMT*
+
+
+## Kanye
+
+## [Nike's Jordan 1 Sneaker Gets a Flawless Navy Makeover ](https://www.highsnobiety.com/p/jordan-1-midnight-navy-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 12:00:00 GMT*
+
+
+## Kanye
+
+## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 15:30:00 GMT*
+
+
+## Kanye
+
+## [Awake NY x Levi's Is Deliciously Oversized  Overdyed](https://www.highsnobiety.com/p/awake-levis-collab-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 17:01:29 GMT*
+
+
+## Kanye
+
+## [Clarks Are Sexy Sportswear Now, Thanks to Ancuta Sarca  ](https://www.highsnobiety.com/p/ancuta-sarca-clarks-ss25/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 18:00:02 GMT*
+
+
+## Kanye
 
 ## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
 
@@ -4557,15 +5826,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Kanye
 
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/nike-field-general-82/)
+## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:14:00 GMT
-Sat, 14 Sep 2024 14:13:00 GMT*
+*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
 
 
 ## Kanye
@@ -4574,74 +5839,38 @@ Sat, 14 Sep 2024 14:13:00 GMT*
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:15:00 GMT*
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
 
 
 ## Kanye
 
-## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 15:30:00 GMT*
-
-
-## Kanye
-
-## [Awake NY x Levi's Is Deliciously Oversized  Overdyed](https://www.highsnobiety.com/p/awake-levis-collab-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 17:01:29 GMT*
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
 
 
 ## Kanye
 
-## [Clarks Are Sexy Sportswear Now, Thanks to Ancuta Sarca  ](https://www.highsnobiety.com/p/ancuta-sarca-clarks-ss25/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 18:00:02 GMT*
-
-
-## Kanye
-
-## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 19:04:09 GMT*
-
-
-## Kanye
-
-## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 19:30:00 GMT*
-
-
-## Zendaya
-
 ## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/nike-field-general-82/)
+adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
+https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:14:00 GMT
-Sat, 14 Sep 2024 14:13:00 GMT*
+*Published on: Sun, 15 Sep 2024 14:17:00 GMT
+Sun, 15 Sep 2024 14:17:00 GMT*
 
 
 ## Zendaya
 
-## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+## [Nike's Jordan 1 Sneaker Gets a Flawless Navy Makeover ](https://www.highsnobiety.com/p/jordan-1-midnight-navy-where-to-buy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:15:00 GMT*
+*Published on: Sat, 14 Sep 2024 12:00:00 GMT*
 
 
 ## Zendaya
@@ -4673,42 +5902,60 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Zendaya
 
-## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
+## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 19:04:09 GMT*
+*Published on: Sat, 14 Sep 2024 19:30:00 GMT*
 
 
 ## Zendaya
 
-## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
+## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 19:30:00 GMT*
+*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
 
 
-## Will Ferrell
-
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/nike-field-general-82/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 14:14:00 GMT
-Sat, 14 Sep 2024 14:13:00 GMT*
-
-
-## Will Ferrell
+## Zendaya
 
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:15:00 GMT*
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
+
+
+## Zendaya
+
+## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
+
+
+## Zendaya
+
+## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
+adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
+https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:17:00 GMT
+Sun, 15 Sep 2024 14:17:00 GMT*
+
+
+## Will Ferrell
+
+## [Nike's Jordan 1 Sneaker Gets a Flawless Navy Makeover ](https://www.highsnobiety.com/p/jordan-1-midnight-navy-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 12:00:00 GMT*
 
 
 ## Will Ferrell
@@ -4740,14 +5987,90 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Will Ferrell
 
-## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
+## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 19:04:09 GMT*
+*Published on: Sat, 14 Sep 2024 19:30:00 GMT*
 
 
 ## Will Ferrell
+
+## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
+
+
+## Will Ferrell
+
+## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
+
+
+## Will Ferrell
+
+## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
+
+
+## Will Ferrell
+
+## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
+adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
+https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:17:00 GMT
+Sun, 15 Sep 2024 14:17:00 GMT*
+
+
+## Zazie Beetz
+
+## [Nike's Jordan 1 Sneaker Gets a Flawless Navy Makeover ](https://www.highsnobiety.com/p/jordan-1-midnight-navy-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 12:00:00 GMT*
+
+
+## Zazie Beetz
+
+## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 15:30:00 GMT*
+
+
+## Zazie Beetz
+
+## [Awake NY x Levi's Is Deliciously Oversized  Overdyed](https://www.highsnobiety.com/p/awake-levis-collab-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 17:01:29 GMT*
+
+
+## Zazie Beetz
+
+## [Clarks Are Sexy Sportswear Now, Thanks to Ancuta Sarca  ](https://www.highsnobiety.com/p/ancuta-sarca-clarks-ss25/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 18:00:02 GMT*
+
+
+## Zazie Beetz
 
 ## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
 
@@ -4758,15 +6081,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Zazie Beetz
 
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/nike-field-general-82/)
+## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:14:00 GMT
-Sat, 14 Sep 2024 14:13:00 GMT*
+*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
 
 
 ## Zazie Beetz
@@ -4775,74 +6094,38 @@ Sat, 14 Sep 2024 14:13:00 GMT*
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:15:00 GMT*
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
 
 
 ## Zazie Beetz
 
-## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 15:30:00 GMT*
-
-
-## Zazie Beetz
-
-## [Awake NY x Levi's Is Deliciously Oversized  Overdyed](https://www.highsnobiety.com/p/awake-levis-collab-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 17:01:29 GMT*
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
 
 
 ## Zazie Beetz
 
-## [Clarks Are Sexy Sportswear Now, Thanks to Ancuta Sarca  ](https://www.highsnobiety.com/p/ancuta-sarca-clarks-ss25/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 18:00:02 GMT*
-
-
-## Zazie Beetz
-
-## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 19:04:09 GMT*
-
-
-## Zazie Beetz
-
-## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 19:30:00 GMT*
-
-
-## Bob Odenkirk
-
 ## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/nike-field-general-82/)
+adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
+https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:14:00 GMT
-Sat, 14 Sep 2024 14:13:00 GMT*
+*Published on: Sun, 15 Sep 2024 14:17:00 GMT
+Sun, 15 Sep 2024 14:17:00 GMT*
 
 
 ## Bob Odenkirk
 
-## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+## [Nike's Jordan 1 Sneaker Gets a Flawless Navy Makeover ](https://www.highsnobiety.com/p/jordan-1-midnight-navy-where-to-buy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:15:00 GMT*
+*Published on: Sat, 14 Sep 2024 12:00:00 GMT*
 
 
 ## Bob Odenkirk
@@ -4874,42 +6157,60 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Bob Odenkirk
 
-## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
+## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 19:04:09 GMT*
+*Published on: Sat, 14 Sep 2024 19:30:00 GMT*
 
 
 ## Bob Odenkirk
 
-## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
+## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 19:30:00 GMT*
+*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
 
 
-## Brad Pitt
-
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/nike-field-general-82/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 14:14:00 GMT
-Sat, 14 Sep 2024 14:13:00 GMT*
-
-
-## Brad Pitt
+## Bob Odenkirk
 
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:15:00 GMT*
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
+
+
+## Bob Odenkirk
+
+## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
+
+
+## Bob Odenkirk
+
+## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
+adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
+https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:17:00 GMT
+Sun, 15 Sep 2024 14:17:00 GMT*
+
+
+## Brad Pitt
+
+## [Nike's Jordan 1 Sneaker Gets a Flawless Navy Makeover ](https://www.highsnobiety.com/p/jordan-1-midnight-navy-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 12:00:00 GMT*
 
 
 ## Brad Pitt
@@ -4941,14 +6242,90 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Brad Pitt
 
-## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
+## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 19:04:09 GMT*
+*Published on: Sat, 14 Sep 2024 19:30:00 GMT*
 
 
 ## Brad Pitt
+
+## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
+
+
+## Brad Pitt
+
+## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
+
+
+## Brad Pitt
+
+## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
+
+
+## Brad Pitt
+
+## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
+adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
+https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:17:00 GMT
+Sun, 15 Sep 2024 14:17:00 GMT*
+
+
+## Beyoncé
+
+## [Nike's Jordan 1 Sneaker Gets a Flawless Navy Makeover ](https://www.highsnobiety.com/p/jordan-1-midnight-navy-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 12:00:00 GMT*
+
+
+## Beyoncé
+
+## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 15:30:00 GMT*
+
+
+## Beyoncé
+
+## [Awake NY x Levi's Is Deliciously Oversized  Overdyed](https://www.highsnobiety.com/p/awake-levis-collab-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 17:01:29 GMT*
+
+
+## Beyoncé
+
+## [Clarks Are Sexy Sportswear Now, Thanks to Ancuta Sarca  ](https://www.highsnobiety.com/p/ancuta-sarca-clarks-ss25/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 18:00:02 GMT*
+
+
+## Beyoncé
 
 ## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
 
@@ -4959,15 +6336,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Beyoncé
 
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/nike-field-general-82/)
+## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:14:00 GMT
-Sat, 14 Sep 2024 14:13:00 GMT*
+*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
 
 
 ## Beyoncé
@@ -4976,74 +6349,38 @@ Sat, 14 Sep 2024 14:13:00 GMT*
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:15:00 GMT*
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
 
 
 ## Beyoncé
 
-## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 15:30:00 GMT*
-
-
-## Beyoncé
-
-## [Awake NY x Levi's Is Deliciously Oversized  Overdyed](https://www.highsnobiety.com/p/awake-levis-collab-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 17:01:29 GMT*
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
 
 
 ## Beyoncé
 
-## [Clarks Are Sexy Sportswear Now, Thanks to Ancuta Sarca  ](https://www.highsnobiety.com/p/ancuta-sarca-clarks-ss25/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 18:00:02 GMT*
-
-
-## Beyoncé
-
-## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 19:04:09 GMT*
-
-
-## Beyoncé
-
-## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 19:30:00 GMT*
-
-
-## Bia
-
 ## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/nike-field-general-82/)
+adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
+https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:14:00 GMT
-Sat, 14 Sep 2024 14:13:00 GMT*
+*Published on: Sun, 15 Sep 2024 14:17:00 GMT
+Sun, 15 Sep 2024 14:17:00 GMT*
 
 
 ## Bia
 
-## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+## [Nike's Jordan 1 Sneaker Gets a Flawless Navy Makeover ](https://www.highsnobiety.com/p/jordan-1-midnight-navy-where-to-buy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:15:00 GMT*
+*Published on: Sat, 14 Sep 2024 12:00:00 GMT*
 
 
 ## Bia
@@ -5075,42 +6412,60 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Bia
 
-## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
+## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 19:04:09 GMT*
+*Published on: Sat, 14 Sep 2024 19:30:00 GMT*
 
 
 ## Bia
 
-## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
+## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 19:30:00 GMT*
+*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
 
 
-## Avantika
-
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/nike-field-general-82/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 14:14:00 GMT
-Sat, 14 Sep 2024 14:13:00 GMT*
-
-
-## Avantika
+## Bia
 
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:15:00 GMT*
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
+
+
+## Bia
+
+## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
+
+
+## Bia
+
+## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
+adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
+https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:17:00 GMT
+Sun, 15 Sep 2024 14:17:00 GMT*
+
+
+## Avantika
+
+## [Nike's Jordan 1 Sneaker Gets a Flawless Navy Makeover ](https://www.highsnobiety.com/p/jordan-1-midnight-navy-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 12:00:00 GMT*
 
 
 ## Avantika
@@ -5142,14 +6497,90 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Avantika
 
-## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
+## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 19:04:09 GMT*
+*Published on: Sat, 14 Sep 2024 19:30:00 GMT*
 
 
 ## Avantika
+
+## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
+
+
+## Avantika
+
+## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
+
+
+## Avantika
+
+## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
+
+
+## Avantika
+
+## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
+adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
+https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:17:00 GMT
+Sun, 15 Sep 2024 14:17:00 GMT*
+
+
+## Bernie Sanders
+
+## [Nike's Jordan 1 Sneaker Gets a Flawless Navy Makeover ](https://www.highsnobiety.com/p/jordan-1-midnight-navy-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 12:00:00 GMT*
+
+
+## Bernie Sanders
+
+## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 15:30:00 GMT*
+
+
+## Bernie Sanders
+
+## [Awake NY x Levi's Is Deliciously Oversized  Overdyed](https://www.highsnobiety.com/p/awake-levis-collab-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 17:01:29 GMT*
+
+
+## Bernie Sanders
+
+## [Clarks Are Sexy Sportswear Now, Thanks to Ancuta Sarca  ](https://www.highsnobiety.com/p/ancuta-sarca-clarks-ss25/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 18:00:02 GMT*
+
+
+## Bernie Sanders
 
 ## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
 
@@ -5160,15 +6591,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Bernie Sanders
 
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/nike-field-general-82/)
+## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:14:00 GMT
-Sat, 14 Sep 2024 14:13:00 GMT*
+*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
 
 
 ## Bernie Sanders
@@ -5177,74 +6604,38 @@ Sat, 14 Sep 2024 14:13:00 GMT*
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:15:00 GMT*
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
 
 
 ## Bernie Sanders
 
-## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 15:30:00 GMT*
-
-
-## Bernie Sanders
-
-## [Awake NY x Levi's Is Deliciously Oversized  Overdyed](https://www.highsnobiety.com/p/awake-levis-collab-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 17:01:29 GMT*
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
 
 
 ## Bernie Sanders
 
-## [Clarks Are Sexy Sportswear Now, Thanks to Ancuta Sarca  ](https://www.highsnobiety.com/p/ancuta-sarca-clarks-ss25/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 18:00:02 GMT*
-
-
-## Bernie Sanders
-
-## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 19:04:09 GMT*
-
-
-## Bernie Sanders
-
-## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 19:30:00 GMT*
-
-
-## Big Sean
-
 ## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/nike-field-general-82/)
+adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
+https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:14:00 GMT
-Sat, 14 Sep 2024 14:13:00 GMT*
+*Published on: Sun, 15 Sep 2024 14:17:00 GMT
+Sun, 15 Sep 2024 14:17:00 GMT*
 
 
 ## Big Sean
 
-## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+## [Nike's Jordan 1 Sneaker Gets a Flawless Navy Makeover ](https://www.highsnobiety.com/p/jordan-1-midnight-navy-where-to-buy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:15:00 GMT*
+*Published on: Sat, 14 Sep 2024 12:00:00 GMT*
 
 
 ## Big Sean
@@ -5276,42 +6667,60 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Big Sean
 
-## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
+## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 19:04:09 GMT*
+*Published on: Sat, 14 Sep 2024 19:30:00 GMT*
 
 
 ## Big Sean
 
-## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
+## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 19:30:00 GMT*
+*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
 
 
-## BlockBoy JB
-
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/nike-field-general-82/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 14:14:00 GMT
-Sat, 14 Sep 2024 14:13:00 GMT*
-
-
-## BlockBoy JB
+## Big Sean
 
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:15:00 GMT*
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
+
+
+## Big Sean
+
+## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
+
+
+## Big Sean
+
+## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
+adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
+https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:17:00 GMT
+Sun, 15 Sep 2024 14:17:00 GMT*
+
+
+## BlockBoy JB
+
+## [Nike's Jordan 1 Sneaker Gets a Flawless Navy Makeover ](https://www.highsnobiety.com/p/jordan-1-midnight-navy-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 12:00:00 GMT*
 
 
 ## BlockBoy JB
@@ -5343,14 +6752,90 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## BlockBoy JB
 
-## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
+## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 19:04:09 GMT*
+*Published on: Sat, 14 Sep 2024 19:30:00 GMT*
 
 
 ## BlockBoy JB
+
+## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
+
+
+## BlockBoy JB
+
+## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
+
+
+## BlockBoy JB
+
+## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
+
+
+## BlockBoy JB
+
+## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
+adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
+https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:17:00 GMT
+Sun, 15 Sep 2024 14:17:00 GMT*
+
+
+## Biden
+
+## [Nike's Jordan 1 Sneaker Gets a Flawless Navy Makeover ](https://www.highsnobiety.com/p/jordan-1-midnight-navy-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 12:00:00 GMT*
+
+
+## Biden
+
+## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 15:30:00 GMT*
+
+
+## Biden
+
+## [Awake NY x Levi's Is Deliciously Oversized  Overdyed](https://www.highsnobiety.com/p/awake-levis-collab-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 17:01:29 GMT*
+
+
+## Biden
+
+## [Clarks Are Sexy Sportswear Now, Thanks to Ancuta Sarca  ](https://www.highsnobiety.com/p/ancuta-sarca-clarks-ss25/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 18:00:02 GMT*
+
+
+## Biden
 
 ## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
 
@@ -5361,15 +6846,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Biden
 
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/nike-field-general-82/)
+## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:14:00 GMT
-Sat, 14 Sep 2024 14:13:00 GMT*
+*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
 
 
 ## Biden
@@ -5378,74 +6859,38 @@ Sat, 14 Sep 2024 14:13:00 GMT*
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:15:00 GMT*
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
 
 
 ## Biden
 
-## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 15:30:00 GMT*
-
-
-## Biden
-
-## [Awake NY x Levi's Is Deliciously Oversized  Overdyed](https://www.highsnobiety.com/p/awake-levis-collab-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 17:01:29 GMT*
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
 
 
 ## Biden
 
-## [Clarks Are Sexy Sportswear Now, Thanks to Ancuta Sarca  ](https://www.highsnobiety.com/p/ancuta-sarca-clarks-ss25/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 18:00:02 GMT*
-
-
-## Biden
-
-## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 19:04:09 GMT*
-
-
-## Biden
-
-## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 19:30:00 GMT*
-
-
-## Bieber
-
 ## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/nike-field-general-82/)
+adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
+https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:14:00 GMT
-Sat, 14 Sep 2024 14:13:00 GMT*
+*Published on: Sun, 15 Sep 2024 14:17:00 GMT
+Sun, 15 Sep 2024 14:17:00 GMT*
 
 
 ## Bieber
 
-## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+## [Nike's Jordan 1 Sneaker Gets a Flawless Navy Makeover ](https://www.highsnobiety.com/p/jordan-1-midnight-navy-where-to-buy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:15:00 GMT*
+*Published on: Sat, 14 Sep 2024 12:00:00 GMT*
 
 
 ## Bieber
@@ -5477,42 +6922,60 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Bieber
 
-## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
+## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 19:04:09 GMT*
+*Published on: Sat, 14 Sep 2024 19:30:00 GMT*
 
 
 ## Bieber
 
-## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
+## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 19:30:00 GMT*
+*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
 
 
-## Paulina Porizkov
-
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/nike-field-general-82/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 14:14:00 GMT
-Sat, 14 Sep 2024 14:13:00 GMT*
-
-
-## Paulina Porizkov
+## Bieber
 
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:15:00 GMT*
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
+
+
+## Bieber
+
+## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
+
+
+## Bieber
+
+## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
+adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
+https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:17:00 GMT
+Sun, 15 Sep 2024 14:17:00 GMT*
+
+
+## Paulina Porizkov
+
+## [Nike's Jordan 1 Sneaker Gets a Flawless Navy Makeover ](https://www.highsnobiety.com/p/jordan-1-midnight-navy-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 12:00:00 GMT*
 
 
 ## Paulina Porizkov
@@ -5544,14 +7007,90 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Paulina Porizkov
 
-## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
+## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 19:04:09 GMT*
+*Published on: Sat, 14 Sep 2024 19:30:00 GMT*
 
 
 ## Paulina Porizkov
+
+## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
+
+
+## Paulina Porizkov
+
+## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
+
+
+## Paulina Porizkov
+
+## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
+
+
+## Paulina Porizkov
+
+## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
+adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
+https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:17:00 GMT
+Sun, 15 Sep 2024 14:17:00 GMT*
+
+
+## Paris Hilton
+
+## [Nike's Jordan 1 Sneaker Gets a Flawless Navy Makeover ](https://www.highsnobiety.com/p/jordan-1-midnight-navy-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 12:00:00 GMT*
+
+
+## Paris Hilton
+
+## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 15:30:00 GMT*
+
+
+## Paris Hilton
+
+## [Awake NY x Levi's Is Deliciously Oversized  Overdyed](https://www.highsnobiety.com/p/awake-levis-collab-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 17:01:29 GMT*
+
+
+## Paris Hilton
+
+## [Clarks Are Sexy Sportswear Now, Thanks to Ancuta Sarca  ](https://www.highsnobiety.com/p/ancuta-sarca-clarks-ss25/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 18:00:02 GMT*
+
+
+## Paris Hilton
 
 ## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
 
@@ -5562,15 +7101,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Paris Hilton
 
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/nike-field-general-82/)
+## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:14:00 GMT
-Sat, 14 Sep 2024 14:13:00 GMT*
+*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
 
 
 ## Paris Hilton
@@ -5579,74 +7114,38 @@ Sat, 14 Sep 2024 14:13:00 GMT*
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:15:00 GMT*
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
 
 
 ## Paris Hilton
 
-## [UNAFFECTED Is The Master of Teched-Up ASICS Sneakers](https://www.highsnobiety.com/p/unaffected-asics-gel-kayano-20/)
+## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 15:30:00 GMT*
-
-
-## Paris Hilton
-
-## [Awake NY x Levi's Is Deliciously Oversized  Overdyed](https://www.highsnobiety.com/p/awake-levis-collab-2024/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 17:01:29 GMT*
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
 
 
 ## Paris Hilton
 
-## [Clarks Are Sexy Sportswear Now, Thanks to Ancuta Sarca  ](https://www.highsnobiety.com/p/ancuta-sarca-clarks-ss25/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 18:00:02 GMT*
-
-
-## Paris Hilton
-
-## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 19:04:09 GMT*
-
-
-## Paris Hilton
-
-## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 19:30:00 GMT*
-
-
-## Metro Boomin
-
 ## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/nike-field-general-82/)
+adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
+https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:14:00 GMT
-Sat, 14 Sep 2024 14:13:00 GMT*
+*Published on: Sun, 15 Sep 2024 14:17:00 GMT
+Sun, 15 Sep 2024 14:17:00 GMT*
 
 
 ## Metro Boomin
 
-## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+## [Nike's Jordan 1 Sneaker Gets a Flawless Navy Makeover ](https://www.highsnobiety.com/p/jordan-1-midnight-navy-where-to-buy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:15:00 GMT*
+*Published on: Sat, 14 Sep 2024 12:00:00 GMT*
 
 
 ## Metro Boomin
@@ -5678,42 +7177,60 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Metro Boomin
 
-## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
+## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 19:04:09 GMT*
+*Published on: Sat, 14 Sep 2024 19:30:00 GMT*
 
 
 ## Metro Boomin
 
-## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
+## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 19:30:00 GMT*
+*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
 
 
-## Meghan Markle
-
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/nike-field-general-82/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 14:14:00 GMT
-Sat, 14 Sep 2024 14:13:00 GMT*
-
-
-## Meghan Markle
+## Metro Boomin
 
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:15:00 GMT*
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
+
+
+## Metro Boomin
+
+## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
+
+
+## Metro Boomin
+
+## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
+adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
+https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:17:00 GMT
+Sun, 15 Sep 2024 14:17:00 GMT*
+
+
+## Meghan Markle
+
+## [Nike's Jordan 1 Sneaker Gets a Flawless Navy Makeover ](https://www.highsnobiety.com/p/jordan-1-midnight-navy-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 12:00:00 GMT*
 
 
 ## Meghan Markle
@@ -5745,42 +7262,60 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Meghan Markle
 
-## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
+## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 19:04:09 GMT*
+*Published on: Sat, 14 Sep 2024 19:30:00 GMT*
 
 
 ## Meghan Markle
 
-## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
+## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 19:30:00 GMT*
+*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
 
 
-## Megan Thee Stallion
-
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/nike-field-general-82/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 14:14:00 GMT
-Sat, 14 Sep 2024 14:13:00 GMT*
-
-
-## Megan Thee Stallion
+## Meghan Markle
 
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:15:00 GMT*
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
+
+
+## Meghan Markle
+
+## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
+
+
+## Meghan Markle
+
+## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
+adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
+https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:17:00 GMT
+Sun, 15 Sep 2024 14:17:00 GMT*
+
+
+## Megan Thee Stallion
+
+## [Nike's Jordan 1 Sneaker Gets a Flawless Navy Makeover ](https://www.highsnobiety.com/p/jordan-1-midnight-navy-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 12:00:00 GMT*
 
 
 ## Megan Thee Stallion
@@ -5812,42 +7347,60 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Megan Thee Stallion
 
-## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
+## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 19:04:09 GMT*
+*Published on: Sat, 14 Sep 2024 19:30:00 GMT*
 
 
 ## Megan Thee Stallion
 
-## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
+## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 19:30:00 GMT*
+*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
 
 
-## Maya Rudolph
-
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/nike-field-general-82/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 14:14:00 GMT
-Sat, 14 Sep 2024 14:13:00 GMT*
-
-
-## Maya Rudolph
+## Megan Thee Stallion
 
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:15:00 GMT*
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
+
+
+## Megan Thee Stallion
+
+## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
+
+
+## Megan Thee Stallion
+
+## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
+adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
+https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:17:00 GMT
+Sun, 15 Sep 2024 14:17:00 GMT*
+
+
+## Maya Rudolph
+
+## [Nike's Jordan 1 Sneaker Gets a Flawless Navy Makeover ](https://www.highsnobiety.com/p/jordan-1-midnight-navy-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 12:00:00 GMT*
 
 
 ## Maya Rudolph
@@ -5879,42 +7432,60 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Maya Rudolph
 
-## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
+## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 19:04:09 GMT*
+*Published on: Sat, 14 Sep 2024 19:30:00 GMT*
 
 
 ## Maya Rudolph
 
-## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
+## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 19:30:00 GMT*
+*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
 
 
-## Olivia Rodrigo
-
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/nike-field-general-82/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 14:14:00 GMT
-Sat, 14 Sep 2024 14:13:00 GMT*
-
-
-## Olivia Rodrigo
+## Maya Rudolph
 
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:15:00 GMT*
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
+
+
+## Maya Rudolph
+
+## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
+
+
+## Maya Rudolph
+
+## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
+adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
+https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:17:00 GMT
+Sun, 15 Sep 2024 14:17:00 GMT*
+
+
+## Olivia Rodrigo
+
+## [Nike's Jordan 1 Sneaker Gets a Flawless Navy Makeover ](https://www.highsnobiety.com/p/jordan-1-midnight-navy-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 12:00:00 GMT*
 
 
 ## Olivia Rodrigo
@@ -5946,42 +7517,60 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Olivia Rodrigo
 
-## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
+## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 19:04:09 GMT*
+*Published on: Sat, 14 Sep 2024 19:30:00 GMT*
 
 
 ## Olivia Rodrigo
 
-## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
+## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 19:30:00 GMT*
+*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
 
 
-## Obama
-
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/nike-field-general-82/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 14:14:00 GMT
-Sat, 14 Sep 2024 14:13:00 GMT*
-
-
-## Obama
+## Olivia Rodrigo
 
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:15:00 GMT*
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
+
+
+## Olivia Rodrigo
+
+## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
+
+
+## Olivia Rodrigo
+
+## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
+adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
+https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:17:00 GMT
+Sun, 15 Sep 2024 14:17:00 GMT*
+
+
+## Obama
+
+## [Nike's Jordan 1 Sneaker Gets a Flawless Navy Makeover ](https://www.highsnobiety.com/p/jordan-1-midnight-navy-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 12:00:00 GMT*
 
 
 ## Obama
@@ -6013,42 +7602,60 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Obama
 
-## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
+## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 19:04:09 GMT*
+*Published on: Sat, 14 Sep 2024 19:30:00 GMT*
 
 
 ## Obama
 
-## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
+## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 19:30:00 GMT*
+*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
 
 
-## Nicki Minaj
-
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/nike-field-general-82/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 14:14:00 GMT
-Sat, 14 Sep 2024 14:13:00 GMT*
-
-
-## Nicki Minaj
+## Obama
 
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:15:00 GMT*
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
+
+
+## Obama
+
+## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
+
+
+## Obama
+
+## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
+adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
+https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:17:00 GMT
+Sun, 15 Sep 2024 14:17:00 GMT*
+
+
+## Nicki Minaj
+
+## [Nike's Jordan 1 Sneaker Gets a Flawless Navy Makeover ](https://www.highsnobiety.com/p/jordan-1-midnight-navy-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 12:00:00 GMT*
 
 
 ## Nicki Minaj
@@ -6080,15 +7687,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Nicki Minaj
 
-## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 19:04:09 GMT*
-
-
-## Nicki Minaj
-
 ## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -6096,26 +7694,53 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Sat, 14 Sep 2024 19:30:00 GMT*
 
 
-## MrBeast
+## Nicki Minaj
 
-## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
-Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
-https://www.highsnobiety.com/p/nike-field-general-82/)
+## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:14:00 GMT
-Sat, 14 Sep 2024 14:13:00 GMT*
+*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
 
 
-## MrBeast
+## Nicki Minaj
 
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Sat, 14 Sep 2024 14:15:00 GMT*
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
+
+
+## Nicki Minaj
+
+## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
+
+
+## Nicki Minaj
+
+## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
+adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
+https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:17:00 GMT
+Sun, 15 Sep 2024 14:17:00 GMT*
+
+
+## MrBeast
+
+## [Nike's Jordan 1 Sneaker Gets a Flawless Navy Makeover ](https://www.highsnobiety.com/p/jordan-1-midnight-navy-where-to-buy/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 12:00:00 GMT*
 
 
 ## MrBeast
@@ -6147,19 +7772,50 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## MrBeast
 
-## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 19:04:09 GMT*
-
-
-## MrBeast
-
 ## [IRL Workplaces Are Under the Spell of TikTok's Office Sirens](https://www.highsnobiety.com/p/office-siren-dress-codes/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sat, 14 Sep 2024 19:30:00 GMT*
+
+
+## MrBeast
+
+## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
+
+
+## MrBeast
+
+## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
+
+
+## MrBeast
+
+## [Nike’s Beautifully Dunk-ish Sneaker Is a Gazelle in Swoosh’s Clothing](https://www.highsnobiety.com/p/nike-field-general-82/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:15:00 GMT*
+
+
+## MrBeast
+
+## [Nike’s All-New Air Max Sneaker Is Ruggedly Minimalist
+adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/nike-air-max-verse-2024/
+https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Sun, 15 Sep 2024 14:17:00 GMT
+Sun, 15 Sep 2024 14:17:00 GMT*
 
 
