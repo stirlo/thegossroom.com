@@ -1,15 +1,6 @@
 # Latest Stories
 ## Tim Cook
 
-## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
-
-
-## Tim Cook
-
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -68,15 +59,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Taylor Swift
 
-## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
-
-
-## Taylor Swift
-
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -135,15 +117,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Tom Brady
 
-## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
-
-
-## Tom Brady
-
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -202,15 +175,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Tina Fey
 
-## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
-
-
-## Tina Fey
-
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -269,15 +233,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Steven Yuen
 
-## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
-
-
-## Steven Yuen
-
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -336,15 +291,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Sommer Ray
 
-## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
-
-
-## Sommer Ray
-
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -403,15 +349,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Sza
 
-## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
-
-
-## Sza
-
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -470,15 +407,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Sydney Sweeney
 
-## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
-
-
-## Sydney Sweeney
-
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -537,15 +465,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Walton Goggins
 
-## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
-
-
-## Walton Goggins
-
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -604,15 +523,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Tom Holland
 
-## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
-
-
-## Tom Holland
-
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -671,15 +581,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Gucci Mane
 
-## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
-
-
-## Gucci Mane
-
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -738,15 +639,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Harry Styles
 
-## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
-
-
-## Harry Styles
-
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -805,15 +697,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Jake Paul
 
-## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
-
-
-## Jake Paul
-
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -872,15 +755,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Jameela Jamil
 
-## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
-
-
-## Jameela Jamil
-
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -939,15 +813,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Elon Musk
 
-## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
-
-
-## Elon Musk
-
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1006,15 +871,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Gabrielle Union
 
-## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
-
-
-## Gabrielle Union
-
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1073,15 +929,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Giancarlo Esposito
 
-## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
-
-
-## Giancarlo Esposito
-
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1140,15 +987,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Gillian Jacobs
 
-## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
-
-
-## Gillian Jacobs
-
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1207,15 +1045,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Jason Mantzoukas
 
-## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
-
-
-## Jason Mantzoukas
-
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1274,15 +1103,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## JB Smoove
 
-## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
-
-
-## JB Smoove
-
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1341,15 +1161,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Madison Pettis
 
-## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
-
-
-## Madison Pettis
-
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1408,15 +1219,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Austin Butler
 
-## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
-
-
-## Austin Butler
-
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1475,15 +1277,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Mark Zuckerberg
 
-## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
-
-
-## Mark Zuckerberg
-
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1542,15 +1335,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Ariana Grande
 
-## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
-
-
-## Ariana Grande
-
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1609,15 +1393,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Livvy Dunne
 
-## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
-
-
-## Livvy Dunne
-
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1676,15 +1451,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Ali Wong
 
-## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
-
-
-## Ali Wong
-
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1743,15 +1509,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Lizzo
 
-## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
-
-
-## Lizzo
-
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1810,15 +1567,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Alison Brie
 
-## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
-
-
-## Alison Brie
-
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1877,15 +1625,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Lil Wayne
 
-## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
-
-
-## Lil Wayne
-
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1944,15 +1683,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Adele
 
-## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
-
-
-## Adele
-
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2011,15 +1741,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Lindsay Lohan
 
-## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
-
-
-## Lindsay Lohan
-
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2078,15 +1799,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Addison Rae
 
-## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
-
-
-## Addison Rae
-
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2145,15 +1857,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Latto
 
-## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
-
-
-## Latto
-
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2212,15 +1915,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Aaron Paul
 
-## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
-
-
-## Aaron Paul
-
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2279,15 +1973,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## LeBron James
 
-## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
-
-
-## LeBron James
-
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2346,15 +2031,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## 50 Cent
 
-## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
-
-
-## 50 Cent
-
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2413,15 +2089,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Kesha
 
-## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
-
-
-## Kesha
-
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2480,15 +2147,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## 21 Savage
 
-## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
-
-
-## 21 Savage
-
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2547,15 +2205,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Larry David
 
-## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
-
-
-## Larry David
-
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2614,15 +2263,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Seth Rogan
 
-## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
-
-
-## Seth Rogan
-
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2681,15 +2321,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Simone Biles
 
-## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
-
-
-## Simone Biles
-
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2748,15 +2379,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Pete Davidson
 
-## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
-
-
-## Pete Davidson
-
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2815,15 +2437,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Prince Harry
 
-## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
-
-
-## Prince Harry
-
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2882,15 +2495,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Princess of Wales
 
-## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
-
-
-## Princess of Wales
-
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2949,15 +2553,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Rachel McAdams
 
-## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
-
-
-## Rachel McAdams
-
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3016,15 +2611,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Reneé Rapp
 
-## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
-
-
-## Reneé Rapp
-
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3083,15 +2669,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Rick Ross
 
-## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
-
-
-## Rick Ross
-
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3150,15 +2727,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Sam Ashgari
 
-## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
-
-
-## Sam Ashgari
-
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3217,15 +2785,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Sandra Oh
 
-## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
-
-
-## Sandra Oh
-
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3284,15 +2843,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Donald Trump
 
-## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
-
-
-## Donald Trump
-
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3351,15 +2901,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Diddy
 
-## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
-
-
-## Diddy
-
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3418,15 +2959,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## City Girls
 
-## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
-
-
-## City Girls
-
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3485,15 +3017,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Chloe Bailey
 
-## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
-
-
-## Chloe Bailey
-
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3552,15 +3075,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Charli D Amelio
 
-## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
-
-
-## Charli D Amelio
-
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3619,15 +3133,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Cardi B
 
-## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
-
-
-## Cardi B
-
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3686,15 +3191,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Bryan Cranston
 
-## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
-
-
-## Bryan Cranston
-
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3753,15 +3249,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Brielle Biermann
 
-## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
-
-
-## Brielle Biermann
-
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3820,15 +3307,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Dua Lipa
 
-## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
-
-
-## Dua Lipa
-
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3887,15 +3365,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Drake
 
-## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
-
-
-## Drake
-
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3954,15 +3423,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Jenner
 
-## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
-
-
-## Jenner
-
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -4021,15 +3481,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## J. Cole
 
-## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
-
-
-## J. Cole
-
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -4088,15 +3539,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Jerrod Carmichael
 
-## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
-
-
-## Jerrod Carmichael
-
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -4155,15 +3597,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Jennifer Lawrence
 
-## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
-
-
-## Jennifer Lawrence
-
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -4222,15 +3655,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Joe Biden
 
-## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
-
-
-## Joe Biden
-
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -4289,15 +3713,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## J.K. Simmons
 
-## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
-
-
-## J.K. Simmons
-
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -4356,15 +3771,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Kamala Harris
 
-## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
-
-
-## Kamala Harris
-
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -4423,15 +3829,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## John C Reilly
 
-## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
-
-
-## John C Reilly
-
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -4490,15 +3887,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Kardashian
 
-## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
-
-
-## Kardashian
-
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -4557,15 +3945,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Kanye
 
-## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
-
-
-## Kanye
-
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -4624,15 +4003,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Zendaya
 
-## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
-
-
-## Zendaya
-
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -4691,15 +4061,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Will Ferrell
 
-## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
-
-
-## Will Ferrell
-
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -4758,15 +4119,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Zazie Beetz
 
-## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
-
-
-## Zazie Beetz
-
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -4825,15 +4177,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Bob Odenkirk
 
-## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
-
-
-## Bob Odenkirk
-
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -4892,15 +4235,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Brad Pitt
 
-## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
-
-
-## Brad Pitt
-
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -4959,15 +4293,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Beyoncé
 
-## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
-
-
-## Beyoncé
-
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -5026,15 +4351,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Bia
 
-## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
-
-
-## Bia
-
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -5093,15 +4409,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Avantika
 
-## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
-
-
-## Avantika
-
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -5160,15 +4467,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Bernie Sanders
 
-## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
-
-
-## Bernie Sanders
-
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -5227,15 +4525,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Big Sean
 
-## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
-
-
-## Big Sean
-
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -5294,15 +4583,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## BlockBoy JB
 
-## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
-
-
-## BlockBoy JB
-
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -5361,15 +4641,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Biden
 
-## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
-
-
-## Biden
-
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -5428,15 +4699,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Bieber
 
-## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
-
-
-## Bieber
-
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -5495,15 +4757,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Paulina Porizkov
 
-## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
-
-
-## Paulina Porizkov
-
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -5562,15 +4815,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Paris Hilton
 
-## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
-
-
-## Paris Hilton
-
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -5629,15 +4873,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Metro Boomin
 
-## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
-
-
-## Metro Boomin
-
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -5696,15 +4931,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Meghan Markle
 
-## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
-
-
-## Meghan Markle
-
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -5759,15 +4985,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sun, 15 Sep 2024 19:40:20 GMT*
-
-
-## Megan Thee Stallion
-
-## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
 
 
 ## Megan Thee Stallion
@@ -5830,15 +5047,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Maya Rudolph
 
-## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
-
-
-## Maya Rudolph
-
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -5893,15 +5101,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sun, 15 Sep 2024 19:40:20 GMT*
-
-
-## Olivia Rodrigo
-
-## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
 
 
 ## Olivia Rodrigo
@@ -5964,15 +5163,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Obama
 
-## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
-
-
-## Obama
-
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -6031,15 +5221,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Nicki Minaj
 
-## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
-
-
-## Nicki Minaj
-
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -6094,15 +5275,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Sun, 15 Sep 2024 19:40:20 GMT*
-
-
-## MrBeast
-
-## [adidas' Chunky "Skate Shoes" Got Fuzzed Up ](https://www.highsnobiety.com/p/size-adidas-campus-sneakers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Sat, 14 Sep 2024 21:32:07 GMT*
 
 
 ## MrBeast
