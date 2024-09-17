@@ -1,15 +1,6 @@
 # Latest Stories
 ## Tim Cook
 
-## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 16 Sep 2024 10:15:00 GMT*
-
-
-## Tim Cook
-
 ## [Awake NY x Levi's Is Deliciously Oversized  Overdyed](https://www.highsnobiety.com/p/awake-levis-collab-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -80,7 +71,16 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
-## Taylor Swift
+## Tim Cook
+
+## [Nike's Beefed-Up Flyknit Sneakers Just Got Better ( Earthy) ](https://www.highsnobiety.com/p/nike-flyknit-bloom-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 17 Sep 2024 09:40:20 GMT*
+
+
+## Tim Cook
 
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
@@ -161,7 +161,16 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
-## Tom Brady
+## Taylor Swift
+
+## [Nike's Beefed-Up Flyknit Sneakers Just Got Better ( Earthy) ](https://www.highsnobiety.com/p/nike-flyknit-bloom-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 17 Sep 2024 09:40:20 GMT*
+
+
+## Taylor Swift
 
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
@@ -242,7 +251,16 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
-## Tina Fey
+## Tom Brady
+
+## [Nike's Beefed-Up Flyknit Sneakers Just Got Better ( Earthy) ](https://www.highsnobiety.com/p/nike-flyknit-bloom-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 17 Sep 2024 09:40:20 GMT*
+
+
+## Tom Brady
 
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
@@ -323,7 +341,16 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
-## Steven Yuen
+## Tina Fey
+
+## [Nike's Beefed-Up Flyknit Sneakers Just Got Better ( Earthy) ](https://www.highsnobiety.com/p/nike-flyknit-bloom-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 17 Sep 2024 09:40:20 GMT*
+
+
+## Tina Fey
 
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
@@ -404,7 +431,16 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
-## Sommer Ray
+## Steven Yuen
+
+## [Nike's Beefed-Up Flyknit Sneakers Just Got Better ( Earthy) ](https://www.highsnobiety.com/p/nike-flyknit-bloom-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 17 Sep 2024 09:40:20 GMT*
+
+
+## Steven Yuen
 
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
@@ -485,7 +521,16 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
-## Sza
+## Sommer Ray
+
+## [Nike's Beefed-Up Flyknit Sneakers Just Got Better ( Earthy) ](https://www.highsnobiety.com/p/nike-flyknit-bloom-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 17 Sep 2024 09:40:20 GMT*
+
+
+## Sommer Ray
 
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
@@ -566,7 +611,16 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
-## Sydney Sweeney
+## Sza
+
+## [Nike's Beefed-Up Flyknit Sneakers Just Got Better ( Earthy) ](https://www.highsnobiety.com/p/nike-flyknit-bloom-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 17 Sep 2024 09:40:20 GMT*
+
+
+## Sza
 
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
@@ -647,7 +701,16 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
-## Walton Goggins
+## Sydney Sweeney
+
+## [Nike's Beefed-Up Flyknit Sneakers Just Got Better ( Earthy) ](https://www.highsnobiety.com/p/nike-flyknit-bloom-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 17 Sep 2024 09:40:20 GMT*
+
+
+## Sydney Sweeney
 
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
@@ -728,7 +791,16 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
-## Tom Holland
+## Walton Goggins
+
+## [Nike's Beefed-Up Flyknit Sneakers Just Got Better ( Earthy) ](https://www.highsnobiety.com/p/nike-flyknit-bloom-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 17 Sep 2024 09:40:20 GMT*
+
+
+## Walton Goggins
 
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
@@ -809,7 +881,16 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
-## Gucci Mane
+## Tom Holland
+
+## [Nike's Beefed-Up Flyknit Sneakers Just Got Better ( Earthy) ](https://www.highsnobiety.com/p/nike-flyknit-bloom-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 17 Sep 2024 09:40:20 GMT*
+
+
+## Tom Holland
 
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
@@ -890,7 +971,16 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
-## Harry Styles
+## Gucci Mane
+
+## [Nike's Beefed-Up Flyknit Sneakers Just Got Better ( Earthy) ](https://www.highsnobiety.com/p/nike-flyknit-bloom-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 17 Sep 2024 09:40:20 GMT*
+
+
+## Gucci Mane
 
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
@@ -971,7 +1061,16 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
-## Jake Paul
+## Harry Styles
+
+## [Nike's Beefed-Up Flyknit Sneakers Just Got Better ( Earthy) ](https://www.highsnobiety.com/p/nike-flyknit-bloom-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 17 Sep 2024 09:40:20 GMT*
+
+
+## Harry Styles
 
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
@@ -1052,7 +1151,16 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
-## Jameela Jamil
+## Jake Paul
+
+## [Nike's Beefed-Up Flyknit Sneakers Just Got Better ( Earthy) ](https://www.highsnobiety.com/p/nike-flyknit-bloom-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 17 Sep 2024 09:40:20 GMT*
+
+
+## Jake Paul
 
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
@@ -1133,7 +1241,16 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
-## Elon Musk
+## Jameela Jamil
+
+## [Nike's Beefed-Up Flyknit Sneakers Just Got Better ( Earthy) ](https://www.highsnobiety.com/p/nike-flyknit-bloom-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 17 Sep 2024 09:40:20 GMT*
+
+
+## Jameela Jamil
 
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
@@ -1214,7 +1331,16 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
-## Gabrielle Union
+## Elon Musk
+
+## [Nike's Beefed-Up Flyknit Sneakers Just Got Better ( Earthy) ](https://www.highsnobiety.com/p/nike-flyknit-bloom-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 17 Sep 2024 09:40:20 GMT*
+
+
+## Elon Musk
 
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
@@ -1295,7 +1421,16 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
-## Giancarlo Esposito
+## Gabrielle Union
+
+## [Nike's Beefed-Up Flyknit Sneakers Just Got Better ( Earthy) ](https://www.highsnobiety.com/p/nike-flyknit-bloom-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 17 Sep 2024 09:40:20 GMT*
+
+
+## Gabrielle Union
 
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
@@ -1376,7 +1511,16 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
-## Gillian Jacobs
+## Giancarlo Esposito
+
+## [Nike's Beefed-Up Flyknit Sneakers Just Got Better ( Earthy) ](https://www.highsnobiety.com/p/nike-flyknit-bloom-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 17 Sep 2024 09:40:20 GMT*
+
+
+## Giancarlo Esposito
 
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
@@ -1457,7 +1601,16 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
-## Jason Mantzoukas
+## Gillian Jacobs
+
+## [Nike's Beefed-Up Flyknit Sneakers Just Got Better ( Earthy) ](https://www.highsnobiety.com/p/nike-flyknit-bloom-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 17 Sep 2024 09:40:20 GMT*
+
+
+## Gillian Jacobs
 
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
@@ -1538,7 +1691,16 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
-## JB Smoove
+## Jason Mantzoukas
+
+## [Nike's Beefed-Up Flyknit Sneakers Just Got Better ( Earthy) ](https://www.highsnobiety.com/p/nike-flyknit-bloom-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 17 Sep 2024 09:40:20 GMT*
+
+
+## Jason Mantzoukas
 
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
@@ -1619,7 +1781,16 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
-## Madison Pettis
+## JB Smoove
+
+## [Nike's Beefed-Up Flyknit Sneakers Just Got Better ( Earthy) ](https://www.highsnobiety.com/p/nike-flyknit-bloom-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 17 Sep 2024 09:40:20 GMT*
+
+
+## JB Smoove
 
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
@@ -1700,7 +1871,16 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
-## Austin Butler
+## Madison Pettis
+
+## [Nike's Beefed-Up Flyknit Sneakers Just Got Better ( Earthy) ](https://www.highsnobiety.com/p/nike-flyknit-bloom-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 17 Sep 2024 09:40:20 GMT*
+
+
+## Madison Pettis
 
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
@@ -1781,7 +1961,16 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
-## Mark Zuckerberg
+## Austin Butler
+
+## [Nike's Beefed-Up Flyknit Sneakers Just Got Better ( Earthy) ](https://www.highsnobiety.com/p/nike-flyknit-bloom-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 17 Sep 2024 09:40:20 GMT*
+
+
+## Austin Butler
 
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
@@ -1862,7 +2051,16 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
-## Ariana Grande
+## Mark Zuckerberg
+
+## [Nike's Beefed-Up Flyknit Sneakers Just Got Better ( Earthy) ](https://www.highsnobiety.com/p/nike-flyknit-bloom-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 17 Sep 2024 09:40:20 GMT*
+
+
+## Mark Zuckerberg
 
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
@@ -1943,7 +2141,16 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
-## Livvy Dunne
+## Ariana Grande
+
+## [Nike's Beefed-Up Flyknit Sneakers Just Got Better ( Earthy) ](https://www.highsnobiety.com/p/nike-flyknit-bloom-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 17 Sep 2024 09:40:20 GMT*
+
+
+## Ariana Grande
 
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
@@ -2024,7 +2231,16 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
-## Ali Wong
+## Livvy Dunne
+
+## [Nike's Beefed-Up Flyknit Sneakers Just Got Better ( Earthy) ](https://www.highsnobiety.com/p/nike-flyknit-bloom-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 17 Sep 2024 09:40:20 GMT*
+
+
+## Livvy Dunne
 
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
@@ -2105,7 +2321,16 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
-## Lizzo
+## Ali Wong
+
+## [Nike's Beefed-Up Flyknit Sneakers Just Got Better ( Earthy) ](https://www.highsnobiety.com/p/nike-flyknit-bloom-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 17 Sep 2024 09:40:20 GMT*
+
+
+## Ali Wong
 
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
@@ -2186,7 +2411,16 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
-## Alison Brie
+## Lizzo
+
+## [Nike's Beefed-Up Flyknit Sneakers Just Got Better ( Earthy) ](https://www.highsnobiety.com/p/nike-flyknit-bloom-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 17 Sep 2024 09:40:20 GMT*
+
+
+## Lizzo
 
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
@@ -2267,7 +2501,16 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
-## Lil Wayne
+## Alison Brie
+
+## [Nike's Beefed-Up Flyknit Sneakers Just Got Better ( Earthy) ](https://www.highsnobiety.com/p/nike-flyknit-bloom-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 17 Sep 2024 09:40:20 GMT*
+
+
+## Alison Brie
 
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
@@ -2348,7 +2591,16 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
-## Adele
+## Lil Wayne
+
+## [Nike's Beefed-Up Flyknit Sneakers Just Got Better ( Earthy) ](https://www.highsnobiety.com/p/nike-flyknit-bloom-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 17 Sep 2024 09:40:20 GMT*
+
+
+## Lil Wayne
 
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
@@ -2429,7 +2681,16 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
-## Lindsay Lohan
+## Adele
+
+## [Nike's Beefed-Up Flyknit Sneakers Just Got Better ( Earthy) ](https://www.highsnobiety.com/p/nike-flyknit-bloom-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 17 Sep 2024 09:40:20 GMT*
+
+
+## Adele
 
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
@@ -2510,7 +2771,16 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
-## Addison Rae
+## Lindsay Lohan
+
+## [Nike's Beefed-Up Flyknit Sneakers Just Got Better ( Earthy) ](https://www.highsnobiety.com/p/nike-flyknit-bloom-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 17 Sep 2024 09:40:20 GMT*
+
+
+## Lindsay Lohan
 
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
@@ -2591,7 +2861,16 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
-## Latto
+## Addison Rae
+
+## [Nike's Beefed-Up Flyknit Sneakers Just Got Better ( Earthy) ](https://www.highsnobiety.com/p/nike-flyknit-bloom-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 17 Sep 2024 09:40:20 GMT*
+
+
+## Addison Rae
 
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
@@ -2672,7 +2951,16 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
-## Aaron Paul
+## Latto
+
+## [Nike's Beefed-Up Flyknit Sneakers Just Got Better ( Earthy) ](https://www.highsnobiety.com/p/nike-flyknit-bloom-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 17 Sep 2024 09:40:20 GMT*
+
+
+## Latto
 
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
@@ -2753,7 +3041,16 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
-## LeBron James
+## Aaron Paul
+
+## [Nike's Beefed-Up Flyknit Sneakers Just Got Better ( Earthy) ](https://www.highsnobiety.com/p/nike-flyknit-bloom-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 17 Sep 2024 09:40:20 GMT*
+
+
+## Aaron Paul
 
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
@@ -2834,7 +3131,16 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
-## 50 Cent
+## LeBron James
+
+## [Nike's Beefed-Up Flyknit Sneakers Just Got Better ( Earthy) ](https://www.highsnobiety.com/p/nike-flyknit-bloom-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 17 Sep 2024 09:40:20 GMT*
+
+
+## LeBron James
 
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
@@ -2915,7 +3221,16 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
-## Kesha
+## 50 Cent
+
+## [Nike's Beefed-Up Flyknit Sneakers Just Got Better ( Earthy) ](https://www.highsnobiety.com/p/nike-flyknit-bloom-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 17 Sep 2024 09:40:20 GMT*
+
+
+## 50 Cent
 
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
@@ -2996,7 +3311,16 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
-## 21 Savage
+## Kesha
+
+## [Nike's Beefed-Up Flyknit Sneakers Just Got Better ( Earthy) ](https://www.highsnobiety.com/p/nike-flyknit-bloom-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 17 Sep 2024 09:40:20 GMT*
+
+
+## Kesha
 
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
@@ -3077,7 +3401,16 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
-## Larry David
+## 21 Savage
+
+## [Nike's Beefed-Up Flyknit Sneakers Just Got Better ( Earthy) ](https://www.highsnobiety.com/p/nike-flyknit-bloom-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 17 Sep 2024 09:40:20 GMT*
+
+
+## 21 Savage
 
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
@@ -3158,7 +3491,16 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
-## Seth Rogan
+## Larry David
+
+## [Nike's Beefed-Up Flyknit Sneakers Just Got Better ( Earthy) ](https://www.highsnobiety.com/p/nike-flyknit-bloom-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 17 Sep 2024 09:40:20 GMT*
+
+
+## Larry David
 
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
@@ -3239,7 +3581,16 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
-## Simone Biles
+## Seth Rogan
+
+## [Nike's Beefed-Up Flyknit Sneakers Just Got Better ( Earthy) ](https://www.highsnobiety.com/p/nike-flyknit-bloom-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 17 Sep 2024 09:40:20 GMT*
+
+
+## Seth Rogan
 
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
@@ -3320,7 +3671,16 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
-## Pete Davidson
+## Simone Biles
+
+## [Nike's Beefed-Up Flyknit Sneakers Just Got Better ( Earthy) ](https://www.highsnobiety.com/p/nike-flyknit-bloom-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 17 Sep 2024 09:40:20 GMT*
+
+
+## Simone Biles
 
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
@@ -3401,7 +3761,16 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
-## Prince Harry
+## Pete Davidson
+
+## [Nike's Beefed-Up Flyknit Sneakers Just Got Better ( Earthy) ](https://www.highsnobiety.com/p/nike-flyknit-bloom-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 17 Sep 2024 09:40:20 GMT*
+
+
+## Pete Davidson
 
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
@@ -3482,7 +3851,16 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
-## Princess of Wales
+## Prince Harry
+
+## [Nike's Beefed-Up Flyknit Sneakers Just Got Better ( Earthy) ](https://www.highsnobiety.com/p/nike-flyknit-bloom-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 17 Sep 2024 09:40:20 GMT*
+
+
+## Prince Harry
 
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
@@ -3563,7 +3941,16 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
-## Rachel McAdams
+## Princess of Wales
+
+## [Nike's Beefed-Up Flyknit Sneakers Just Got Better ( Earthy) ](https://www.highsnobiety.com/p/nike-flyknit-bloom-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 17 Sep 2024 09:40:20 GMT*
+
+
+## Princess of Wales
 
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
@@ -3644,7 +4031,16 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
-## Reneé Rapp
+## Rachel McAdams
+
+## [Nike's Beefed-Up Flyknit Sneakers Just Got Better ( Earthy) ](https://www.highsnobiety.com/p/nike-flyknit-bloom-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 17 Sep 2024 09:40:20 GMT*
+
+
+## Rachel McAdams
 
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
@@ -3725,7 +4121,16 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
-## Rick Ross
+## Reneé Rapp
+
+## [Nike's Beefed-Up Flyknit Sneakers Just Got Better ( Earthy) ](https://www.highsnobiety.com/p/nike-flyknit-bloom-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 17 Sep 2024 09:40:20 GMT*
+
+
+## Reneé Rapp
 
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
@@ -3806,7 +4211,16 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
-## Sam Ashgari
+## Rick Ross
+
+## [Nike's Beefed-Up Flyknit Sneakers Just Got Better ( Earthy) ](https://www.highsnobiety.com/p/nike-flyknit-bloom-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 17 Sep 2024 09:40:20 GMT*
+
+
+## Rick Ross
 
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
@@ -3887,7 +4301,16 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
-## Sandra Oh
+## Sam Ashgari
+
+## [Nike's Beefed-Up Flyknit Sneakers Just Got Better ( Earthy) ](https://www.highsnobiety.com/p/nike-flyknit-bloom-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 17 Sep 2024 09:40:20 GMT*
+
+
+## Sam Ashgari
 
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
@@ -3968,7 +4391,16 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
-## Donald Trump
+## Sandra Oh
+
+## [Nike's Beefed-Up Flyknit Sneakers Just Got Better ( Earthy) ](https://www.highsnobiety.com/p/nike-flyknit-bloom-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 17 Sep 2024 09:40:20 GMT*
+
+
+## Sandra Oh
 
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
@@ -4049,7 +4481,16 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
-## Diddy
+## Donald Trump
+
+## [Nike's Beefed-Up Flyknit Sneakers Just Got Better ( Earthy) ](https://www.highsnobiety.com/p/nike-flyknit-bloom-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 17 Sep 2024 09:40:20 GMT*
+
+
+## Donald Trump
 
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
@@ -4130,7 +4571,16 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
-## City Girls
+## Diddy
+
+## [Nike's Beefed-Up Flyknit Sneakers Just Got Better ( Earthy) ](https://www.highsnobiety.com/p/nike-flyknit-bloom-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 17 Sep 2024 09:40:20 GMT*
+
+
+## Diddy
 
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
@@ -4211,7 +4661,16 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
-## Chloe Bailey
+## City Girls
+
+## [Nike's Beefed-Up Flyknit Sneakers Just Got Better ( Earthy) ](https://www.highsnobiety.com/p/nike-flyknit-bloom-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 17 Sep 2024 09:40:20 GMT*
+
+
+## City Girls
 
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
@@ -4292,7 +4751,16 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
-## Charli D Amelio
+## Chloe Bailey
+
+## [Nike's Beefed-Up Flyknit Sneakers Just Got Better ( Earthy) ](https://www.highsnobiety.com/p/nike-flyknit-bloom-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 17 Sep 2024 09:40:20 GMT*
+
+
+## Chloe Bailey
 
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
@@ -4373,7 +4841,16 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
-## Cardi B
+## Charli D Amelio
+
+## [Nike's Beefed-Up Flyknit Sneakers Just Got Better ( Earthy) ](https://www.highsnobiety.com/p/nike-flyknit-bloom-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 17 Sep 2024 09:40:20 GMT*
+
+
+## Charli D Amelio
 
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
@@ -4454,7 +4931,16 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
-## Bryan Cranston
+## Cardi B
+
+## [Nike's Beefed-Up Flyknit Sneakers Just Got Better ( Earthy) ](https://www.highsnobiety.com/p/nike-flyknit-bloom-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 17 Sep 2024 09:40:20 GMT*
+
+
+## Cardi B
 
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
@@ -4535,7 +5021,16 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
-## Brielle Biermann
+## Bryan Cranston
+
+## [Nike's Beefed-Up Flyknit Sneakers Just Got Better ( Earthy) ](https://www.highsnobiety.com/p/nike-flyknit-bloom-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 17 Sep 2024 09:40:20 GMT*
+
+
+## Bryan Cranston
 
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
@@ -4616,7 +5111,16 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
-## Dua Lipa
+## Brielle Biermann
+
+## [Nike's Beefed-Up Flyknit Sneakers Just Got Better ( Earthy) ](https://www.highsnobiety.com/p/nike-flyknit-bloom-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 17 Sep 2024 09:40:20 GMT*
+
+
+## Brielle Biermann
 
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
@@ -4697,7 +5201,16 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
-## Drake
+## Dua Lipa
+
+## [Nike's Beefed-Up Flyknit Sneakers Just Got Better ( Earthy) ](https://www.highsnobiety.com/p/nike-flyknit-bloom-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 17 Sep 2024 09:40:20 GMT*
+
+
+## Dua Lipa
 
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
@@ -4778,7 +5291,16 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
-## Jenner
+## Drake
+
+## [Nike's Beefed-Up Flyknit Sneakers Just Got Better ( Earthy) ](https://www.highsnobiety.com/p/nike-flyknit-bloom-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 17 Sep 2024 09:40:20 GMT*
+
+
+## Drake
 
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
@@ -4859,7 +5381,16 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
-## J. Cole
+## Jenner
+
+## [Nike's Beefed-Up Flyknit Sneakers Just Got Better ( Earthy) ](https://www.highsnobiety.com/p/nike-flyknit-bloom-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 17 Sep 2024 09:40:20 GMT*
+
+
+## Jenner
 
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
@@ -4940,7 +5471,16 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
-## Jerrod Carmichael
+## J. Cole
+
+## [Nike's Beefed-Up Flyknit Sneakers Just Got Better ( Earthy) ](https://www.highsnobiety.com/p/nike-flyknit-bloom-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 17 Sep 2024 09:40:20 GMT*
+
+
+## J. Cole
 
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
@@ -5021,7 +5561,16 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
-## Jennifer Lawrence
+## Jerrod Carmichael
+
+## [Nike's Beefed-Up Flyknit Sneakers Just Got Better ( Earthy) ](https://www.highsnobiety.com/p/nike-flyknit-bloom-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 17 Sep 2024 09:40:20 GMT*
+
+
+## Jerrod Carmichael
 
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
@@ -5102,7 +5651,16 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
-## Joe Biden
+## Jennifer Lawrence
+
+## [Nike's Beefed-Up Flyknit Sneakers Just Got Better ( Earthy) ](https://www.highsnobiety.com/p/nike-flyknit-bloom-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 17 Sep 2024 09:40:20 GMT*
+
+
+## Jennifer Lawrence
 
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
@@ -5183,7 +5741,16 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
-## J.K. Simmons
+## Joe Biden
+
+## [Nike's Beefed-Up Flyknit Sneakers Just Got Better ( Earthy) ](https://www.highsnobiety.com/p/nike-flyknit-bloom-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 17 Sep 2024 09:40:20 GMT*
+
+
+## Joe Biden
 
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
@@ -5264,7 +5831,16 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
-## Kamala Harris
+## J.K. Simmons
+
+## [Nike's Beefed-Up Flyknit Sneakers Just Got Better ( Earthy) ](https://www.highsnobiety.com/p/nike-flyknit-bloom-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 17 Sep 2024 09:40:20 GMT*
+
+
+## J.K. Simmons
 
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
@@ -5345,7 +5921,16 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
-## John C Reilly
+## Kamala Harris
+
+## [Nike's Beefed-Up Flyknit Sneakers Just Got Better ( Earthy) ](https://www.highsnobiety.com/p/nike-flyknit-bloom-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 17 Sep 2024 09:40:20 GMT*
+
+
+## Kamala Harris
 
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
@@ -5426,7 +6011,16 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
-## Kardashian
+## John C Reilly
+
+## [Nike's Beefed-Up Flyknit Sneakers Just Got Better ( Earthy) ](https://www.highsnobiety.com/p/nike-flyknit-bloom-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 17 Sep 2024 09:40:20 GMT*
+
+
+## John C Reilly
 
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
@@ -5507,7 +6101,16 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
-## Kanye
+## Kardashian
+
+## [Nike's Beefed-Up Flyknit Sneakers Just Got Better ( Earthy) ](https://www.highsnobiety.com/p/nike-flyknit-bloom-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 17 Sep 2024 09:40:20 GMT*
+
+
+## Kardashian
 
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
@@ -5588,7 +6191,16 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
-## Zendaya
+## Kanye
+
+## [Nike's Beefed-Up Flyknit Sneakers Just Got Better ( Earthy) ](https://www.highsnobiety.com/p/nike-flyknit-bloom-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 17 Sep 2024 09:40:20 GMT*
+
+
+## Kanye
 
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
@@ -5669,7 +6281,16 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
-## Will Ferrell
+## Zendaya
+
+## [Nike's Beefed-Up Flyknit Sneakers Just Got Better ( Earthy) ](https://www.highsnobiety.com/p/nike-flyknit-bloom-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 17 Sep 2024 09:40:20 GMT*
+
+
+## Zendaya
 
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
@@ -5750,7 +6371,16 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
-## Zazie Beetz
+## Will Ferrell
+
+## [Nike's Beefed-Up Flyknit Sneakers Just Got Better ( Earthy) ](https://www.highsnobiety.com/p/nike-flyknit-bloom-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 17 Sep 2024 09:40:20 GMT*
+
+
+## Will Ferrell
 
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
@@ -5831,7 +6461,16 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
-## Bob Odenkirk
+## Zazie Beetz
+
+## [Nike's Beefed-Up Flyknit Sneakers Just Got Better ( Earthy) ](https://www.highsnobiety.com/p/nike-flyknit-bloom-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 17 Sep 2024 09:40:20 GMT*
+
+
+## Zazie Beetz
 
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
@@ -5912,7 +6551,16 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
-## Brad Pitt
+## Bob Odenkirk
+
+## [Nike's Beefed-Up Flyknit Sneakers Just Got Better ( Earthy) ](https://www.highsnobiety.com/p/nike-flyknit-bloom-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 17 Sep 2024 09:40:20 GMT*
+
+
+## Bob Odenkirk
 
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
@@ -5993,7 +6641,16 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
-## Beyoncé
+## Brad Pitt
+
+## [Nike's Beefed-Up Flyknit Sneakers Just Got Better ( Earthy) ](https://www.highsnobiety.com/p/nike-flyknit-bloom-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 17 Sep 2024 09:40:20 GMT*
+
+
+## Brad Pitt
 
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
@@ -6074,7 +6731,16 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
-## Bia
+## Beyoncé
+
+## [Nike's Beefed-Up Flyknit Sneakers Just Got Better ( Earthy) ](https://www.highsnobiety.com/p/nike-flyknit-bloom-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 17 Sep 2024 09:40:20 GMT*
+
+
+## Beyoncé
 
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
@@ -6155,7 +6821,16 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
-## Avantika
+## Bia
+
+## [Nike's Beefed-Up Flyknit Sneakers Just Got Better ( Earthy) ](https://www.highsnobiety.com/p/nike-flyknit-bloom-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 17 Sep 2024 09:40:20 GMT*
+
+
+## Bia
 
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
@@ -6236,7 +6911,16 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
-## Bernie Sanders
+## Avantika
+
+## [Nike's Beefed-Up Flyknit Sneakers Just Got Better ( Earthy) ](https://www.highsnobiety.com/p/nike-flyknit-bloom-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 17 Sep 2024 09:40:20 GMT*
+
+
+## Avantika
 
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
@@ -6317,7 +7001,16 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
-## Big Sean
+## Bernie Sanders
+
+## [Nike's Beefed-Up Flyknit Sneakers Just Got Better ( Earthy) ](https://www.highsnobiety.com/p/nike-flyknit-bloom-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 17 Sep 2024 09:40:20 GMT*
+
+
+## Bernie Sanders
 
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
@@ -6398,7 +7091,16 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
-## BlockBoy JB
+## Big Sean
+
+## [Nike's Beefed-Up Flyknit Sneakers Just Got Better ( Earthy) ](https://www.highsnobiety.com/p/nike-flyknit-bloom-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 17 Sep 2024 09:40:20 GMT*
+
+
+## Big Sean
 
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
@@ -6479,7 +7181,16 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
-## Biden
+## BlockBoy JB
+
+## [Nike's Beefed-Up Flyknit Sneakers Just Got Better ( Earthy) ](https://www.highsnobiety.com/p/nike-flyknit-bloom-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 17 Sep 2024 09:40:20 GMT*
+
+
+## BlockBoy JB
 
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
@@ -6560,7 +7271,16 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
-## Bieber
+## Biden
+
+## [Nike's Beefed-Up Flyknit Sneakers Just Got Better ( Earthy) ](https://www.highsnobiety.com/p/nike-flyknit-bloom-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 17 Sep 2024 09:40:20 GMT*
+
+
+## Biden
 
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
@@ -6641,7 +7361,16 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
-## Paulina Porizkov
+## Bieber
+
+## [Nike's Beefed-Up Flyknit Sneakers Just Got Better ( Earthy) ](https://www.highsnobiety.com/p/nike-flyknit-bloom-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 17 Sep 2024 09:40:20 GMT*
+
+
+## Bieber
 
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
@@ -6722,7 +7451,16 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
-## Paris Hilton
+## Paulina Porizkov
+
+## [Nike's Beefed-Up Flyknit Sneakers Just Got Better ( Earthy) ](https://www.highsnobiety.com/p/nike-flyknit-bloom-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 17 Sep 2024 09:40:20 GMT*
+
+
+## Paulina Porizkov
 
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
@@ -6803,7 +7541,16 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
-## Metro Boomin
+## Paris Hilton
+
+## [Nike's Beefed-Up Flyknit Sneakers Just Got Better ( Earthy) ](https://www.highsnobiety.com/p/nike-flyknit-bloom-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 17 Sep 2024 09:40:20 GMT*
+
+
+## Paris Hilton
 
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
@@ -6884,7 +7631,16 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
-## Meghan Markle
+## Metro Boomin
+
+## [Nike's Beefed-Up Flyknit Sneakers Just Got Better ( Earthy) ](https://www.highsnobiety.com/p/nike-flyknit-bloom-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 17 Sep 2024 09:40:20 GMT*
+
+
+## Metro Boomin
 
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
@@ -6965,7 +7721,16 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
-## Megan Thee Stallion
+## Meghan Markle
+
+## [Nike's Beefed-Up Flyknit Sneakers Just Got Better ( Earthy) ](https://www.highsnobiety.com/p/nike-flyknit-bloom-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 17 Sep 2024 09:40:20 GMT*
+
+
+## Meghan Markle
 
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
@@ -7046,7 +7811,16 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
-## Maya Rudolph
+## Megan Thee Stallion
+
+## [Nike's Beefed-Up Flyknit Sneakers Just Got Better ( Earthy) ](https://www.highsnobiety.com/p/nike-flyknit-bloom-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 17 Sep 2024 09:40:20 GMT*
+
+
+## Megan Thee Stallion
 
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
@@ -7127,7 +7901,16 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
-## Olivia Rodrigo
+## Maya Rudolph
+
+## [Nike's Beefed-Up Flyknit Sneakers Just Got Better ( Earthy) ](https://www.highsnobiety.com/p/nike-flyknit-bloom-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 17 Sep 2024 09:40:20 GMT*
+
+
+## Maya Rudolph
 
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
@@ -7208,7 +7991,16 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
-## Obama
+## Olivia Rodrigo
+
+## [Nike's Beefed-Up Flyknit Sneakers Just Got Better ( Earthy) ](https://www.highsnobiety.com/p/nike-flyknit-bloom-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 17 Sep 2024 09:40:20 GMT*
+
+
+## Olivia Rodrigo
 
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
@@ -7289,7 +8081,16 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
-## Nicki Minaj
+## Obama
+
+## [Nike's Beefed-Up Flyknit Sneakers Just Got Better ( Earthy) ](https://www.highsnobiety.com/p/nike-flyknit-bloom-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 17 Sep 2024 09:40:20 GMT*
+
+
+## Obama
 
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
@@ -7370,7 +8171,16 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
-## MrBeast
+## Nicki Minaj
+
+## [Nike's Beefed-Up Flyknit Sneakers Just Got Better ( Earthy) ](https://www.highsnobiety.com/p/nike-flyknit-bloom-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 17 Sep 2024 09:40:20 GMT*
+
+
+## Nicki Minaj
 
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
@@ -7449,5 +8259,23 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Tue, 17 Sep 2024 09:00:00 GMT*
+
+
+## MrBeast
+
+## [Nike's Beefed-Up Flyknit Sneakers Just Got Better ( Earthy) ](https://www.highsnobiety.com/p/nike-flyknit-bloom-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 17 Sep 2024 09:40:20 GMT*
+
+
+## MrBeast
+
+## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Mon, 16 Sep 2024 10:15:00 GMT*
 
 
