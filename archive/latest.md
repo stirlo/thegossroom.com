@@ -1,15 +1,6 @@
 # Latest Stories
 ## Tim Cook
 
-## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 16 Sep 2024 10:00:00 GMT*
-
-
-## Tim Cook
-
 ## [Nike's Classic Soccer Sneaker Gets Another Life as a Stylish "Skate Shoe"](https://www.highsnobiety.com/p/nike-gato-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -82,20 +73,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Tim Cook
 
-## [Nensi Dojaka  Calvin Klein's Chic Lingerie Is Tailored to Perfection](https://www.highsnobiety.com/p/nensi-dojaka-calvin-klein-ss25/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 16 Sep 2024 09:35:10 GMT*
-
-
-## Taylor Swift
-
 ## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 16 Sep 2024 10:00:00 GMT*
+*Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
 ## Taylor Swift
@@ -172,20 +154,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Taylor Swift
 
-## [Nensi Dojaka  Calvin Klein's Chic Lingerie Is Tailored to Perfection](https://www.highsnobiety.com/p/nensi-dojaka-calvin-klein-ss25/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 16 Sep 2024 09:35:10 GMT*
-
-
-## Tom Brady
-
 ## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 16 Sep 2024 10:00:00 GMT*
+*Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
 ## Tom Brady
@@ -262,20 +235,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Tom Brady
 
-## [Nensi Dojaka  Calvin Klein's Chic Lingerie Is Tailored to Perfection](https://www.highsnobiety.com/p/nensi-dojaka-calvin-klein-ss25/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 16 Sep 2024 09:35:10 GMT*
-
-
-## Tina Fey
-
 ## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 16 Sep 2024 10:00:00 GMT*
+*Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
 ## Tina Fey
@@ -352,20 +316,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Tina Fey
 
-## [Nensi Dojaka  Calvin Klein's Chic Lingerie Is Tailored to Perfection](https://www.highsnobiety.com/p/nensi-dojaka-calvin-klein-ss25/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 16 Sep 2024 09:35:10 GMT*
-
-
-## Steven Yuen
-
 ## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 16 Sep 2024 10:00:00 GMT*
+*Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
 ## Steven Yuen
@@ -442,20 +397,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Steven Yuen
 
-## [Nensi Dojaka  Calvin Klein's Chic Lingerie Is Tailored to Perfection](https://www.highsnobiety.com/p/nensi-dojaka-calvin-klein-ss25/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 16 Sep 2024 09:35:10 GMT*
-
-
-## Sommer Ray
-
 ## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 16 Sep 2024 10:00:00 GMT*
+*Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
 ## Sommer Ray
@@ -532,20 +478,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Sommer Ray
 
-## [Nensi Dojaka  Calvin Klein's Chic Lingerie Is Tailored to Perfection](https://www.highsnobiety.com/p/nensi-dojaka-calvin-klein-ss25/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 16 Sep 2024 09:35:10 GMT*
-
-
-## Sza
-
 ## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 16 Sep 2024 10:00:00 GMT*
+*Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
 ## Sza
@@ -622,20 +559,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Sza
 
-## [Nensi Dojaka  Calvin Klein's Chic Lingerie Is Tailored to Perfection](https://www.highsnobiety.com/p/nensi-dojaka-calvin-klein-ss25/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 16 Sep 2024 09:35:10 GMT*
-
-
-## Sydney Sweeney
-
 ## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 16 Sep 2024 10:00:00 GMT*
+*Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
 ## Sydney Sweeney
@@ -712,20 +640,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Sydney Sweeney
 
-## [Nensi Dojaka  Calvin Klein's Chic Lingerie Is Tailored to Perfection](https://www.highsnobiety.com/p/nensi-dojaka-calvin-klein-ss25/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 16 Sep 2024 09:35:10 GMT*
-
-
-## Walton Goggins
-
 ## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 16 Sep 2024 10:00:00 GMT*
+*Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
 ## Walton Goggins
@@ -802,20 +721,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Walton Goggins
 
-## [Nensi Dojaka  Calvin Klein's Chic Lingerie Is Tailored to Perfection](https://www.highsnobiety.com/p/nensi-dojaka-calvin-klein-ss25/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 16 Sep 2024 09:35:10 GMT*
-
-
-## Tom Holland
-
 ## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 16 Sep 2024 10:00:00 GMT*
+*Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
 ## Tom Holland
@@ -892,20 +802,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Tom Holland
 
-## [Nensi Dojaka  Calvin Klein's Chic Lingerie Is Tailored to Perfection](https://www.highsnobiety.com/p/nensi-dojaka-calvin-klein-ss25/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 16 Sep 2024 09:35:10 GMT*
-
-
-## Gucci Mane
-
 ## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 16 Sep 2024 10:00:00 GMT*
+*Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
 ## Gucci Mane
@@ -982,20 +883,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Gucci Mane
 
-## [Nensi Dojaka  Calvin Klein's Chic Lingerie Is Tailored to Perfection](https://www.highsnobiety.com/p/nensi-dojaka-calvin-klein-ss25/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 16 Sep 2024 09:35:10 GMT*
-
-
-## Harry Styles
-
 ## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 16 Sep 2024 10:00:00 GMT*
+*Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
 ## Harry Styles
@@ -1072,20 +964,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Harry Styles
 
-## [Nensi Dojaka  Calvin Klein's Chic Lingerie Is Tailored to Perfection](https://www.highsnobiety.com/p/nensi-dojaka-calvin-klein-ss25/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 16 Sep 2024 09:35:10 GMT*
-
-
-## Jake Paul
-
 ## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 16 Sep 2024 10:00:00 GMT*
+*Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
 ## Jake Paul
@@ -1162,20 +1045,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Jake Paul
 
-## [Nensi Dojaka  Calvin Klein's Chic Lingerie Is Tailored to Perfection](https://www.highsnobiety.com/p/nensi-dojaka-calvin-klein-ss25/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 16 Sep 2024 09:35:10 GMT*
-
-
-## Jameela Jamil
-
 ## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 16 Sep 2024 10:00:00 GMT*
+*Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
 ## Jameela Jamil
@@ -1252,20 +1126,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Jameela Jamil
 
-## [Nensi Dojaka  Calvin Klein's Chic Lingerie Is Tailored to Perfection](https://www.highsnobiety.com/p/nensi-dojaka-calvin-klein-ss25/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 16 Sep 2024 09:35:10 GMT*
-
-
-## Elon Musk
-
 ## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 16 Sep 2024 10:00:00 GMT*
+*Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
 ## Elon Musk
@@ -1342,20 +1207,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Elon Musk
 
-## [Nensi Dojaka  Calvin Klein's Chic Lingerie Is Tailored to Perfection](https://www.highsnobiety.com/p/nensi-dojaka-calvin-klein-ss25/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 16 Sep 2024 09:35:10 GMT*
-
-
-## Gabrielle Union
-
 ## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 16 Sep 2024 10:00:00 GMT*
+*Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
 ## Gabrielle Union
@@ -1432,20 +1288,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Gabrielle Union
 
-## [Nensi Dojaka  Calvin Klein's Chic Lingerie Is Tailored to Perfection](https://www.highsnobiety.com/p/nensi-dojaka-calvin-klein-ss25/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 16 Sep 2024 09:35:10 GMT*
-
-
-## Giancarlo Esposito
-
 ## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 16 Sep 2024 10:00:00 GMT*
+*Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
 ## Giancarlo Esposito
@@ -1522,20 +1369,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Giancarlo Esposito
 
-## [Nensi Dojaka  Calvin Klein's Chic Lingerie Is Tailored to Perfection](https://www.highsnobiety.com/p/nensi-dojaka-calvin-klein-ss25/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 16 Sep 2024 09:35:10 GMT*
-
-
-## Gillian Jacobs
-
 ## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 16 Sep 2024 10:00:00 GMT*
+*Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
 ## Gillian Jacobs
@@ -1612,20 +1450,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Gillian Jacobs
 
-## [Nensi Dojaka  Calvin Klein's Chic Lingerie Is Tailored to Perfection](https://www.highsnobiety.com/p/nensi-dojaka-calvin-klein-ss25/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 16 Sep 2024 09:35:10 GMT*
-
-
-## Jason Mantzoukas
-
 ## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 16 Sep 2024 10:00:00 GMT*
+*Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
 ## Jason Mantzoukas
@@ -1702,20 +1531,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Jason Mantzoukas
 
-## [Nensi Dojaka  Calvin Klein's Chic Lingerie Is Tailored to Perfection](https://www.highsnobiety.com/p/nensi-dojaka-calvin-klein-ss25/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 16 Sep 2024 09:35:10 GMT*
-
-
-## JB Smoove
-
 ## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 16 Sep 2024 10:00:00 GMT*
+*Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
 ## JB Smoove
@@ -1792,20 +1612,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## JB Smoove
 
-## [Nensi Dojaka  Calvin Klein's Chic Lingerie Is Tailored to Perfection](https://www.highsnobiety.com/p/nensi-dojaka-calvin-klein-ss25/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 16 Sep 2024 09:35:10 GMT*
-
-
-## Madison Pettis
-
 ## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 16 Sep 2024 10:00:00 GMT*
+*Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
 ## Madison Pettis
@@ -1882,20 +1693,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Madison Pettis
 
-## [Nensi Dojaka  Calvin Klein's Chic Lingerie Is Tailored to Perfection](https://www.highsnobiety.com/p/nensi-dojaka-calvin-klein-ss25/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 16 Sep 2024 09:35:10 GMT*
-
-
-## Austin Butler
-
 ## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 16 Sep 2024 10:00:00 GMT*
+*Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
 ## Austin Butler
@@ -1972,20 +1774,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Austin Butler
 
-## [Nensi Dojaka  Calvin Klein's Chic Lingerie Is Tailored to Perfection](https://www.highsnobiety.com/p/nensi-dojaka-calvin-klein-ss25/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 16 Sep 2024 09:35:10 GMT*
-
-
-## Mark Zuckerberg
-
 ## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 16 Sep 2024 10:00:00 GMT*
+*Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
 ## Mark Zuckerberg
@@ -2062,20 +1855,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Mark Zuckerberg
 
-## [Nensi Dojaka  Calvin Klein's Chic Lingerie Is Tailored to Perfection](https://www.highsnobiety.com/p/nensi-dojaka-calvin-klein-ss25/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 16 Sep 2024 09:35:10 GMT*
-
-
-## Ariana Grande
-
 ## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 16 Sep 2024 10:00:00 GMT*
+*Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
 ## Ariana Grande
@@ -2152,20 +1936,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Ariana Grande
 
-## [Nensi Dojaka  Calvin Klein's Chic Lingerie Is Tailored to Perfection](https://www.highsnobiety.com/p/nensi-dojaka-calvin-klein-ss25/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 16 Sep 2024 09:35:10 GMT*
-
-
-## Livvy Dunne
-
 ## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 16 Sep 2024 10:00:00 GMT*
+*Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
 ## Livvy Dunne
@@ -2242,20 +2017,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Livvy Dunne
 
-## [Nensi Dojaka  Calvin Klein's Chic Lingerie Is Tailored to Perfection](https://www.highsnobiety.com/p/nensi-dojaka-calvin-klein-ss25/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 16 Sep 2024 09:35:10 GMT*
-
-
-## Ali Wong
-
 ## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 16 Sep 2024 10:00:00 GMT*
+*Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
 ## Ali Wong
@@ -2332,20 +2098,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Ali Wong
 
-## [Nensi Dojaka  Calvin Klein's Chic Lingerie Is Tailored to Perfection](https://www.highsnobiety.com/p/nensi-dojaka-calvin-klein-ss25/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 16 Sep 2024 09:35:10 GMT*
-
-
-## Lizzo
-
 ## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 16 Sep 2024 10:00:00 GMT*
+*Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
 ## Lizzo
@@ -2422,20 +2179,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Lizzo
 
-## [Nensi Dojaka  Calvin Klein's Chic Lingerie Is Tailored to Perfection](https://www.highsnobiety.com/p/nensi-dojaka-calvin-klein-ss25/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 16 Sep 2024 09:35:10 GMT*
-
-
-## Alison Brie
-
 ## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 16 Sep 2024 10:00:00 GMT*
+*Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
 ## Alison Brie
@@ -2512,20 +2260,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Alison Brie
 
-## [Nensi Dojaka  Calvin Klein's Chic Lingerie Is Tailored to Perfection](https://www.highsnobiety.com/p/nensi-dojaka-calvin-klein-ss25/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 16 Sep 2024 09:35:10 GMT*
-
-
-## Lil Wayne
-
 ## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 16 Sep 2024 10:00:00 GMT*
+*Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
 ## Lil Wayne
@@ -2602,20 +2341,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Lil Wayne
 
-## [Nensi Dojaka  Calvin Klein's Chic Lingerie Is Tailored to Perfection](https://www.highsnobiety.com/p/nensi-dojaka-calvin-klein-ss25/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 16 Sep 2024 09:35:10 GMT*
-
-
-## Adele
-
 ## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 16 Sep 2024 10:00:00 GMT*
+*Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
 ## Adele
@@ -2692,20 +2422,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Adele
 
-## [Nensi Dojaka  Calvin Klein's Chic Lingerie Is Tailored to Perfection](https://www.highsnobiety.com/p/nensi-dojaka-calvin-klein-ss25/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 16 Sep 2024 09:35:10 GMT*
-
-
-## Lindsay Lohan
-
 ## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 16 Sep 2024 10:00:00 GMT*
+*Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
 ## Lindsay Lohan
@@ -2782,20 +2503,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Lindsay Lohan
 
-## [Nensi Dojaka  Calvin Klein's Chic Lingerie Is Tailored to Perfection](https://www.highsnobiety.com/p/nensi-dojaka-calvin-klein-ss25/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 16 Sep 2024 09:35:10 GMT*
-
-
-## Addison Rae
-
 ## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 16 Sep 2024 10:00:00 GMT*
+*Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
 ## Addison Rae
@@ -2872,20 +2584,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Addison Rae
 
-## [Nensi Dojaka  Calvin Klein's Chic Lingerie Is Tailored to Perfection](https://www.highsnobiety.com/p/nensi-dojaka-calvin-klein-ss25/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 16 Sep 2024 09:35:10 GMT*
-
-
-## Latto
-
 ## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 16 Sep 2024 10:00:00 GMT*
+*Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
 ## Latto
@@ -2962,20 +2665,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Latto
 
-## [Nensi Dojaka  Calvin Klein's Chic Lingerie Is Tailored to Perfection](https://www.highsnobiety.com/p/nensi-dojaka-calvin-klein-ss25/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 16 Sep 2024 09:35:10 GMT*
-
-
-## Aaron Paul
-
 ## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 16 Sep 2024 10:00:00 GMT*
+*Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
 ## Aaron Paul
@@ -3052,20 +2746,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Aaron Paul
 
-## [Nensi Dojaka  Calvin Klein's Chic Lingerie Is Tailored to Perfection](https://www.highsnobiety.com/p/nensi-dojaka-calvin-klein-ss25/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 16 Sep 2024 09:35:10 GMT*
-
-
-## LeBron James
-
 ## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 16 Sep 2024 10:00:00 GMT*
+*Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
 ## LeBron James
@@ -3142,20 +2827,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## LeBron James
 
-## [Nensi Dojaka  Calvin Klein's Chic Lingerie Is Tailored to Perfection](https://www.highsnobiety.com/p/nensi-dojaka-calvin-klein-ss25/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 16 Sep 2024 09:35:10 GMT*
-
-
-## 50 Cent
-
 ## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 16 Sep 2024 10:00:00 GMT*
+*Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
 ## 50 Cent
@@ -3232,20 +2908,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## 50 Cent
 
-## [Nensi Dojaka  Calvin Klein's Chic Lingerie Is Tailored to Perfection](https://www.highsnobiety.com/p/nensi-dojaka-calvin-klein-ss25/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 16 Sep 2024 09:35:10 GMT*
-
-
-## Kesha
-
 ## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 16 Sep 2024 10:00:00 GMT*
+*Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
 ## Kesha
@@ -3322,20 +2989,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Kesha
 
-## [Nensi Dojaka  Calvin Klein's Chic Lingerie Is Tailored to Perfection](https://www.highsnobiety.com/p/nensi-dojaka-calvin-klein-ss25/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 16 Sep 2024 09:35:10 GMT*
-
-
-## 21 Savage
-
 ## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 16 Sep 2024 10:00:00 GMT*
+*Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
 ## 21 Savage
@@ -3412,20 +3070,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## 21 Savage
 
-## [Nensi Dojaka  Calvin Klein's Chic Lingerie Is Tailored to Perfection](https://www.highsnobiety.com/p/nensi-dojaka-calvin-klein-ss25/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 16 Sep 2024 09:35:10 GMT*
-
-
-## Larry David
-
 ## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 16 Sep 2024 10:00:00 GMT*
+*Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
 ## Larry David
@@ -3502,20 +3151,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Larry David
 
-## [Nensi Dojaka  Calvin Klein's Chic Lingerie Is Tailored to Perfection](https://www.highsnobiety.com/p/nensi-dojaka-calvin-klein-ss25/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 16 Sep 2024 09:35:10 GMT*
-
-
-## Seth Rogan
-
 ## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 16 Sep 2024 10:00:00 GMT*
+*Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
 ## Seth Rogan
@@ -3592,20 +3232,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Seth Rogan
 
-## [Nensi Dojaka  Calvin Klein's Chic Lingerie Is Tailored to Perfection](https://www.highsnobiety.com/p/nensi-dojaka-calvin-klein-ss25/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 16 Sep 2024 09:35:10 GMT*
-
-
-## Simone Biles
-
 ## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 16 Sep 2024 10:00:00 GMT*
+*Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
 ## Simone Biles
@@ -3682,20 +3313,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Simone Biles
 
-## [Nensi Dojaka  Calvin Klein's Chic Lingerie Is Tailored to Perfection](https://www.highsnobiety.com/p/nensi-dojaka-calvin-klein-ss25/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 16 Sep 2024 09:35:10 GMT*
-
-
-## Pete Davidson
-
 ## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 16 Sep 2024 10:00:00 GMT*
+*Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
 ## Pete Davidson
@@ -3772,20 +3394,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Pete Davidson
 
-## [Nensi Dojaka  Calvin Klein's Chic Lingerie Is Tailored to Perfection](https://www.highsnobiety.com/p/nensi-dojaka-calvin-klein-ss25/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 16 Sep 2024 09:35:10 GMT*
-
-
-## Prince Harry
-
 ## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 16 Sep 2024 10:00:00 GMT*
+*Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
 ## Prince Harry
@@ -3862,20 +3475,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Prince Harry
 
-## [Nensi Dojaka  Calvin Klein's Chic Lingerie Is Tailored to Perfection](https://www.highsnobiety.com/p/nensi-dojaka-calvin-klein-ss25/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 16 Sep 2024 09:35:10 GMT*
-
-
-## Princess of Wales
-
 ## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 16 Sep 2024 10:00:00 GMT*
+*Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
 ## Princess of Wales
@@ -3952,20 +3556,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Princess of Wales
 
-## [Nensi Dojaka  Calvin Klein's Chic Lingerie Is Tailored to Perfection](https://www.highsnobiety.com/p/nensi-dojaka-calvin-klein-ss25/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 16 Sep 2024 09:35:10 GMT*
-
-
-## Rachel McAdams
-
 ## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 16 Sep 2024 10:00:00 GMT*
+*Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
 ## Rachel McAdams
@@ -4042,20 +3637,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Rachel McAdams
 
-## [Nensi Dojaka  Calvin Klein's Chic Lingerie Is Tailored to Perfection](https://www.highsnobiety.com/p/nensi-dojaka-calvin-klein-ss25/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 16 Sep 2024 09:35:10 GMT*
-
-
-## Reneé Rapp
-
 ## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 16 Sep 2024 10:00:00 GMT*
+*Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
 ## Reneé Rapp
@@ -4132,20 +3718,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Reneé Rapp
 
-## [Nensi Dojaka  Calvin Klein's Chic Lingerie Is Tailored to Perfection](https://www.highsnobiety.com/p/nensi-dojaka-calvin-klein-ss25/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 16 Sep 2024 09:35:10 GMT*
-
-
-## Rick Ross
-
 ## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 16 Sep 2024 10:00:00 GMT*
+*Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
 ## Rick Ross
@@ -4222,20 +3799,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Rick Ross
 
-## [Nensi Dojaka  Calvin Klein's Chic Lingerie Is Tailored to Perfection](https://www.highsnobiety.com/p/nensi-dojaka-calvin-klein-ss25/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 16 Sep 2024 09:35:10 GMT*
-
-
-## Sam Ashgari
-
 ## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 16 Sep 2024 10:00:00 GMT*
+*Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
 ## Sam Ashgari
@@ -4312,20 +3880,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Sam Ashgari
 
-## [Nensi Dojaka  Calvin Klein's Chic Lingerie Is Tailored to Perfection](https://www.highsnobiety.com/p/nensi-dojaka-calvin-klein-ss25/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 16 Sep 2024 09:35:10 GMT*
-
-
-## Sandra Oh
-
 ## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 16 Sep 2024 10:00:00 GMT*
+*Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
 ## Sandra Oh
@@ -4402,20 +3961,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Sandra Oh
 
-## [Nensi Dojaka  Calvin Klein's Chic Lingerie Is Tailored to Perfection](https://www.highsnobiety.com/p/nensi-dojaka-calvin-klein-ss25/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 16 Sep 2024 09:35:10 GMT*
-
-
-## Donald Trump
-
 ## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 16 Sep 2024 10:00:00 GMT*
+*Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
 ## Donald Trump
@@ -4492,20 +4042,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Donald Trump
 
-## [Nensi Dojaka  Calvin Klein's Chic Lingerie Is Tailored to Perfection](https://www.highsnobiety.com/p/nensi-dojaka-calvin-klein-ss25/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 16 Sep 2024 09:35:10 GMT*
-
-
-## Diddy
-
 ## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 16 Sep 2024 10:00:00 GMT*
+*Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
 ## Diddy
@@ -4582,20 +4123,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Diddy
 
-## [Nensi Dojaka  Calvin Klein's Chic Lingerie Is Tailored to Perfection](https://www.highsnobiety.com/p/nensi-dojaka-calvin-klein-ss25/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 16 Sep 2024 09:35:10 GMT*
-
-
-## City Girls
-
 ## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 16 Sep 2024 10:00:00 GMT*
+*Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
 ## City Girls
@@ -4672,20 +4204,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## City Girls
 
-## [Nensi Dojaka  Calvin Klein's Chic Lingerie Is Tailored to Perfection](https://www.highsnobiety.com/p/nensi-dojaka-calvin-klein-ss25/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 16 Sep 2024 09:35:10 GMT*
-
-
-## Chloe Bailey
-
 ## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 16 Sep 2024 10:00:00 GMT*
+*Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
 ## Chloe Bailey
@@ -4762,20 +4285,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Chloe Bailey
 
-## [Nensi Dojaka  Calvin Klein's Chic Lingerie Is Tailored to Perfection](https://www.highsnobiety.com/p/nensi-dojaka-calvin-klein-ss25/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 16 Sep 2024 09:35:10 GMT*
-
-
-## Charli D Amelio
-
 ## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 16 Sep 2024 10:00:00 GMT*
+*Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
 ## Charli D Amelio
@@ -4852,20 +4366,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Charli D Amelio
 
-## [Nensi Dojaka  Calvin Klein's Chic Lingerie Is Tailored to Perfection](https://www.highsnobiety.com/p/nensi-dojaka-calvin-klein-ss25/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 16 Sep 2024 09:35:10 GMT*
-
-
-## Cardi B
-
 ## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 16 Sep 2024 10:00:00 GMT*
+*Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
 ## Cardi B
@@ -4942,20 +4447,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Cardi B
 
-## [Nensi Dojaka  Calvin Klein's Chic Lingerie Is Tailored to Perfection](https://www.highsnobiety.com/p/nensi-dojaka-calvin-klein-ss25/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 16 Sep 2024 09:35:10 GMT*
-
-
-## Bryan Cranston
-
 ## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 16 Sep 2024 10:00:00 GMT*
+*Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
 ## Bryan Cranston
@@ -5032,20 +4528,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Bryan Cranston
 
-## [Nensi Dojaka  Calvin Klein's Chic Lingerie Is Tailored to Perfection](https://www.highsnobiety.com/p/nensi-dojaka-calvin-klein-ss25/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 16 Sep 2024 09:35:10 GMT*
-
-
-## Brielle Biermann
-
 ## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 16 Sep 2024 10:00:00 GMT*
+*Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
 ## Brielle Biermann
@@ -5122,20 +4609,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Brielle Biermann
 
-## [Nensi Dojaka  Calvin Klein's Chic Lingerie Is Tailored to Perfection](https://www.highsnobiety.com/p/nensi-dojaka-calvin-klein-ss25/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 16 Sep 2024 09:35:10 GMT*
-
-
-## Dua Lipa
-
 ## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 16 Sep 2024 10:00:00 GMT*
+*Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
 ## Dua Lipa
@@ -5212,20 +4690,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Dua Lipa
 
-## [Nensi Dojaka  Calvin Klein's Chic Lingerie Is Tailored to Perfection](https://www.highsnobiety.com/p/nensi-dojaka-calvin-klein-ss25/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 16 Sep 2024 09:35:10 GMT*
-
-
-## Drake
-
 ## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 16 Sep 2024 10:00:00 GMT*
+*Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
 ## Drake
@@ -5302,20 +4771,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Drake
 
-## [Nensi Dojaka  Calvin Klein's Chic Lingerie Is Tailored to Perfection](https://www.highsnobiety.com/p/nensi-dojaka-calvin-klein-ss25/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 16 Sep 2024 09:35:10 GMT*
-
-
-## Jenner
-
 ## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 16 Sep 2024 10:00:00 GMT*
+*Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
 ## Jenner
@@ -5392,20 +4852,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Jenner
 
-## [Nensi Dojaka  Calvin Klein's Chic Lingerie Is Tailored to Perfection](https://www.highsnobiety.com/p/nensi-dojaka-calvin-klein-ss25/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 16 Sep 2024 09:35:10 GMT*
-
-
-## J. Cole
-
 ## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 16 Sep 2024 10:00:00 GMT*
+*Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
 ## J. Cole
@@ -5482,20 +4933,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## J. Cole
 
-## [Nensi Dojaka  Calvin Klein's Chic Lingerie Is Tailored to Perfection](https://www.highsnobiety.com/p/nensi-dojaka-calvin-klein-ss25/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 16 Sep 2024 09:35:10 GMT*
-
-
-## Jerrod Carmichael
-
 ## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 16 Sep 2024 10:00:00 GMT*
+*Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
 ## Jerrod Carmichael
@@ -5572,20 +5014,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Jerrod Carmichael
 
-## [Nensi Dojaka  Calvin Klein's Chic Lingerie Is Tailored to Perfection](https://www.highsnobiety.com/p/nensi-dojaka-calvin-klein-ss25/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 16 Sep 2024 09:35:10 GMT*
-
-
-## Jennifer Lawrence
-
 ## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 16 Sep 2024 10:00:00 GMT*
+*Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
 ## Jennifer Lawrence
@@ -5662,20 +5095,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Jennifer Lawrence
 
-## [Nensi Dojaka  Calvin Klein's Chic Lingerie Is Tailored to Perfection](https://www.highsnobiety.com/p/nensi-dojaka-calvin-klein-ss25/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 16 Sep 2024 09:35:10 GMT*
-
-
-## Joe Biden
-
 ## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 16 Sep 2024 10:00:00 GMT*
+*Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
 ## Joe Biden
@@ -5752,20 +5176,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Joe Biden
 
-## [Nensi Dojaka  Calvin Klein's Chic Lingerie Is Tailored to Perfection](https://www.highsnobiety.com/p/nensi-dojaka-calvin-klein-ss25/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 16 Sep 2024 09:35:10 GMT*
-
-
-## J.K. Simmons
-
 ## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 16 Sep 2024 10:00:00 GMT*
+*Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
 ## J.K. Simmons
@@ -5842,20 +5257,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## J.K. Simmons
 
-## [Nensi Dojaka  Calvin Klein's Chic Lingerie Is Tailored to Perfection](https://www.highsnobiety.com/p/nensi-dojaka-calvin-klein-ss25/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 16 Sep 2024 09:35:10 GMT*
-
-
-## Kamala Harris
-
 ## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 16 Sep 2024 10:00:00 GMT*
+*Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
 ## Kamala Harris
@@ -5932,20 +5338,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Kamala Harris
 
-## [Nensi Dojaka  Calvin Klein's Chic Lingerie Is Tailored to Perfection](https://www.highsnobiety.com/p/nensi-dojaka-calvin-klein-ss25/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 16 Sep 2024 09:35:10 GMT*
-
-
-## John C Reilly
-
 ## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 16 Sep 2024 10:00:00 GMT*
+*Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
 ## John C Reilly
@@ -6022,20 +5419,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## John C Reilly
 
-## [Nensi Dojaka  Calvin Klein's Chic Lingerie Is Tailored to Perfection](https://www.highsnobiety.com/p/nensi-dojaka-calvin-klein-ss25/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 16 Sep 2024 09:35:10 GMT*
-
-
-## Kardashian
-
 ## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 16 Sep 2024 10:00:00 GMT*
+*Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
 ## Kardashian
@@ -6112,20 +5500,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Kardashian
 
-## [Nensi Dojaka  Calvin Klein's Chic Lingerie Is Tailored to Perfection](https://www.highsnobiety.com/p/nensi-dojaka-calvin-klein-ss25/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 16 Sep 2024 09:35:10 GMT*
-
-
-## Kanye
-
 ## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 16 Sep 2024 10:00:00 GMT*
+*Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
 ## Kanye
@@ -6202,20 +5581,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Kanye
 
-## [Nensi Dojaka  Calvin Klein's Chic Lingerie Is Tailored to Perfection](https://www.highsnobiety.com/p/nensi-dojaka-calvin-klein-ss25/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 16 Sep 2024 09:35:10 GMT*
-
-
-## Zendaya
-
 ## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 16 Sep 2024 10:00:00 GMT*
+*Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
 ## Zendaya
@@ -6292,20 +5662,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Zendaya
 
-## [Nensi Dojaka  Calvin Klein's Chic Lingerie Is Tailored to Perfection](https://www.highsnobiety.com/p/nensi-dojaka-calvin-klein-ss25/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 16 Sep 2024 09:35:10 GMT*
-
-
-## Will Ferrell
-
 ## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 16 Sep 2024 10:00:00 GMT*
+*Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
 ## Will Ferrell
@@ -6382,20 +5743,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Will Ferrell
 
-## [Nensi Dojaka  Calvin Klein's Chic Lingerie Is Tailored to Perfection](https://www.highsnobiety.com/p/nensi-dojaka-calvin-klein-ss25/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 16 Sep 2024 09:35:10 GMT*
-
-
-## Zazie Beetz
-
 ## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 16 Sep 2024 10:00:00 GMT*
+*Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
 ## Zazie Beetz
@@ -6472,20 +5824,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Zazie Beetz
 
-## [Nensi Dojaka  Calvin Klein's Chic Lingerie Is Tailored to Perfection](https://www.highsnobiety.com/p/nensi-dojaka-calvin-klein-ss25/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 16 Sep 2024 09:35:10 GMT*
-
-
-## Bob Odenkirk
-
 ## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 16 Sep 2024 10:00:00 GMT*
+*Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
 ## Bob Odenkirk
@@ -6562,20 +5905,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Bob Odenkirk
 
-## [Nensi Dojaka  Calvin Klein's Chic Lingerie Is Tailored to Perfection](https://www.highsnobiety.com/p/nensi-dojaka-calvin-klein-ss25/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 16 Sep 2024 09:35:10 GMT*
-
-
-## Brad Pitt
-
 ## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 16 Sep 2024 10:00:00 GMT*
+*Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
 ## Brad Pitt
@@ -6652,20 +5986,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Brad Pitt
 
-## [Nensi Dojaka  Calvin Klein's Chic Lingerie Is Tailored to Perfection](https://www.highsnobiety.com/p/nensi-dojaka-calvin-klein-ss25/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 16 Sep 2024 09:35:10 GMT*
-
-
-## Beyoncé
-
 ## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 16 Sep 2024 10:00:00 GMT*
+*Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
 ## Beyoncé
@@ -6742,20 +6067,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Beyoncé
 
-## [Nensi Dojaka  Calvin Klein's Chic Lingerie Is Tailored to Perfection](https://www.highsnobiety.com/p/nensi-dojaka-calvin-klein-ss25/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 16 Sep 2024 09:35:10 GMT*
-
-
-## Bia
-
 ## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 16 Sep 2024 10:00:00 GMT*
+*Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
 ## Bia
@@ -6832,20 +6148,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Bia
 
-## [Nensi Dojaka  Calvin Klein's Chic Lingerie Is Tailored to Perfection](https://www.highsnobiety.com/p/nensi-dojaka-calvin-klein-ss25/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 16 Sep 2024 09:35:10 GMT*
-
-
-## Avantika
-
 ## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 16 Sep 2024 10:00:00 GMT*
+*Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
 ## Avantika
@@ -6922,20 +6229,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Avantika
 
-## [Nensi Dojaka  Calvin Klein's Chic Lingerie Is Tailored to Perfection](https://www.highsnobiety.com/p/nensi-dojaka-calvin-klein-ss25/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 16 Sep 2024 09:35:10 GMT*
-
-
-## Bernie Sanders
-
 ## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 16 Sep 2024 10:00:00 GMT*
+*Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
 ## Bernie Sanders
@@ -7012,20 +6310,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Bernie Sanders
 
-## [Nensi Dojaka  Calvin Klein's Chic Lingerie Is Tailored to Perfection](https://www.highsnobiety.com/p/nensi-dojaka-calvin-klein-ss25/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 16 Sep 2024 09:35:10 GMT*
-
-
-## Big Sean
-
 ## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 16 Sep 2024 10:00:00 GMT*
+*Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
 ## Big Sean
@@ -7102,20 +6391,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Big Sean
 
-## [Nensi Dojaka  Calvin Klein's Chic Lingerie Is Tailored to Perfection](https://www.highsnobiety.com/p/nensi-dojaka-calvin-klein-ss25/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 16 Sep 2024 09:35:10 GMT*
-
-
-## BlockBoy JB
-
 ## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 16 Sep 2024 10:00:00 GMT*
+*Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
 ## BlockBoy JB
@@ -7192,20 +6472,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## BlockBoy JB
 
-## [Nensi Dojaka  Calvin Klein's Chic Lingerie Is Tailored to Perfection](https://www.highsnobiety.com/p/nensi-dojaka-calvin-klein-ss25/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 16 Sep 2024 09:35:10 GMT*
-
-
-## Biden
-
 ## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 16 Sep 2024 10:00:00 GMT*
+*Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
 ## Biden
@@ -7282,20 +6553,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Biden
 
-## [Nensi Dojaka  Calvin Klein's Chic Lingerie Is Tailored to Perfection](https://www.highsnobiety.com/p/nensi-dojaka-calvin-klein-ss25/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 16 Sep 2024 09:35:10 GMT*
-
-
-## Bieber
-
 ## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 16 Sep 2024 10:00:00 GMT*
+*Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
 ## Bieber
@@ -7372,20 +6634,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Bieber
 
-## [Nensi Dojaka  Calvin Klein's Chic Lingerie Is Tailored to Perfection](https://www.highsnobiety.com/p/nensi-dojaka-calvin-klein-ss25/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 16 Sep 2024 09:35:10 GMT*
-
-
-## Paulina Porizkov
-
 ## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 16 Sep 2024 10:00:00 GMT*
+*Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
 ## Paulina Porizkov
@@ -7462,20 +6715,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Paulina Porizkov
 
-## [Nensi Dojaka  Calvin Klein's Chic Lingerie Is Tailored to Perfection](https://www.highsnobiety.com/p/nensi-dojaka-calvin-klein-ss25/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 16 Sep 2024 09:35:10 GMT*
-
-
-## Paris Hilton
-
 ## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 16 Sep 2024 10:00:00 GMT*
+*Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
 ## Paris Hilton
@@ -7552,20 +6796,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Paris Hilton
 
-## [Nensi Dojaka  Calvin Klein's Chic Lingerie Is Tailored to Perfection](https://www.highsnobiety.com/p/nensi-dojaka-calvin-klein-ss25/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 16 Sep 2024 09:35:10 GMT*
-
-
-## Metro Boomin
-
 ## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 16 Sep 2024 10:00:00 GMT*
+*Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
 ## Metro Boomin
@@ -7642,20 +6877,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Metro Boomin
 
-## [Nensi Dojaka  Calvin Klein's Chic Lingerie Is Tailored to Perfection](https://www.highsnobiety.com/p/nensi-dojaka-calvin-klein-ss25/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 16 Sep 2024 09:35:10 GMT*
-
-
-## Meghan Markle
-
 ## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 16 Sep 2024 10:00:00 GMT*
+*Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
 ## Meghan Markle
@@ -7732,20 +6958,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Meghan Markle
 
-## [Nensi Dojaka  Calvin Klein's Chic Lingerie Is Tailored to Perfection](https://www.highsnobiety.com/p/nensi-dojaka-calvin-klein-ss25/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 16 Sep 2024 09:35:10 GMT*
-
-
-## Megan Thee Stallion
-
 ## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 16 Sep 2024 10:00:00 GMT*
+*Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
 ## Megan Thee Stallion
@@ -7822,20 +7039,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Megan Thee Stallion
 
-## [Nensi Dojaka  Calvin Klein's Chic Lingerie Is Tailored to Perfection](https://www.highsnobiety.com/p/nensi-dojaka-calvin-klein-ss25/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 16 Sep 2024 09:35:10 GMT*
-
-
-## Maya Rudolph
-
 ## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 16 Sep 2024 10:00:00 GMT*
+*Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
 ## Maya Rudolph
@@ -7912,20 +7120,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Maya Rudolph
 
-## [Nensi Dojaka  Calvin Klein's Chic Lingerie Is Tailored to Perfection](https://www.highsnobiety.com/p/nensi-dojaka-calvin-klein-ss25/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 16 Sep 2024 09:35:10 GMT*
-
-
-## Olivia Rodrigo
-
 ## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 16 Sep 2024 10:00:00 GMT*
+*Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
 ## Olivia Rodrigo
@@ -8002,20 +7201,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Olivia Rodrigo
 
-## [Nensi Dojaka  Calvin Klein's Chic Lingerie Is Tailored to Perfection](https://www.highsnobiety.com/p/nensi-dojaka-calvin-klein-ss25/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 16 Sep 2024 09:35:10 GMT*
-
-
-## Obama
-
 ## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 16 Sep 2024 10:00:00 GMT*
+*Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
 ## Obama
@@ -8092,20 +7282,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Obama
 
-## [Nensi Dojaka  Calvin Klein's Chic Lingerie Is Tailored to Perfection](https://www.highsnobiety.com/p/nensi-dojaka-calvin-klein-ss25/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 16 Sep 2024 09:35:10 GMT*
-
-
-## Nicki Minaj
-
 ## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 16 Sep 2024 10:00:00 GMT*
+*Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
 ## Nicki Minaj
@@ -8182,20 +7363,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Nicki Minaj
 
-## [Nensi Dojaka  Calvin Klein's Chic Lingerie Is Tailored to Perfection](https://www.highsnobiety.com/p/nensi-dojaka-calvin-klein-ss25/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 16 Sep 2024 09:35:10 GMT*
-
-
-## MrBeast
-
 ## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 16 Sep 2024 10:00:00 GMT*
+*Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
 ## MrBeast
@@ -8272,10 +7444,10 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## MrBeast
 
-## [Nensi Dojaka  Calvin Klein's Chic Lingerie Is Tailored to Perfection](https://www.highsnobiety.com/p/nensi-dojaka-calvin-klein-ss25/)
+## [adidas' Lacy Samba Goes Full Ballerina ](https://www.highsnobiety.com/p/adidas-samba-lace-flower-sneaker/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Mon, 16 Sep 2024 09:35:10 GMT*
+*Published on: Tue, 17 Sep 2024 09:00:00 GMT*
 
 
