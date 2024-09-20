@@ -62,6 +62,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 20 Sep 2024 10:30:01 GMT*
 
 
+## Tim Cook
+
+## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 20 Sep 2024 11:48:47 GMT*
+
+
 ## Taylor Swift
 
 ## [Prada SS25: On the Edge of Tomorrow](https://www.highsnobiety.com/p/prada-ss25-womenswear/)
@@ -123,6 +132,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 20 Sep 2024 10:30:01 GMT*
+
+
+## Taylor Swift
+
+## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 20 Sep 2024 11:48:47 GMT*
 
 
 ## Tom Brady
@@ -188,6 +206,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 20 Sep 2024 10:30:01 GMT*
 
 
+## Tom Brady
+
+## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 20 Sep 2024 11:48:47 GMT*
+
+
 ## Tina Fey
 
 ## [Prada SS25: On the Edge of Tomorrow](https://www.highsnobiety.com/p/prada-ss25-womenswear/)
@@ -249,6 +276,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 20 Sep 2024 10:30:01 GMT*
+
+
+## Tina Fey
+
+## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 20 Sep 2024 11:48:47 GMT*
 
 
 ## Steven Yuen
@@ -314,6 +350,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 20 Sep 2024 10:30:01 GMT*
 
 
+## Steven Yuen
+
+## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 20 Sep 2024 11:48:47 GMT*
+
+
 ## Sommer Ray
 
 ## [Prada SS25: On the Edge of Tomorrow](https://www.highsnobiety.com/p/prada-ss25-womenswear/)
@@ -375,6 +420,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 20 Sep 2024 10:30:01 GMT*
+
+
+## Sommer Ray
+
+## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 20 Sep 2024 11:48:47 GMT*
 
 
 ## Sza
@@ -440,6 +494,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 20 Sep 2024 10:30:01 GMT*
 
 
+## Sza
+
+## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 20 Sep 2024 11:48:47 GMT*
+
+
 ## Sydney Sweeney
 
 ## [Prada SS25: On the Edge of Tomorrow](https://www.highsnobiety.com/p/prada-ss25-womenswear/)
@@ -501,6 +564,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 20 Sep 2024 10:30:01 GMT*
+
+
+## Sydney Sweeney
+
+## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 20 Sep 2024 11:48:47 GMT*
 
 
 ## Walton Goggins
@@ -566,6 +638,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 20 Sep 2024 10:30:01 GMT*
 
 
+## Walton Goggins
+
+## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 20 Sep 2024 11:48:47 GMT*
+
+
 ## Tom Holland
 
 ## [Prada SS25: On the Edge of Tomorrow](https://www.highsnobiety.com/p/prada-ss25-womenswear/)
@@ -627,6 +708,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 20 Sep 2024 10:30:01 GMT*
+
+
+## Tom Holland
+
+## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 20 Sep 2024 11:48:47 GMT*
 
 
 ## Gucci Mane
@@ -692,6 +782,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 20 Sep 2024 10:30:01 GMT*
 
 
+## Gucci Mane
+
+## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 20 Sep 2024 11:48:47 GMT*
+
+
 ## Harry Styles
 
 ## [Prada SS25: On the Edge of Tomorrow](https://www.highsnobiety.com/p/prada-ss25-womenswear/)
@@ -753,6 +852,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 20 Sep 2024 10:30:01 GMT*
+
+
+## Harry Styles
+
+## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 20 Sep 2024 11:48:47 GMT*
 
 
 ## Jake Paul
@@ -818,6 +926,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 20 Sep 2024 10:30:01 GMT*
 
 
+## Jake Paul
+
+## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 20 Sep 2024 11:48:47 GMT*
+
+
 ## Jameela Jamil
 
 ## [Prada SS25: On the Edge of Tomorrow](https://www.highsnobiety.com/p/prada-ss25-womenswear/)
@@ -879,6 +996,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 20 Sep 2024 10:30:01 GMT*
+
+
+## Jameela Jamil
+
+## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 20 Sep 2024 11:48:47 GMT*
 
 
 ## Elon Musk
@@ -944,6 +1070,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 20 Sep 2024 10:30:01 GMT*
 
 
+## Elon Musk
+
+## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 20 Sep 2024 11:48:47 GMT*
+
+
 ## Gabrielle Union
 
 ## [Prada SS25: On the Edge of Tomorrow](https://www.highsnobiety.com/p/prada-ss25-womenswear/)
@@ -1005,6 +1140,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 20 Sep 2024 10:30:01 GMT*
+
+
+## Gabrielle Union
+
+## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 20 Sep 2024 11:48:47 GMT*
 
 
 ## Giancarlo Esposito
@@ -1070,6 +1214,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 20 Sep 2024 10:30:01 GMT*
 
 
+## Giancarlo Esposito
+
+## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 20 Sep 2024 11:48:47 GMT*
+
+
 ## Gillian Jacobs
 
 ## [Prada SS25: On the Edge of Tomorrow](https://www.highsnobiety.com/p/prada-ss25-womenswear/)
@@ -1131,6 +1284,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 20 Sep 2024 10:30:01 GMT*
+
+
+## Gillian Jacobs
+
+## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 20 Sep 2024 11:48:47 GMT*
 
 
 ## Jason Mantzoukas
@@ -1196,6 +1358,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 20 Sep 2024 10:30:01 GMT*
 
 
+## Jason Mantzoukas
+
+## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 20 Sep 2024 11:48:47 GMT*
+
+
 ## JB Smoove
 
 ## [Prada SS25: On the Edge of Tomorrow](https://www.highsnobiety.com/p/prada-ss25-womenswear/)
@@ -1257,6 +1428,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 20 Sep 2024 10:30:01 GMT*
+
+
+## JB Smoove
+
+## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 20 Sep 2024 11:48:47 GMT*
 
 
 ## Madison Pettis
@@ -1322,6 +1502,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 20 Sep 2024 10:30:01 GMT*
 
 
+## Madison Pettis
+
+## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 20 Sep 2024 11:48:47 GMT*
+
+
 ## Austin Butler
 
 ## [Prada SS25: On the Edge of Tomorrow](https://www.highsnobiety.com/p/prada-ss25-womenswear/)
@@ -1383,6 +1572,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 20 Sep 2024 10:30:01 GMT*
+
+
+## Austin Butler
+
+## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 20 Sep 2024 11:48:47 GMT*
 
 
 ## Mark Zuckerberg
@@ -1448,6 +1646,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 20 Sep 2024 10:30:01 GMT*
 
 
+## Mark Zuckerberg
+
+## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 20 Sep 2024 11:48:47 GMT*
+
+
 ## Ariana Grande
 
 ## [Prada SS25: On the Edge of Tomorrow](https://www.highsnobiety.com/p/prada-ss25-womenswear/)
@@ -1509,6 +1716,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 20 Sep 2024 10:30:01 GMT*
+
+
+## Ariana Grande
+
+## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 20 Sep 2024 11:48:47 GMT*
 
 
 ## Livvy Dunne
@@ -1574,6 +1790,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 20 Sep 2024 10:30:01 GMT*
 
 
+## Livvy Dunne
+
+## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 20 Sep 2024 11:48:47 GMT*
+
+
 ## Ali Wong
 
 ## [Prada SS25: On the Edge of Tomorrow](https://www.highsnobiety.com/p/prada-ss25-womenswear/)
@@ -1635,6 +1860,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 20 Sep 2024 10:30:01 GMT*
+
+
+## Ali Wong
+
+## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 20 Sep 2024 11:48:47 GMT*
 
 
 ## Lizzo
@@ -1700,6 +1934,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 20 Sep 2024 10:30:01 GMT*
 
 
+## Lizzo
+
+## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 20 Sep 2024 11:48:47 GMT*
+
+
 ## Alison Brie
 
 ## [Prada SS25: On the Edge of Tomorrow](https://www.highsnobiety.com/p/prada-ss25-womenswear/)
@@ -1761,6 +2004,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 20 Sep 2024 10:30:01 GMT*
+
+
+## Alison Brie
+
+## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 20 Sep 2024 11:48:47 GMT*
 
 
 ## Lil Wayne
@@ -1826,6 +2078,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 20 Sep 2024 10:30:01 GMT*
 
 
+## Lil Wayne
+
+## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 20 Sep 2024 11:48:47 GMT*
+
+
 ## Adele
 
 ## [Prada SS25: On the Edge of Tomorrow](https://www.highsnobiety.com/p/prada-ss25-womenswear/)
@@ -1887,6 +2148,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 20 Sep 2024 10:30:01 GMT*
+
+
+## Adele
+
+## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 20 Sep 2024 11:48:47 GMT*
 
 
 ## Lindsay Lohan
@@ -1952,6 +2222,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 20 Sep 2024 10:30:01 GMT*
 
 
+## Lindsay Lohan
+
+## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 20 Sep 2024 11:48:47 GMT*
+
+
 ## Addison Rae
 
 ## [Prada SS25: On the Edge of Tomorrow](https://www.highsnobiety.com/p/prada-ss25-womenswear/)
@@ -2013,6 +2292,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 20 Sep 2024 10:30:01 GMT*
+
+
+## Addison Rae
+
+## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 20 Sep 2024 11:48:47 GMT*
 
 
 ## Latto
@@ -2078,6 +2366,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 20 Sep 2024 10:30:01 GMT*
 
 
+## Latto
+
+## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 20 Sep 2024 11:48:47 GMT*
+
+
 ## Aaron Paul
 
 ## [Prada SS25: On the Edge of Tomorrow](https://www.highsnobiety.com/p/prada-ss25-womenswear/)
@@ -2139,6 +2436,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 20 Sep 2024 10:30:01 GMT*
+
+
+## Aaron Paul
+
+## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 20 Sep 2024 11:48:47 GMT*
 
 
 ## LeBron James
@@ -2204,6 +2510,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 20 Sep 2024 10:30:01 GMT*
 
 
+## LeBron James
+
+## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 20 Sep 2024 11:48:47 GMT*
+
+
 ## 50 Cent
 
 ## [Prada SS25: On the Edge of Tomorrow](https://www.highsnobiety.com/p/prada-ss25-womenswear/)
@@ -2265,6 +2580,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 20 Sep 2024 10:30:01 GMT*
+
+
+## 50 Cent
+
+## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 20 Sep 2024 11:48:47 GMT*
 
 
 ## Kesha
@@ -2330,6 +2654,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 20 Sep 2024 10:30:01 GMT*
 
 
+## Kesha
+
+## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 20 Sep 2024 11:48:47 GMT*
+
+
 ## 21 Savage
 
 ## [Prada SS25: On the Edge of Tomorrow](https://www.highsnobiety.com/p/prada-ss25-womenswear/)
@@ -2391,6 +2724,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 20 Sep 2024 10:30:01 GMT*
+
+
+## 21 Savage
+
+## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 20 Sep 2024 11:48:47 GMT*
 
 
 ## Larry David
@@ -2456,6 +2798,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 20 Sep 2024 10:30:01 GMT*
 
 
+## Larry David
+
+## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 20 Sep 2024 11:48:47 GMT*
+
+
 ## Seth Rogan
 
 ## [Prada SS25: On the Edge of Tomorrow](https://www.highsnobiety.com/p/prada-ss25-womenswear/)
@@ -2517,6 +2868,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 20 Sep 2024 10:30:01 GMT*
+
+
+## Seth Rogan
+
+## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 20 Sep 2024 11:48:47 GMT*
 
 
 ## Simone Biles
@@ -2582,6 +2942,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 20 Sep 2024 10:30:01 GMT*
 
 
+## Simone Biles
+
+## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 20 Sep 2024 11:48:47 GMT*
+
+
 ## Pete Davidson
 
 ## [Prada SS25: On the Edge of Tomorrow](https://www.highsnobiety.com/p/prada-ss25-womenswear/)
@@ -2643,6 +3012,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 20 Sep 2024 10:30:01 GMT*
+
+
+## Pete Davidson
+
+## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 20 Sep 2024 11:48:47 GMT*
 
 
 ## Prince Harry
@@ -2708,6 +3086,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 20 Sep 2024 10:30:01 GMT*
 
 
+## Prince Harry
+
+## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 20 Sep 2024 11:48:47 GMT*
+
+
 ## Princess of Wales
 
 ## [Prada SS25: On the Edge of Tomorrow](https://www.highsnobiety.com/p/prada-ss25-womenswear/)
@@ -2769,6 +3156,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 20 Sep 2024 10:30:01 GMT*
+
+
+## Princess of Wales
+
+## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 20 Sep 2024 11:48:47 GMT*
 
 
 ## Rachel McAdams
@@ -2834,6 +3230,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 20 Sep 2024 10:30:01 GMT*
 
 
+## Rachel McAdams
+
+## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 20 Sep 2024 11:48:47 GMT*
+
+
 ## Reneé Rapp
 
 ## [Prada SS25: On the Edge of Tomorrow](https://www.highsnobiety.com/p/prada-ss25-womenswear/)
@@ -2895,6 +3300,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 20 Sep 2024 10:30:01 GMT*
+
+
+## Reneé Rapp
+
+## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 20 Sep 2024 11:48:47 GMT*
 
 
 ## Rick Ross
@@ -2960,6 +3374,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 20 Sep 2024 10:30:01 GMT*
 
 
+## Rick Ross
+
+## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 20 Sep 2024 11:48:47 GMT*
+
+
 ## Sam Ashgari
 
 ## [Prada SS25: On the Edge of Tomorrow](https://www.highsnobiety.com/p/prada-ss25-womenswear/)
@@ -3021,6 +3444,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 20 Sep 2024 10:30:01 GMT*
+
+
+## Sam Ashgari
+
+## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 20 Sep 2024 11:48:47 GMT*
 
 
 ## Sandra Oh
@@ -3086,6 +3518,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 20 Sep 2024 10:30:01 GMT*
 
 
+## Sandra Oh
+
+## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 20 Sep 2024 11:48:47 GMT*
+
+
 ## Donald Trump
 
 ## [Prada SS25: On the Edge of Tomorrow](https://www.highsnobiety.com/p/prada-ss25-womenswear/)
@@ -3147,6 +3588,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 20 Sep 2024 10:30:01 GMT*
+
+
+## Donald Trump
+
+## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 20 Sep 2024 11:48:47 GMT*
 
 
 ## Diddy
@@ -3212,6 +3662,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 20 Sep 2024 10:30:01 GMT*
 
 
+## Diddy
+
+## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 20 Sep 2024 11:48:47 GMT*
+
+
 ## City Girls
 
 ## [Prada SS25: On the Edge of Tomorrow](https://www.highsnobiety.com/p/prada-ss25-womenswear/)
@@ -3273,6 +3732,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 20 Sep 2024 10:30:01 GMT*
+
+
+## City Girls
+
+## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 20 Sep 2024 11:48:47 GMT*
 
 
 ## Chloe Bailey
@@ -3338,6 +3806,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 20 Sep 2024 10:30:01 GMT*
 
 
+## Chloe Bailey
+
+## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 20 Sep 2024 11:48:47 GMT*
+
+
 ## Charli D Amelio
 
 ## [Prada SS25: On the Edge of Tomorrow](https://www.highsnobiety.com/p/prada-ss25-womenswear/)
@@ -3399,6 +3876,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 20 Sep 2024 10:30:01 GMT*
+
+
+## Charli D Amelio
+
+## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 20 Sep 2024 11:48:47 GMT*
 
 
 ## Cardi B
@@ -3464,6 +3950,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 20 Sep 2024 10:30:01 GMT*
 
 
+## Cardi B
+
+## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 20 Sep 2024 11:48:47 GMT*
+
+
 ## Bryan Cranston
 
 ## [Prada SS25: On the Edge of Tomorrow](https://www.highsnobiety.com/p/prada-ss25-womenswear/)
@@ -3525,6 +4020,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 20 Sep 2024 10:30:01 GMT*
+
+
+## Bryan Cranston
+
+## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 20 Sep 2024 11:48:47 GMT*
 
 
 ## Brielle Biermann
@@ -3590,6 +4094,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 20 Sep 2024 10:30:01 GMT*
 
 
+## Brielle Biermann
+
+## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 20 Sep 2024 11:48:47 GMT*
+
+
 ## Dua Lipa
 
 ## [Prada SS25: On the Edge of Tomorrow](https://www.highsnobiety.com/p/prada-ss25-womenswear/)
@@ -3651,6 +4164,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 20 Sep 2024 10:30:01 GMT*
+
+
+## Dua Lipa
+
+## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 20 Sep 2024 11:48:47 GMT*
 
 
 ## Drake
@@ -3716,6 +4238,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 20 Sep 2024 10:30:01 GMT*
 
 
+## Drake
+
+## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 20 Sep 2024 11:48:47 GMT*
+
+
 ## Jenner
 
 ## [Prada SS25: On the Edge of Tomorrow](https://www.highsnobiety.com/p/prada-ss25-womenswear/)
@@ -3777,6 +4308,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 20 Sep 2024 10:30:01 GMT*
+
+
+## Jenner
+
+## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 20 Sep 2024 11:48:47 GMT*
 
 
 ## J. Cole
@@ -3842,6 +4382,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 20 Sep 2024 10:30:01 GMT*
 
 
+## J. Cole
+
+## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 20 Sep 2024 11:48:47 GMT*
+
+
 ## Jerrod Carmichael
 
 ## [Prada SS25: On the Edge of Tomorrow](https://www.highsnobiety.com/p/prada-ss25-womenswear/)
@@ -3903,6 +4452,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 20 Sep 2024 10:30:01 GMT*
+
+
+## Jerrod Carmichael
+
+## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 20 Sep 2024 11:48:47 GMT*
 
 
 ## Jennifer Lawrence
@@ -3968,6 +4526,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 20 Sep 2024 10:30:01 GMT*
 
 
+## Jennifer Lawrence
+
+## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 20 Sep 2024 11:48:47 GMT*
+
+
 ## Joe Biden
 
 ## [Prada SS25: On the Edge of Tomorrow](https://www.highsnobiety.com/p/prada-ss25-womenswear/)
@@ -4029,6 +4596,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 20 Sep 2024 10:30:01 GMT*
+
+
+## Joe Biden
+
+## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 20 Sep 2024 11:48:47 GMT*
 
 
 ## J.K. Simmons
@@ -4094,6 +4670,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 20 Sep 2024 10:30:01 GMT*
 
 
+## J.K. Simmons
+
+## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 20 Sep 2024 11:48:47 GMT*
+
+
 ## Kamala Harris
 
 ## [Prada SS25: On the Edge of Tomorrow](https://www.highsnobiety.com/p/prada-ss25-womenswear/)
@@ -4155,6 +4740,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 20 Sep 2024 10:30:01 GMT*
+
+
+## Kamala Harris
+
+## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 20 Sep 2024 11:48:47 GMT*
 
 
 ## John C Reilly
@@ -4220,6 +4814,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 20 Sep 2024 10:30:01 GMT*
 
 
+## John C Reilly
+
+## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 20 Sep 2024 11:48:47 GMT*
+
+
 ## Kardashian
 
 ## [Prada SS25: On the Edge of Tomorrow](https://www.highsnobiety.com/p/prada-ss25-womenswear/)
@@ -4281,6 +4884,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 20 Sep 2024 10:30:01 GMT*
+
+
+## Kardashian
+
+## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 20 Sep 2024 11:48:47 GMT*
 
 
 ## Kanye
@@ -4346,6 +4958,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 20 Sep 2024 10:30:01 GMT*
 
 
+## Kanye
+
+## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 20 Sep 2024 11:48:47 GMT*
+
+
 ## Zendaya
 
 ## [Prada SS25: On the Edge of Tomorrow](https://www.highsnobiety.com/p/prada-ss25-womenswear/)
@@ -4407,6 +5028,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 20 Sep 2024 10:30:01 GMT*
+
+
+## Zendaya
+
+## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 20 Sep 2024 11:48:47 GMT*
 
 
 ## Will Ferrell
@@ -4472,6 +5102,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 20 Sep 2024 10:30:01 GMT*
 
 
+## Will Ferrell
+
+## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 20 Sep 2024 11:48:47 GMT*
+
+
 ## Zazie Beetz
 
 ## [Prada SS25: On the Edge of Tomorrow](https://www.highsnobiety.com/p/prada-ss25-womenswear/)
@@ -4533,6 +5172,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 20 Sep 2024 10:30:01 GMT*
+
+
+## Zazie Beetz
+
+## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 20 Sep 2024 11:48:47 GMT*
 
 
 ## Bob Odenkirk
@@ -4598,6 +5246,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 20 Sep 2024 10:30:01 GMT*
 
 
+## Bob Odenkirk
+
+## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 20 Sep 2024 11:48:47 GMT*
+
+
 ## Brad Pitt
 
 ## [Prada SS25: On the Edge of Tomorrow](https://www.highsnobiety.com/p/prada-ss25-womenswear/)
@@ -4659,6 +5316,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 20 Sep 2024 10:30:01 GMT*
+
+
+## Brad Pitt
+
+## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 20 Sep 2024 11:48:47 GMT*
 
 
 ## Beyoncé
@@ -4724,6 +5390,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 20 Sep 2024 10:30:01 GMT*
 
 
+## Beyoncé
+
+## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 20 Sep 2024 11:48:47 GMT*
+
+
 ## Bia
 
 ## [Prada SS25: On the Edge of Tomorrow](https://www.highsnobiety.com/p/prada-ss25-womenswear/)
@@ -4785,6 +5460,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 20 Sep 2024 10:30:01 GMT*
+
+
+## Bia
+
+## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 20 Sep 2024 11:48:47 GMT*
 
 
 ## Avantika
@@ -4850,6 +5534,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 20 Sep 2024 10:30:01 GMT*
 
 
+## Avantika
+
+## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 20 Sep 2024 11:48:47 GMT*
+
+
 ## Bernie Sanders
 
 ## [Prada SS25: On the Edge of Tomorrow](https://www.highsnobiety.com/p/prada-ss25-womenswear/)
@@ -4911,6 +5604,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 20 Sep 2024 10:30:01 GMT*
+
+
+## Bernie Sanders
+
+## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 20 Sep 2024 11:48:47 GMT*
 
 
 ## Big Sean
@@ -4976,6 +5678,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 20 Sep 2024 10:30:01 GMT*
 
 
+## Big Sean
+
+## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 20 Sep 2024 11:48:47 GMT*
+
+
 ## BlockBoy JB
 
 ## [Prada SS25: On the Edge of Tomorrow](https://www.highsnobiety.com/p/prada-ss25-womenswear/)
@@ -5037,6 +5748,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 20 Sep 2024 10:30:01 GMT*
+
+
+## BlockBoy JB
+
+## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 20 Sep 2024 11:48:47 GMT*
 
 
 ## Biden
@@ -5102,6 +5822,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 20 Sep 2024 10:30:01 GMT*
 
 
+## Biden
+
+## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 20 Sep 2024 11:48:47 GMT*
+
+
 ## Bieber
 
 ## [Prada SS25: On the Edge of Tomorrow](https://www.highsnobiety.com/p/prada-ss25-womenswear/)
@@ -5163,6 +5892,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 20 Sep 2024 10:30:01 GMT*
+
+
+## Bieber
+
+## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 20 Sep 2024 11:48:47 GMT*
 
 
 ## Paulina Porizkov
@@ -5228,6 +5966,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 20 Sep 2024 10:30:01 GMT*
 
 
+## Paulina Porizkov
+
+## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 20 Sep 2024 11:48:47 GMT*
+
+
 ## Paris Hilton
 
 ## [Prada SS25: On the Edge of Tomorrow](https://www.highsnobiety.com/p/prada-ss25-womenswear/)
@@ -5289,6 +6036,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 20 Sep 2024 10:30:01 GMT*
+
+
+## Paris Hilton
+
+## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 20 Sep 2024 11:48:47 GMT*
 
 
 ## Metro Boomin
@@ -5354,6 +6110,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 20 Sep 2024 10:30:01 GMT*
 
 
+## Metro Boomin
+
+## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 20 Sep 2024 11:48:47 GMT*
+
+
 ## Meghan Markle
 
 ## [Prada SS25: On the Edge of Tomorrow](https://www.highsnobiety.com/p/prada-ss25-womenswear/)
@@ -5415,6 +6180,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 20 Sep 2024 10:30:01 GMT*
+
+
+## Meghan Markle
+
+## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 20 Sep 2024 11:48:47 GMT*
 
 
 ## Megan Thee Stallion
@@ -5480,6 +6254,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 20 Sep 2024 10:30:01 GMT*
 
 
+## Megan Thee Stallion
+
+## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 20 Sep 2024 11:48:47 GMT*
+
+
 ## Maya Rudolph
 
 ## [Prada SS25: On the Edge of Tomorrow](https://www.highsnobiety.com/p/prada-ss25-womenswear/)
@@ -5543,6 +6326,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 20 Sep 2024 10:30:01 GMT*
 
 
+## Maya Rudolph
+
+## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 20 Sep 2024 11:48:47 GMT*
+
+
 ## Olivia Rodrigo
 
 ## [Prada SS25: On the Edge of Tomorrow](https://www.highsnobiety.com/p/prada-ss25-womenswear/)
@@ -5606,6 +6398,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 20 Sep 2024 10:30:01 GMT*
 
 
+## Olivia Rodrigo
+
+## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 20 Sep 2024 11:48:47 GMT*
+
+
 ## Obama
 
 ## [Prada SS25: On the Edge of Tomorrow](https://www.highsnobiety.com/p/prada-ss25-womenswear/)
@@ -5669,6 +6470,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 20 Sep 2024 10:30:01 GMT*
 
 
+## Obama
+
+## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 20 Sep 2024 11:48:47 GMT*
+
+
 ## Nicki Minaj
 
 ## [Prada SS25: On the Edge of Tomorrow](https://www.highsnobiety.com/p/prada-ss25-womenswear/)
@@ -5732,6 +6542,15 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 *Published on: Fri, 20 Sep 2024 10:30:01 GMT*
 
 
+## Nicki Minaj
+
+## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 20 Sep 2024 11:48:47 GMT*
+
+
 ## MrBeast
 
 ## [Prada SS25: On the Edge of Tomorrow](https://www.highsnobiety.com/p/prada-ss25-womenswear/)
@@ -5793,5 +6612,14 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 20 Sep 2024 10:30:01 GMT*
+
+
+## MrBeast
+
+## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Fri, 20 Sep 2024 11:48:47 GMT*
 
 
