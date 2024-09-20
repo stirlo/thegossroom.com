@@ -1,15 +1,6 @@
 # Latest Stories
 ## Tim Cook
 
-## [Prada SS25: On the Edge of Tomorrow](https://www.highsnobiety.com/p/prada-ss25-womenswear/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 19 Sep 2024 14:05:27 GMT*
-
-
-## Tim Cook
-
 ## [With New Fragrances, Glossier Moves Beyond 'You'](https://www.highsnobiety.com/p/glossier-new-fragrance-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -82,15 +73,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Taylor Swift
 
-## [Prada SS25: On the Edge of Tomorrow](https://www.highsnobiety.com/p/prada-ss25-womenswear/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 19 Sep 2024 14:05:27 GMT*
-
-
-## Taylor Swift
-
 ## [With New Fragrances, Glossier Moves Beyond 'You'](https://www.highsnobiety.com/p/glossier-new-fragrance-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -163,15 +145,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Tom Brady
 
-## [Prada SS25: On the Edge of Tomorrow](https://www.highsnobiety.com/p/prada-ss25-womenswear/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 19 Sep 2024 14:05:27 GMT*
-
-
-## Tom Brady
-
 ## [With New Fragrances, Glossier Moves Beyond 'You'](https://www.highsnobiety.com/p/glossier-new-fragrance-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -244,15 +217,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Tina Fey
 
-## [Prada SS25: On the Edge of Tomorrow](https://www.highsnobiety.com/p/prada-ss25-womenswear/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 19 Sep 2024 14:05:27 GMT*
-
-
-## Tina Fey
-
 ## [With New Fragrances, Glossier Moves Beyond 'You'](https://www.highsnobiety.com/p/glossier-new-fragrance-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -325,15 +289,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Steven Yuen
 
-## [Prada SS25: On the Edge of Tomorrow](https://www.highsnobiety.com/p/prada-ss25-womenswear/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 19 Sep 2024 14:05:27 GMT*
-
-
-## Steven Yuen
-
 ## [With New Fragrances, Glossier Moves Beyond 'You'](https://www.highsnobiety.com/p/glossier-new-fragrance-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -406,15 +361,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Sommer Ray
 
-## [Prada SS25: On the Edge of Tomorrow](https://www.highsnobiety.com/p/prada-ss25-womenswear/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 19 Sep 2024 14:05:27 GMT*
-
-
-## Sommer Ray
-
 ## [With New Fragrances, Glossier Moves Beyond 'You'](https://www.highsnobiety.com/p/glossier-new-fragrance-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -487,15 +433,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Sza
 
-## [Prada SS25: On the Edge of Tomorrow](https://www.highsnobiety.com/p/prada-ss25-womenswear/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 19 Sep 2024 14:05:27 GMT*
-
-
-## Sza
-
 ## [With New Fragrances, Glossier Moves Beyond 'You'](https://www.highsnobiety.com/p/glossier-new-fragrance-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -568,15 +505,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Sydney Sweeney
 
-## [Prada SS25: On the Edge of Tomorrow](https://www.highsnobiety.com/p/prada-ss25-womenswear/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 19 Sep 2024 14:05:27 GMT*
-
-
-## Sydney Sweeney
-
 ## [With New Fragrances, Glossier Moves Beyond 'You'](https://www.highsnobiety.com/p/glossier-new-fragrance-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -649,15 +577,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Walton Goggins
 
-## [Prada SS25: On the Edge of Tomorrow](https://www.highsnobiety.com/p/prada-ss25-womenswear/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 19 Sep 2024 14:05:27 GMT*
-
-
-## Walton Goggins
-
 ## [With New Fragrances, Glossier Moves Beyond 'You'](https://www.highsnobiety.com/p/glossier-new-fragrance-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -730,15 +649,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Tom Holland
 
-## [Prada SS25: On the Edge of Tomorrow](https://www.highsnobiety.com/p/prada-ss25-womenswear/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 19 Sep 2024 14:05:27 GMT*
-
-
-## Tom Holland
-
 ## [With New Fragrances, Glossier Moves Beyond 'You'](https://www.highsnobiety.com/p/glossier-new-fragrance-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -811,15 +721,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Gucci Mane
 
-## [Prada SS25: On the Edge of Tomorrow](https://www.highsnobiety.com/p/prada-ss25-womenswear/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 19 Sep 2024 14:05:27 GMT*
-
-
-## Gucci Mane
-
 ## [With New Fragrances, Glossier Moves Beyond 'You'](https://www.highsnobiety.com/p/glossier-new-fragrance-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -892,15 +793,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Harry Styles
 
-## [Prada SS25: On the Edge of Tomorrow](https://www.highsnobiety.com/p/prada-ss25-womenswear/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 19 Sep 2024 14:05:27 GMT*
-
-
-## Harry Styles
-
 ## [With New Fragrances, Glossier Moves Beyond 'You'](https://www.highsnobiety.com/p/glossier-new-fragrance-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -973,15 +865,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Jake Paul
 
-## [Prada SS25: On the Edge of Tomorrow](https://www.highsnobiety.com/p/prada-ss25-womenswear/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 19 Sep 2024 14:05:27 GMT*
-
-
-## Jake Paul
-
 ## [With New Fragrances, Glossier Moves Beyond 'You'](https://www.highsnobiety.com/p/glossier-new-fragrance-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1054,15 +937,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Jameela Jamil
 
-## [Prada SS25: On the Edge of Tomorrow](https://www.highsnobiety.com/p/prada-ss25-womenswear/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 19 Sep 2024 14:05:27 GMT*
-
-
-## Jameela Jamil
-
 ## [With New Fragrances, Glossier Moves Beyond 'You'](https://www.highsnobiety.com/p/glossier-new-fragrance-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1135,15 +1009,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Elon Musk
 
-## [Prada SS25: On the Edge of Tomorrow](https://www.highsnobiety.com/p/prada-ss25-womenswear/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 19 Sep 2024 14:05:27 GMT*
-
-
-## Elon Musk
-
 ## [With New Fragrances, Glossier Moves Beyond 'You'](https://www.highsnobiety.com/p/glossier-new-fragrance-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1216,15 +1081,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Gabrielle Union
 
-## [Prada SS25: On the Edge of Tomorrow](https://www.highsnobiety.com/p/prada-ss25-womenswear/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 19 Sep 2024 14:05:27 GMT*
-
-
-## Gabrielle Union
-
 ## [With New Fragrances, Glossier Moves Beyond 'You'](https://www.highsnobiety.com/p/glossier-new-fragrance-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1297,15 +1153,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Giancarlo Esposito
 
-## [Prada SS25: On the Edge of Tomorrow](https://www.highsnobiety.com/p/prada-ss25-womenswear/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 19 Sep 2024 14:05:27 GMT*
-
-
-## Giancarlo Esposito
-
 ## [With New Fragrances, Glossier Moves Beyond 'You'](https://www.highsnobiety.com/p/glossier-new-fragrance-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1378,15 +1225,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Gillian Jacobs
 
-## [Prada SS25: On the Edge of Tomorrow](https://www.highsnobiety.com/p/prada-ss25-womenswear/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 19 Sep 2024 14:05:27 GMT*
-
-
-## Gillian Jacobs
-
 ## [With New Fragrances, Glossier Moves Beyond 'You'](https://www.highsnobiety.com/p/glossier-new-fragrance-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1459,15 +1297,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Jason Mantzoukas
 
-## [Prada SS25: On the Edge of Tomorrow](https://www.highsnobiety.com/p/prada-ss25-womenswear/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 19 Sep 2024 14:05:27 GMT*
-
-
-## Jason Mantzoukas
-
 ## [With New Fragrances, Glossier Moves Beyond 'You'](https://www.highsnobiety.com/p/glossier-new-fragrance-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1540,15 +1369,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## JB Smoove
 
-## [Prada SS25: On the Edge of Tomorrow](https://www.highsnobiety.com/p/prada-ss25-womenswear/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 19 Sep 2024 14:05:27 GMT*
-
-
-## JB Smoove
-
 ## [With New Fragrances, Glossier Moves Beyond 'You'](https://www.highsnobiety.com/p/glossier-new-fragrance-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1621,15 +1441,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Madison Pettis
 
-## [Prada SS25: On the Edge of Tomorrow](https://www.highsnobiety.com/p/prada-ss25-womenswear/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 19 Sep 2024 14:05:27 GMT*
-
-
-## Madison Pettis
-
 ## [With New Fragrances, Glossier Moves Beyond 'You'](https://www.highsnobiety.com/p/glossier-new-fragrance-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1702,15 +1513,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Austin Butler
 
-## [Prada SS25: On the Edge of Tomorrow](https://www.highsnobiety.com/p/prada-ss25-womenswear/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 19 Sep 2024 14:05:27 GMT*
-
-
-## Austin Butler
-
 ## [With New Fragrances, Glossier Moves Beyond 'You'](https://www.highsnobiety.com/p/glossier-new-fragrance-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1783,15 +1585,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Mark Zuckerberg
 
-## [Prada SS25: On the Edge of Tomorrow](https://www.highsnobiety.com/p/prada-ss25-womenswear/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 19 Sep 2024 14:05:27 GMT*
-
-
-## Mark Zuckerberg
-
 ## [With New Fragrances, Glossier Moves Beyond 'You'](https://www.highsnobiety.com/p/glossier-new-fragrance-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1864,15 +1657,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Ariana Grande
 
-## [Prada SS25: On the Edge of Tomorrow](https://www.highsnobiety.com/p/prada-ss25-womenswear/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 19 Sep 2024 14:05:27 GMT*
-
-
-## Ariana Grande
-
 ## [With New Fragrances, Glossier Moves Beyond 'You'](https://www.highsnobiety.com/p/glossier-new-fragrance-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1945,15 +1729,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Livvy Dunne
 
-## [Prada SS25: On the Edge of Tomorrow](https://www.highsnobiety.com/p/prada-ss25-womenswear/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 19 Sep 2024 14:05:27 GMT*
-
-
-## Livvy Dunne
-
 ## [With New Fragrances, Glossier Moves Beyond 'You'](https://www.highsnobiety.com/p/glossier-new-fragrance-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2026,15 +1801,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Ali Wong
 
-## [Prada SS25: On the Edge of Tomorrow](https://www.highsnobiety.com/p/prada-ss25-womenswear/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 19 Sep 2024 14:05:27 GMT*
-
-
-## Ali Wong
-
 ## [With New Fragrances, Glossier Moves Beyond 'You'](https://www.highsnobiety.com/p/glossier-new-fragrance-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2107,15 +1873,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Lizzo
 
-## [Prada SS25: On the Edge of Tomorrow](https://www.highsnobiety.com/p/prada-ss25-womenswear/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 19 Sep 2024 14:05:27 GMT*
-
-
-## Lizzo
-
 ## [With New Fragrances, Glossier Moves Beyond 'You'](https://www.highsnobiety.com/p/glossier-new-fragrance-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2188,15 +1945,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Alison Brie
 
-## [Prada SS25: On the Edge of Tomorrow](https://www.highsnobiety.com/p/prada-ss25-womenswear/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 19 Sep 2024 14:05:27 GMT*
-
-
-## Alison Brie
-
 ## [With New Fragrances, Glossier Moves Beyond 'You'](https://www.highsnobiety.com/p/glossier-new-fragrance-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2269,15 +2017,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Lil Wayne
 
-## [Prada SS25: On the Edge of Tomorrow](https://www.highsnobiety.com/p/prada-ss25-womenswear/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 19 Sep 2024 14:05:27 GMT*
-
-
-## Lil Wayne
-
 ## [With New Fragrances, Glossier Moves Beyond 'You'](https://www.highsnobiety.com/p/glossier-new-fragrance-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2350,15 +2089,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Adele
 
-## [Prada SS25: On the Edge of Tomorrow](https://www.highsnobiety.com/p/prada-ss25-womenswear/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 19 Sep 2024 14:05:27 GMT*
-
-
-## Adele
-
 ## [With New Fragrances, Glossier Moves Beyond 'You'](https://www.highsnobiety.com/p/glossier-new-fragrance-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2431,15 +2161,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Lindsay Lohan
 
-## [Prada SS25: On the Edge of Tomorrow](https://www.highsnobiety.com/p/prada-ss25-womenswear/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 19 Sep 2024 14:05:27 GMT*
-
-
-## Lindsay Lohan
-
 ## [With New Fragrances, Glossier Moves Beyond 'You'](https://www.highsnobiety.com/p/glossier-new-fragrance-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2512,15 +2233,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Addison Rae
 
-## [Prada SS25: On the Edge of Tomorrow](https://www.highsnobiety.com/p/prada-ss25-womenswear/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 19 Sep 2024 14:05:27 GMT*
-
-
-## Addison Rae
-
 ## [With New Fragrances, Glossier Moves Beyond 'You'](https://www.highsnobiety.com/p/glossier-new-fragrance-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2593,15 +2305,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Latto
 
-## [Prada SS25: On the Edge of Tomorrow](https://www.highsnobiety.com/p/prada-ss25-womenswear/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 19 Sep 2024 14:05:27 GMT*
-
-
-## Latto
-
 ## [With New Fragrances, Glossier Moves Beyond 'You'](https://www.highsnobiety.com/p/glossier-new-fragrance-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2674,15 +2377,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Aaron Paul
 
-## [Prada SS25: On the Edge of Tomorrow](https://www.highsnobiety.com/p/prada-ss25-womenswear/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 19 Sep 2024 14:05:27 GMT*
-
-
-## Aaron Paul
-
 ## [With New Fragrances, Glossier Moves Beyond 'You'](https://www.highsnobiety.com/p/glossier-new-fragrance-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2755,15 +2449,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## LeBron James
 
-## [Prada SS25: On the Edge of Tomorrow](https://www.highsnobiety.com/p/prada-ss25-womenswear/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 19 Sep 2024 14:05:27 GMT*
-
-
-## LeBron James
-
 ## [With New Fragrances, Glossier Moves Beyond 'You'](https://www.highsnobiety.com/p/glossier-new-fragrance-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2836,15 +2521,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## 50 Cent
 
-## [Prada SS25: On the Edge of Tomorrow](https://www.highsnobiety.com/p/prada-ss25-womenswear/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 19 Sep 2024 14:05:27 GMT*
-
-
-## 50 Cent
-
 ## [With New Fragrances, Glossier Moves Beyond 'You'](https://www.highsnobiety.com/p/glossier-new-fragrance-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2917,15 +2593,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Kesha
 
-## [Prada SS25: On the Edge of Tomorrow](https://www.highsnobiety.com/p/prada-ss25-womenswear/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 19 Sep 2024 14:05:27 GMT*
-
-
-## Kesha
-
 ## [With New Fragrances, Glossier Moves Beyond 'You'](https://www.highsnobiety.com/p/glossier-new-fragrance-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2998,15 +2665,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## 21 Savage
 
-## [Prada SS25: On the Edge of Tomorrow](https://www.highsnobiety.com/p/prada-ss25-womenswear/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 19 Sep 2024 14:05:27 GMT*
-
-
-## 21 Savage
-
 ## [With New Fragrances, Glossier Moves Beyond 'You'](https://www.highsnobiety.com/p/glossier-new-fragrance-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3079,15 +2737,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Larry David
 
-## [Prada SS25: On the Edge of Tomorrow](https://www.highsnobiety.com/p/prada-ss25-womenswear/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 19 Sep 2024 14:05:27 GMT*
-
-
-## Larry David
-
 ## [With New Fragrances, Glossier Moves Beyond 'You'](https://www.highsnobiety.com/p/glossier-new-fragrance-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3160,15 +2809,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Seth Rogan
 
-## [Prada SS25: On the Edge of Tomorrow](https://www.highsnobiety.com/p/prada-ss25-womenswear/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 19 Sep 2024 14:05:27 GMT*
-
-
-## Seth Rogan
-
 ## [With New Fragrances, Glossier Moves Beyond 'You'](https://www.highsnobiety.com/p/glossier-new-fragrance-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3241,15 +2881,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Simone Biles
 
-## [Prada SS25: On the Edge of Tomorrow](https://www.highsnobiety.com/p/prada-ss25-womenswear/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 19 Sep 2024 14:05:27 GMT*
-
-
-## Simone Biles
-
 ## [With New Fragrances, Glossier Moves Beyond 'You'](https://www.highsnobiety.com/p/glossier-new-fragrance-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3322,15 +2953,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Pete Davidson
 
-## [Prada SS25: On the Edge of Tomorrow](https://www.highsnobiety.com/p/prada-ss25-womenswear/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 19 Sep 2024 14:05:27 GMT*
-
-
-## Pete Davidson
-
 ## [With New Fragrances, Glossier Moves Beyond 'You'](https://www.highsnobiety.com/p/glossier-new-fragrance-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3403,15 +3025,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Prince Harry
 
-## [Prada SS25: On the Edge of Tomorrow](https://www.highsnobiety.com/p/prada-ss25-womenswear/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 19 Sep 2024 14:05:27 GMT*
-
-
-## Prince Harry
-
 ## [With New Fragrances, Glossier Moves Beyond 'You'](https://www.highsnobiety.com/p/glossier-new-fragrance-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3484,15 +3097,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Princess of Wales
 
-## [Prada SS25: On the Edge of Tomorrow](https://www.highsnobiety.com/p/prada-ss25-womenswear/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 19 Sep 2024 14:05:27 GMT*
-
-
-## Princess of Wales
-
 ## [With New Fragrances, Glossier Moves Beyond 'You'](https://www.highsnobiety.com/p/glossier-new-fragrance-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3565,15 +3169,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Rachel McAdams
 
-## [Prada SS25: On the Edge of Tomorrow](https://www.highsnobiety.com/p/prada-ss25-womenswear/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 19 Sep 2024 14:05:27 GMT*
-
-
-## Rachel McAdams
-
 ## [With New Fragrances, Glossier Moves Beyond 'You'](https://www.highsnobiety.com/p/glossier-new-fragrance-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3646,15 +3241,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Reneé Rapp
 
-## [Prada SS25: On the Edge of Tomorrow](https://www.highsnobiety.com/p/prada-ss25-womenswear/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 19 Sep 2024 14:05:27 GMT*
-
-
-## Reneé Rapp
-
 ## [With New Fragrances, Glossier Moves Beyond 'You'](https://www.highsnobiety.com/p/glossier-new-fragrance-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3727,15 +3313,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Rick Ross
 
-## [Prada SS25: On the Edge of Tomorrow](https://www.highsnobiety.com/p/prada-ss25-womenswear/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 19 Sep 2024 14:05:27 GMT*
-
-
-## Rick Ross
-
 ## [With New Fragrances, Glossier Moves Beyond 'You'](https://www.highsnobiety.com/p/glossier-new-fragrance-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3808,15 +3385,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Sam Ashgari
 
-## [Prada SS25: On the Edge of Tomorrow](https://www.highsnobiety.com/p/prada-ss25-womenswear/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 19 Sep 2024 14:05:27 GMT*
-
-
-## Sam Ashgari
-
 ## [With New Fragrances, Glossier Moves Beyond 'You'](https://www.highsnobiety.com/p/glossier-new-fragrance-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3889,15 +3457,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Sandra Oh
 
-## [Prada SS25: On the Edge of Tomorrow](https://www.highsnobiety.com/p/prada-ss25-womenswear/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 19 Sep 2024 14:05:27 GMT*
-
-
-## Sandra Oh
-
 ## [With New Fragrances, Glossier Moves Beyond 'You'](https://www.highsnobiety.com/p/glossier-new-fragrance-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3970,15 +3529,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Donald Trump
 
-## [Prada SS25: On the Edge of Tomorrow](https://www.highsnobiety.com/p/prada-ss25-womenswear/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 19 Sep 2024 14:05:27 GMT*
-
-
-## Donald Trump
-
 ## [With New Fragrances, Glossier Moves Beyond 'You'](https://www.highsnobiety.com/p/glossier-new-fragrance-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -4051,15 +3601,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Diddy
 
-## [Prada SS25: On the Edge of Tomorrow](https://www.highsnobiety.com/p/prada-ss25-womenswear/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 19 Sep 2024 14:05:27 GMT*
-
-
-## Diddy
-
 ## [With New Fragrances, Glossier Moves Beyond 'You'](https://www.highsnobiety.com/p/glossier-new-fragrance-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -4132,15 +3673,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## City Girls
 
-## [Prada SS25: On the Edge of Tomorrow](https://www.highsnobiety.com/p/prada-ss25-womenswear/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 19 Sep 2024 14:05:27 GMT*
-
-
-## City Girls
-
 ## [With New Fragrances, Glossier Moves Beyond 'You'](https://www.highsnobiety.com/p/glossier-new-fragrance-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -4213,15 +3745,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Chloe Bailey
 
-## [Prada SS25: On the Edge of Tomorrow](https://www.highsnobiety.com/p/prada-ss25-womenswear/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 19 Sep 2024 14:05:27 GMT*
-
-
-## Chloe Bailey
-
 ## [With New Fragrances, Glossier Moves Beyond 'You'](https://www.highsnobiety.com/p/glossier-new-fragrance-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -4294,15 +3817,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Charli D Amelio
 
-## [Prada SS25: On the Edge of Tomorrow](https://www.highsnobiety.com/p/prada-ss25-womenswear/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 19 Sep 2024 14:05:27 GMT*
-
-
-## Charli D Amelio
-
 ## [With New Fragrances, Glossier Moves Beyond 'You'](https://www.highsnobiety.com/p/glossier-new-fragrance-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -4375,15 +3889,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Cardi B
 
-## [Prada SS25: On the Edge of Tomorrow](https://www.highsnobiety.com/p/prada-ss25-womenswear/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 19 Sep 2024 14:05:27 GMT*
-
-
-## Cardi B
-
 ## [With New Fragrances, Glossier Moves Beyond 'You'](https://www.highsnobiety.com/p/glossier-new-fragrance-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -4456,15 +3961,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Bryan Cranston
 
-## [Prada SS25: On the Edge of Tomorrow](https://www.highsnobiety.com/p/prada-ss25-womenswear/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 19 Sep 2024 14:05:27 GMT*
-
-
-## Bryan Cranston
-
 ## [With New Fragrances, Glossier Moves Beyond 'You'](https://www.highsnobiety.com/p/glossier-new-fragrance-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -4537,15 +4033,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Brielle Biermann
 
-## [Prada SS25: On the Edge of Tomorrow](https://www.highsnobiety.com/p/prada-ss25-womenswear/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 19 Sep 2024 14:05:27 GMT*
-
-
-## Brielle Biermann
-
 ## [With New Fragrances, Glossier Moves Beyond 'You'](https://www.highsnobiety.com/p/glossier-new-fragrance-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -4618,15 +4105,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Dua Lipa
 
-## [Prada SS25: On the Edge of Tomorrow](https://www.highsnobiety.com/p/prada-ss25-womenswear/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 19 Sep 2024 14:05:27 GMT*
-
-
-## Dua Lipa
-
 ## [With New Fragrances, Glossier Moves Beyond 'You'](https://www.highsnobiety.com/p/glossier-new-fragrance-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -4699,15 +4177,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Drake
 
-## [Prada SS25: On the Edge of Tomorrow](https://www.highsnobiety.com/p/prada-ss25-womenswear/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 19 Sep 2024 14:05:27 GMT*
-
-
-## Drake
-
 ## [With New Fragrances, Glossier Moves Beyond 'You'](https://www.highsnobiety.com/p/glossier-new-fragrance-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -4780,15 +4249,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Jenner
 
-## [Prada SS25: On the Edge of Tomorrow](https://www.highsnobiety.com/p/prada-ss25-womenswear/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 19 Sep 2024 14:05:27 GMT*
-
-
-## Jenner
-
 ## [With New Fragrances, Glossier Moves Beyond 'You'](https://www.highsnobiety.com/p/glossier-new-fragrance-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -4861,15 +4321,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## J. Cole
 
-## [Prada SS25: On the Edge of Tomorrow](https://www.highsnobiety.com/p/prada-ss25-womenswear/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 19 Sep 2024 14:05:27 GMT*
-
-
-## J. Cole
-
 ## [With New Fragrances, Glossier Moves Beyond 'You'](https://www.highsnobiety.com/p/glossier-new-fragrance-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -4942,15 +4393,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Jerrod Carmichael
 
-## [Prada SS25: On the Edge of Tomorrow](https://www.highsnobiety.com/p/prada-ss25-womenswear/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 19 Sep 2024 14:05:27 GMT*
-
-
-## Jerrod Carmichael
-
 ## [With New Fragrances, Glossier Moves Beyond 'You'](https://www.highsnobiety.com/p/glossier-new-fragrance-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -5023,15 +4465,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Jennifer Lawrence
 
-## [Prada SS25: On the Edge of Tomorrow](https://www.highsnobiety.com/p/prada-ss25-womenswear/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 19 Sep 2024 14:05:27 GMT*
-
-
-## Jennifer Lawrence
-
 ## [With New Fragrances, Glossier Moves Beyond 'You'](https://www.highsnobiety.com/p/glossier-new-fragrance-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -5104,15 +4537,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Joe Biden
 
-## [Prada SS25: On the Edge of Tomorrow](https://www.highsnobiety.com/p/prada-ss25-womenswear/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 19 Sep 2024 14:05:27 GMT*
-
-
-## Joe Biden
-
 ## [With New Fragrances, Glossier Moves Beyond 'You'](https://www.highsnobiety.com/p/glossier-new-fragrance-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -5185,15 +4609,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## J.K. Simmons
 
-## [Prada SS25: On the Edge of Tomorrow](https://www.highsnobiety.com/p/prada-ss25-womenswear/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 19 Sep 2024 14:05:27 GMT*
-
-
-## J.K. Simmons
-
 ## [With New Fragrances, Glossier Moves Beyond 'You'](https://www.highsnobiety.com/p/glossier-new-fragrance-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -5266,15 +4681,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Kamala Harris
 
-## [Prada SS25: On the Edge of Tomorrow](https://www.highsnobiety.com/p/prada-ss25-womenswear/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 19 Sep 2024 14:05:27 GMT*
-
-
-## Kamala Harris
-
 ## [With New Fragrances, Glossier Moves Beyond 'You'](https://www.highsnobiety.com/p/glossier-new-fragrance-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -5347,15 +4753,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## John C Reilly
 
-## [Prada SS25: On the Edge of Tomorrow](https://www.highsnobiety.com/p/prada-ss25-womenswear/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 19 Sep 2024 14:05:27 GMT*
-
-
-## John C Reilly
-
 ## [With New Fragrances, Glossier Moves Beyond 'You'](https://www.highsnobiety.com/p/glossier-new-fragrance-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -5428,15 +4825,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Kardashian
 
-## [Prada SS25: On the Edge of Tomorrow](https://www.highsnobiety.com/p/prada-ss25-womenswear/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 19 Sep 2024 14:05:27 GMT*
-
-
-## Kardashian
-
 ## [With New Fragrances, Glossier Moves Beyond 'You'](https://www.highsnobiety.com/p/glossier-new-fragrance-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -5509,15 +4897,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Kanye
 
-## [Prada SS25: On the Edge of Tomorrow](https://www.highsnobiety.com/p/prada-ss25-womenswear/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 19 Sep 2024 14:05:27 GMT*
-
-
-## Kanye
-
 ## [With New Fragrances, Glossier Moves Beyond 'You'](https://www.highsnobiety.com/p/glossier-new-fragrance-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -5590,15 +4969,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Zendaya
 
-## [Prada SS25: On the Edge of Tomorrow](https://www.highsnobiety.com/p/prada-ss25-womenswear/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 19 Sep 2024 14:05:27 GMT*
-
-
-## Zendaya
-
 ## [With New Fragrances, Glossier Moves Beyond 'You'](https://www.highsnobiety.com/p/glossier-new-fragrance-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -5671,15 +5041,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Will Ferrell
 
-## [Prada SS25: On the Edge of Tomorrow](https://www.highsnobiety.com/p/prada-ss25-womenswear/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 19 Sep 2024 14:05:27 GMT*
-
-
-## Will Ferrell
-
 ## [With New Fragrances, Glossier Moves Beyond 'You'](https://www.highsnobiety.com/p/glossier-new-fragrance-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -5752,15 +5113,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Zazie Beetz
 
-## [Prada SS25: On the Edge of Tomorrow](https://www.highsnobiety.com/p/prada-ss25-womenswear/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 19 Sep 2024 14:05:27 GMT*
-
-
-## Zazie Beetz
-
 ## [With New Fragrances, Glossier Moves Beyond 'You'](https://www.highsnobiety.com/p/glossier-new-fragrance-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -5833,15 +5185,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Bob Odenkirk
 
-## [Prada SS25: On the Edge of Tomorrow](https://www.highsnobiety.com/p/prada-ss25-womenswear/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 19 Sep 2024 14:05:27 GMT*
-
-
-## Bob Odenkirk
-
 ## [With New Fragrances, Glossier Moves Beyond 'You'](https://www.highsnobiety.com/p/glossier-new-fragrance-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -5914,15 +5257,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Brad Pitt
 
-## [Prada SS25: On the Edge of Tomorrow](https://www.highsnobiety.com/p/prada-ss25-womenswear/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 19 Sep 2024 14:05:27 GMT*
-
-
-## Brad Pitt
-
 ## [With New Fragrances, Glossier Moves Beyond 'You'](https://www.highsnobiety.com/p/glossier-new-fragrance-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -5995,15 +5329,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Beyoncé
 
-## [Prada SS25: On the Edge of Tomorrow](https://www.highsnobiety.com/p/prada-ss25-womenswear/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 19 Sep 2024 14:05:27 GMT*
-
-
-## Beyoncé
-
 ## [With New Fragrances, Glossier Moves Beyond 'You'](https://www.highsnobiety.com/p/glossier-new-fragrance-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -6076,15 +5401,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Bia
 
-## [Prada SS25: On the Edge of Tomorrow](https://www.highsnobiety.com/p/prada-ss25-womenswear/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 19 Sep 2024 14:05:27 GMT*
-
-
-## Bia
-
 ## [With New Fragrances, Glossier Moves Beyond 'You'](https://www.highsnobiety.com/p/glossier-new-fragrance-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -6157,15 +5473,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Avantika
 
-## [Prada SS25: On the Edge of Tomorrow](https://www.highsnobiety.com/p/prada-ss25-womenswear/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 19 Sep 2024 14:05:27 GMT*
-
-
-## Avantika
-
 ## [With New Fragrances, Glossier Moves Beyond 'You'](https://www.highsnobiety.com/p/glossier-new-fragrance-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -6238,15 +5545,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Bernie Sanders
 
-## [Prada SS25: On the Edge of Tomorrow](https://www.highsnobiety.com/p/prada-ss25-womenswear/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 19 Sep 2024 14:05:27 GMT*
-
-
-## Bernie Sanders
-
 ## [With New Fragrances, Glossier Moves Beyond 'You'](https://www.highsnobiety.com/p/glossier-new-fragrance-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -6319,15 +5617,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Big Sean
 
-## [Prada SS25: On the Edge of Tomorrow](https://www.highsnobiety.com/p/prada-ss25-womenswear/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 19 Sep 2024 14:05:27 GMT*
-
-
-## Big Sean
-
 ## [With New Fragrances, Glossier Moves Beyond 'You'](https://www.highsnobiety.com/p/glossier-new-fragrance-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -6400,15 +5689,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## BlockBoy JB
 
-## [Prada SS25: On the Edge of Tomorrow](https://www.highsnobiety.com/p/prada-ss25-womenswear/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 19 Sep 2024 14:05:27 GMT*
-
-
-## BlockBoy JB
-
 ## [With New Fragrances, Glossier Moves Beyond 'You'](https://www.highsnobiety.com/p/glossier-new-fragrance-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -6481,15 +5761,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Biden
 
-## [Prada SS25: On the Edge of Tomorrow](https://www.highsnobiety.com/p/prada-ss25-womenswear/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 19 Sep 2024 14:05:27 GMT*
-
-
-## Biden
-
 ## [With New Fragrances, Glossier Moves Beyond 'You'](https://www.highsnobiety.com/p/glossier-new-fragrance-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -6562,15 +5833,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Bieber
 
-## [Prada SS25: On the Edge of Tomorrow](https://www.highsnobiety.com/p/prada-ss25-womenswear/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 19 Sep 2024 14:05:27 GMT*
-
-
-## Bieber
-
 ## [With New Fragrances, Glossier Moves Beyond 'You'](https://www.highsnobiety.com/p/glossier-new-fragrance-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -6643,15 +5905,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Paulina Porizkov
 
-## [Prada SS25: On the Edge of Tomorrow](https://www.highsnobiety.com/p/prada-ss25-womenswear/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 19 Sep 2024 14:05:27 GMT*
-
-
-## Paulina Porizkov
-
 ## [With New Fragrances, Glossier Moves Beyond 'You'](https://www.highsnobiety.com/p/glossier-new-fragrance-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -6724,15 +5977,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Paris Hilton
 
-## [Prada SS25: On the Edge of Tomorrow](https://www.highsnobiety.com/p/prada-ss25-womenswear/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 19 Sep 2024 14:05:27 GMT*
-
-
-## Paris Hilton
-
 ## [With New Fragrances, Glossier Moves Beyond 'You'](https://www.highsnobiety.com/p/glossier-new-fragrance-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -6801,15 +6045,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 20 Sep 2024 13:40:45 GMT*
-
-
-## Metro Boomin
-
-## [Prada SS25: On the Edge of Tomorrow](https://www.highsnobiety.com/p/prada-ss25-womenswear/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 19 Sep 2024 14:05:27 GMT*
 
 
 ## Metro Boomin
@@ -6886,15 +6121,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Meghan Markle
 
-## [Prada SS25: On the Edge of Tomorrow](https://www.highsnobiety.com/p/prada-ss25-womenswear/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 19 Sep 2024 14:05:27 GMT*
-
-
-## Meghan Markle
-
 ## [With New Fragrances, Glossier Moves Beyond 'You'](https://www.highsnobiety.com/p/glossier-new-fragrance-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -6963,15 +6189,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 20 Sep 2024 13:40:45 GMT*
-
-
-## Megan Thee Stallion
-
-## [Prada SS25: On the Edge of Tomorrow](https://www.highsnobiety.com/p/prada-ss25-womenswear/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 19 Sep 2024 14:05:27 GMT*
 
 
 ## Megan Thee Stallion
@@ -7048,15 +6265,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Maya Rudolph
 
-## [Prada SS25: On the Edge of Tomorrow](https://www.highsnobiety.com/p/prada-ss25-womenswear/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 19 Sep 2024 14:05:27 GMT*
-
-
-## Maya Rudolph
-
 ## [With New Fragrances, Glossier Moves Beyond 'You'](https://www.highsnobiety.com/p/glossier-new-fragrance-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -7125,15 +6333,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 20 Sep 2024 13:40:45 GMT*
-
-
-## Olivia Rodrigo
-
-## [Prada SS25: On the Edge of Tomorrow](https://www.highsnobiety.com/p/prada-ss25-womenswear/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 19 Sep 2024 14:05:27 GMT*
 
 
 ## Olivia Rodrigo
@@ -7210,15 +6409,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Obama
 
-## [Prada SS25: On the Edge of Tomorrow](https://www.highsnobiety.com/p/prada-ss25-womenswear/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 19 Sep 2024 14:05:27 GMT*
-
-
-## Obama
-
 ## [With New Fragrances, Glossier Moves Beyond 'You'](https://www.highsnobiety.com/p/glossier-new-fragrance-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -7291,15 +6481,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Nicki Minaj
 
-## [Prada SS25: On the Edge of Tomorrow](https://www.highsnobiety.com/p/prada-ss25-womenswear/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 19 Sep 2024 14:05:27 GMT*
-
-
-## Nicki Minaj
-
 ## [With New Fragrances, Glossier Moves Beyond 'You'](https://www.highsnobiety.com/p/glossier-new-fragrance-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -7368,15 +6549,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 20 Sep 2024 13:40:45 GMT*
-
-
-## MrBeast
-
-## [Prada SS25: On the Edge of Tomorrow](https://www.highsnobiety.com/p/prada-ss25-womenswear/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Thu, 19 Sep 2024 14:05:27 GMT*
 
 
 ## MrBeast
