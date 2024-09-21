@@ -1,15 +1,6 @@
 # Latest Stories
 ## Tim Cook
 
-## [2024's Best Sneaker Collaborations – So Far ](https://www.highsnobiety.com/p/best-sneaker-collabs-2024-so-far/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 20 Sep 2024 10:30:01 GMT*
-
-
-## Tim Cook
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -37,15 +28,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Taylor Swift
 
-## [2024's Best Sneaker Collaborations – So Far ](https://www.highsnobiety.com/p/best-sneaker-collabs-2024-so-far/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 20 Sep 2024 10:30:01 GMT*
-
-
-## Taylor Swift
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -73,15 +55,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Tom Brady
 
-## [2024's Best Sneaker Collaborations – So Far ](https://www.highsnobiety.com/p/best-sneaker-collabs-2024-so-far/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 20 Sep 2024 10:30:01 GMT*
-
-
-## Tom Brady
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -109,15 +82,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Tina Fey
 
-## [2024's Best Sneaker Collaborations – So Far ](https://www.highsnobiety.com/p/best-sneaker-collabs-2024-so-far/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 20 Sep 2024 10:30:01 GMT*
-
-
-## Tina Fey
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -145,15 +109,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Steven Yuen
 
-## [2024's Best Sneaker Collaborations – So Far ](https://www.highsnobiety.com/p/best-sneaker-collabs-2024-so-far/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 20 Sep 2024 10:30:01 GMT*
-
-
-## Steven Yuen
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -181,15 +136,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Sommer Ray
 
-## [2024's Best Sneaker Collaborations – So Far ](https://www.highsnobiety.com/p/best-sneaker-collabs-2024-so-far/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 20 Sep 2024 10:30:01 GMT*
-
-
-## Sommer Ray
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -217,15 +163,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Sza
 
-## [2024's Best Sneaker Collaborations – So Far ](https://www.highsnobiety.com/p/best-sneaker-collabs-2024-so-far/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 20 Sep 2024 10:30:01 GMT*
-
-
-## Sza
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -253,15 +190,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Sydney Sweeney
 
-## [2024's Best Sneaker Collaborations – So Far ](https://www.highsnobiety.com/p/best-sneaker-collabs-2024-so-far/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 20 Sep 2024 10:30:01 GMT*
-
-
-## Sydney Sweeney
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -289,15 +217,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Walton Goggins
 
-## [2024's Best Sneaker Collaborations – So Far ](https://www.highsnobiety.com/p/best-sneaker-collabs-2024-so-far/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 20 Sep 2024 10:30:01 GMT*
-
-
-## Walton Goggins
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -325,15 +244,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Tom Holland
 
-## [2024's Best Sneaker Collaborations – So Far ](https://www.highsnobiety.com/p/best-sneaker-collabs-2024-so-far/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 20 Sep 2024 10:30:01 GMT*
-
-
-## Tom Holland
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -361,15 +271,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Gucci Mane
 
-## [2024's Best Sneaker Collaborations – So Far ](https://www.highsnobiety.com/p/best-sneaker-collabs-2024-so-far/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 20 Sep 2024 10:30:01 GMT*
-
-
-## Gucci Mane
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -397,15 +298,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Harry Styles
 
-## [2024's Best Sneaker Collaborations – So Far ](https://www.highsnobiety.com/p/best-sneaker-collabs-2024-so-far/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 20 Sep 2024 10:30:01 GMT*
-
-
-## Harry Styles
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -433,15 +325,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Jake Paul
 
-## [2024's Best Sneaker Collaborations – So Far ](https://www.highsnobiety.com/p/best-sneaker-collabs-2024-so-far/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 20 Sep 2024 10:30:01 GMT*
-
-
-## Jake Paul
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -469,15 +352,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Jameela Jamil
 
-## [2024's Best Sneaker Collaborations – So Far ](https://www.highsnobiety.com/p/best-sneaker-collabs-2024-so-far/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 20 Sep 2024 10:30:01 GMT*
-
-
-## Jameela Jamil
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -505,15 +379,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Elon Musk
 
-## [2024's Best Sneaker Collaborations – So Far ](https://www.highsnobiety.com/p/best-sneaker-collabs-2024-so-far/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 20 Sep 2024 10:30:01 GMT*
-
-
-## Elon Musk
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -541,15 +406,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Gabrielle Union
 
-## [2024's Best Sneaker Collaborations – So Far ](https://www.highsnobiety.com/p/best-sneaker-collabs-2024-so-far/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 20 Sep 2024 10:30:01 GMT*
-
-
-## Gabrielle Union
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -577,15 +433,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Giancarlo Esposito
 
-## [2024's Best Sneaker Collaborations – So Far ](https://www.highsnobiety.com/p/best-sneaker-collabs-2024-so-far/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 20 Sep 2024 10:30:01 GMT*
-
-
-## Giancarlo Esposito
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -613,15 +460,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Gillian Jacobs
 
-## [2024's Best Sneaker Collaborations – So Far ](https://www.highsnobiety.com/p/best-sneaker-collabs-2024-so-far/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 20 Sep 2024 10:30:01 GMT*
-
-
-## Gillian Jacobs
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -649,15 +487,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Jason Mantzoukas
 
-## [2024's Best Sneaker Collaborations – So Far ](https://www.highsnobiety.com/p/best-sneaker-collabs-2024-so-far/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 20 Sep 2024 10:30:01 GMT*
-
-
-## Jason Mantzoukas
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -685,15 +514,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## JB Smoove
 
-## [2024's Best Sneaker Collaborations – So Far ](https://www.highsnobiety.com/p/best-sneaker-collabs-2024-so-far/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 20 Sep 2024 10:30:01 GMT*
-
-
-## JB Smoove
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -721,15 +541,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Madison Pettis
 
-## [2024's Best Sneaker Collaborations – So Far ](https://www.highsnobiety.com/p/best-sneaker-collabs-2024-so-far/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 20 Sep 2024 10:30:01 GMT*
-
-
-## Madison Pettis
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -757,15 +568,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Austin Butler
 
-## [2024's Best Sneaker Collaborations – So Far ](https://www.highsnobiety.com/p/best-sneaker-collabs-2024-so-far/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 20 Sep 2024 10:30:01 GMT*
-
-
-## Austin Butler
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -793,15 +595,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Mark Zuckerberg
 
-## [2024's Best Sneaker Collaborations – So Far ](https://www.highsnobiety.com/p/best-sneaker-collabs-2024-so-far/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 20 Sep 2024 10:30:01 GMT*
-
-
-## Mark Zuckerberg
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -829,15 +622,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Ariana Grande
 
-## [2024's Best Sneaker Collaborations – So Far ](https://www.highsnobiety.com/p/best-sneaker-collabs-2024-so-far/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 20 Sep 2024 10:30:01 GMT*
-
-
-## Ariana Grande
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -865,15 +649,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Livvy Dunne
 
-## [2024's Best Sneaker Collaborations – So Far ](https://www.highsnobiety.com/p/best-sneaker-collabs-2024-so-far/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 20 Sep 2024 10:30:01 GMT*
-
-
-## Livvy Dunne
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -901,15 +676,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Ali Wong
 
-## [2024's Best Sneaker Collaborations – So Far ](https://www.highsnobiety.com/p/best-sneaker-collabs-2024-so-far/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 20 Sep 2024 10:30:01 GMT*
-
-
-## Ali Wong
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -937,15 +703,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Lizzo
 
-## [2024's Best Sneaker Collaborations – So Far ](https://www.highsnobiety.com/p/best-sneaker-collabs-2024-so-far/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 20 Sep 2024 10:30:01 GMT*
-
-
-## Lizzo
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -973,15 +730,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Alison Brie
 
-## [2024's Best Sneaker Collaborations – So Far ](https://www.highsnobiety.com/p/best-sneaker-collabs-2024-so-far/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 20 Sep 2024 10:30:01 GMT*
-
-
-## Alison Brie
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1009,15 +757,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Lil Wayne
 
-## [2024's Best Sneaker Collaborations – So Far ](https://www.highsnobiety.com/p/best-sneaker-collabs-2024-so-far/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 20 Sep 2024 10:30:01 GMT*
-
-
-## Lil Wayne
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1045,15 +784,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Adele
 
-## [2024's Best Sneaker Collaborations – So Far ](https://www.highsnobiety.com/p/best-sneaker-collabs-2024-so-far/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 20 Sep 2024 10:30:01 GMT*
-
-
-## Adele
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1081,15 +811,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Lindsay Lohan
 
-## [2024's Best Sneaker Collaborations – So Far ](https://www.highsnobiety.com/p/best-sneaker-collabs-2024-so-far/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 20 Sep 2024 10:30:01 GMT*
-
-
-## Lindsay Lohan
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1117,15 +838,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Addison Rae
 
-## [2024's Best Sneaker Collaborations – So Far ](https://www.highsnobiety.com/p/best-sneaker-collabs-2024-so-far/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 20 Sep 2024 10:30:01 GMT*
-
-
-## Addison Rae
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1153,15 +865,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Latto
 
-## [2024's Best Sneaker Collaborations – So Far ](https://www.highsnobiety.com/p/best-sneaker-collabs-2024-so-far/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 20 Sep 2024 10:30:01 GMT*
-
-
-## Latto
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1189,15 +892,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Aaron Paul
 
-## [2024's Best Sneaker Collaborations – So Far ](https://www.highsnobiety.com/p/best-sneaker-collabs-2024-so-far/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 20 Sep 2024 10:30:01 GMT*
-
-
-## Aaron Paul
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1225,15 +919,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## LeBron James
 
-## [2024's Best Sneaker Collaborations – So Far ](https://www.highsnobiety.com/p/best-sneaker-collabs-2024-so-far/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 20 Sep 2024 10:30:01 GMT*
-
-
-## LeBron James
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1261,15 +946,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## 50 Cent
 
-## [2024's Best Sneaker Collaborations – So Far ](https://www.highsnobiety.com/p/best-sneaker-collabs-2024-so-far/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 20 Sep 2024 10:30:01 GMT*
-
-
-## 50 Cent
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1297,15 +973,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Kesha
 
-## [2024's Best Sneaker Collaborations – So Far ](https://www.highsnobiety.com/p/best-sneaker-collabs-2024-so-far/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 20 Sep 2024 10:30:01 GMT*
-
-
-## Kesha
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1333,15 +1000,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## 21 Savage
 
-## [2024's Best Sneaker Collaborations – So Far ](https://www.highsnobiety.com/p/best-sneaker-collabs-2024-so-far/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 20 Sep 2024 10:30:01 GMT*
-
-
-## 21 Savage
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1369,15 +1027,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Larry David
 
-## [2024's Best Sneaker Collaborations – So Far ](https://www.highsnobiety.com/p/best-sneaker-collabs-2024-so-far/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 20 Sep 2024 10:30:01 GMT*
-
-
-## Larry David
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1405,15 +1054,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Seth Rogan
 
-## [2024's Best Sneaker Collaborations – So Far ](https://www.highsnobiety.com/p/best-sneaker-collabs-2024-so-far/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 20 Sep 2024 10:30:01 GMT*
-
-
-## Seth Rogan
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1441,15 +1081,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Simone Biles
 
-## [2024's Best Sneaker Collaborations – So Far ](https://www.highsnobiety.com/p/best-sneaker-collabs-2024-so-far/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 20 Sep 2024 10:30:01 GMT*
-
-
-## Simone Biles
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1477,15 +1108,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Pete Davidson
 
-## [2024's Best Sneaker Collaborations – So Far ](https://www.highsnobiety.com/p/best-sneaker-collabs-2024-so-far/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 20 Sep 2024 10:30:01 GMT*
-
-
-## Pete Davidson
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1513,15 +1135,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Prince Harry
 
-## [2024's Best Sneaker Collaborations – So Far ](https://www.highsnobiety.com/p/best-sneaker-collabs-2024-so-far/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 20 Sep 2024 10:30:01 GMT*
-
-
-## Prince Harry
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1549,15 +1162,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Princess of Wales
 
-## [2024's Best Sneaker Collaborations – So Far ](https://www.highsnobiety.com/p/best-sneaker-collabs-2024-so-far/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 20 Sep 2024 10:30:01 GMT*
-
-
-## Princess of Wales
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1585,15 +1189,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Rachel McAdams
 
-## [2024's Best Sneaker Collaborations – So Far ](https://www.highsnobiety.com/p/best-sneaker-collabs-2024-so-far/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 20 Sep 2024 10:30:01 GMT*
-
-
-## Rachel McAdams
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1621,15 +1216,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Reneé Rapp
 
-## [2024's Best Sneaker Collaborations – So Far ](https://www.highsnobiety.com/p/best-sneaker-collabs-2024-so-far/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 20 Sep 2024 10:30:01 GMT*
-
-
-## Reneé Rapp
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1657,15 +1243,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Rick Ross
 
-## [2024's Best Sneaker Collaborations – So Far ](https://www.highsnobiety.com/p/best-sneaker-collabs-2024-so-far/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 20 Sep 2024 10:30:01 GMT*
-
-
-## Rick Ross
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1693,15 +1270,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Sam Ashgari
 
-## [2024's Best Sneaker Collaborations – So Far ](https://www.highsnobiety.com/p/best-sneaker-collabs-2024-so-far/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 20 Sep 2024 10:30:01 GMT*
-
-
-## Sam Ashgari
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1729,15 +1297,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Sandra Oh
 
-## [2024's Best Sneaker Collaborations – So Far ](https://www.highsnobiety.com/p/best-sneaker-collabs-2024-so-far/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 20 Sep 2024 10:30:01 GMT*
-
-
-## Sandra Oh
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1765,15 +1324,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Donald Trump
 
-## [2024's Best Sneaker Collaborations – So Far ](https://www.highsnobiety.com/p/best-sneaker-collabs-2024-so-far/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 20 Sep 2024 10:30:01 GMT*
-
-
-## Donald Trump
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1801,15 +1351,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Diddy
 
-## [2024's Best Sneaker Collaborations – So Far ](https://www.highsnobiety.com/p/best-sneaker-collabs-2024-so-far/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 20 Sep 2024 10:30:01 GMT*
-
-
-## Diddy
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1837,15 +1378,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## City Girls
 
-## [2024's Best Sneaker Collaborations – So Far ](https://www.highsnobiety.com/p/best-sneaker-collabs-2024-so-far/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 20 Sep 2024 10:30:01 GMT*
-
-
-## City Girls
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1873,15 +1405,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Chloe Bailey
 
-## [2024's Best Sneaker Collaborations – So Far ](https://www.highsnobiety.com/p/best-sneaker-collabs-2024-so-far/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 20 Sep 2024 10:30:01 GMT*
-
-
-## Chloe Bailey
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1909,15 +1432,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Charli D Amelio
 
-## [2024's Best Sneaker Collaborations – So Far ](https://www.highsnobiety.com/p/best-sneaker-collabs-2024-so-far/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 20 Sep 2024 10:30:01 GMT*
-
-
-## Charli D Amelio
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1945,15 +1459,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Cardi B
 
-## [2024's Best Sneaker Collaborations – So Far ](https://www.highsnobiety.com/p/best-sneaker-collabs-2024-so-far/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 20 Sep 2024 10:30:01 GMT*
-
-
-## Cardi B
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1981,15 +1486,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Bryan Cranston
 
-## [2024's Best Sneaker Collaborations – So Far ](https://www.highsnobiety.com/p/best-sneaker-collabs-2024-so-far/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 20 Sep 2024 10:30:01 GMT*
-
-
-## Bryan Cranston
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2017,15 +1513,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Brielle Biermann
 
-## [2024's Best Sneaker Collaborations – So Far ](https://www.highsnobiety.com/p/best-sneaker-collabs-2024-so-far/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 20 Sep 2024 10:30:01 GMT*
-
-
-## Brielle Biermann
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2053,15 +1540,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Dua Lipa
 
-## [2024's Best Sneaker Collaborations – So Far ](https://www.highsnobiety.com/p/best-sneaker-collabs-2024-so-far/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 20 Sep 2024 10:30:01 GMT*
-
-
-## Dua Lipa
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2089,15 +1567,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Drake
 
-## [2024's Best Sneaker Collaborations – So Far ](https://www.highsnobiety.com/p/best-sneaker-collabs-2024-so-far/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 20 Sep 2024 10:30:01 GMT*
-
-
-## Drake
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2125,15 +1594,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Jenner
 
-## [2024's Best Sneaker Collaborations – So Far ](https://www.highsnobiety.com/p/best-sneaker-collabs-2024-so-far/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 20 Sep 2024 10:30:01 GMT*
-
-
-## Jenner
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2161,15 +1621,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## J. Cole
 
-## [2024's Best Sneaker Collaborations – So Far ](https://www.highsnobiety.com/p/best-sneaker-collabs-2024-so-far/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 20 Sep 2024 10:30:01 GMT*
-
-
-## J. Cole
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2197,15 +1648,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Jerrod Carmichael
 
-## [2024's Best Sneaker Collaborations – So Far ](https://www.highsnobiety.com/p/best-sneaker-collabs-2024-so-far/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 20 Sep 2024 10:30:01 GMT*
-
-
-## Jerrod Carmichael
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2233,15 +1675,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Jennifer Lawrence
 
-## [2024's Best Sneaker Collaborations – So Far ](https://www.highsnobiety.com/p/best-sneaker-collabs-2024-so-far/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 20 Sep 2024 10:30:01 GMT*
-
-
-## Jennifer Lawrence
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2269,15 +1702,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Joe Biden
 
-## [2024's Best Sneaker Collaborations – So Far ](https://www.highsnobiety.com/p/best-sneaker-collabs-2024-so-far/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 20 Sep 2024 10:30:01 GMT*
-
-
-## Joe Biden
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2305,15 +1729,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## J.K. Simmons
 
-## [2024's Best Sneaker Collaborations – So Far ](https://www.highsnobiety.com/p/best-sneaker-collabs-2024-so-far/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 20 Sep 2024 10:30:01 GMT*
-
-
-## J.K. Simmons
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2341,15 +1756,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Kamala Harris
 
-## [2024's Best Sneaker Collaborations – So Far ](https://www.highsnobiety.com/p/best-sneaker-collabs-2024-so-far/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 20 Sep 2024 10:30:01 GMT*
-
-
-## Kamala Harris
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2377,15 +1783,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## John C Reilly
 
-## [2024's Best Sneaker Collaborations – So Far ](https://www.highsnobiety.com/p/best-sneaker-collabs-2024-so-far/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 20 Sep 2024 10:30:01 GMT*
-
-
-## John C Reilly
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2413,15 +1810,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Kardashian
 
-## [2024's Best Sneaker Collaborations – So Far ](https://www.highsnobiety.com/p/best-sneaker-collabs-2024-so-far/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 20 Sep 2024 10:30:01 GMT*
-
-
-## Kardashian
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2449,15 +1837,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Kanye
 
-## [2024's Best Sneaker Collaborations – So Far ](https://www.highsnobiety.com/p/best-sneaker-collabs-2024-so-far/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 20 Sep 2024 10:30:01 GMT*
-
-
-## Kanye
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2485,15 +1864,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Zendaya
 
-## [2024's Best Sneaker Collaborations – So Far ](https://www.highsnobiety.com/p/best-sneaker-collabs-2024-so-far/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 20 Sep 2024 10:30:01 GMT*
-
-
-## Zendaya
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2521,15 +1891,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Will Ferrell
 
-## [2024's Best Sneaker Collaborations – So Far ](https://www.highsnobiety.com/p/best-sneaker-collabs-2024-so-far/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 20 Sep 2024 10:30:01 GMT*
-
-
-## Will Ferrell
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2557,15 +1918,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Zazie Beetz
 
-## [2024's Best Sneaker Collaborations – So Far ](https://www.highsnobiety.com/p/best-sneaker-collabs-2024-so-far/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 20 Sep 2024 10:30:01 GMT*
-
-
-## Zazie Beetz
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2593,15 +1945,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Bob Odenkirk
 
-## [2024's Best Sneaker Collaborations – So Far ](https://www.highsnobiety.com/p/best-sneaker-collabs-2024-so-far/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 20 Sep 2024 10:30:01 GMT*
-
-
-## Bob Odenkirk
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2629,15 +1972,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Brad Pitt
 
-## [2024's Best Sneaker Collaborations – So Far ](https://www.highsnobiety.com/p/best-sneaker-collabs-2024-so-far/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 20 Sep 2024 10:30:01 GMT*
-
-
-## Brad Pitt
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2665,15 +1999,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Beyoncé
 
-## [2024's Best Sneaker Collaborations – So Far ](https://www.highsnobiety.com/p/best-sneaker-collabs-2024-so-far/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 20 Sep 2024 10:30:01 GMT*
-
-
-## Beyoncé
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2701,15 +2026,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Bia
 
-## [2024's Best Sneaker Collaborations – So Far ](https://www.highsnobiety.com/p/best-sneaker-collabs-2024-so-far/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 20 Sep 2024 10:30:01 GMT*
-
-
-## Bia
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2737,15 +2053,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Avantika
 
-## [2024's Best Sneaker Collaborations – So Far ](https://www.highsnobiety.com/p/best-sneaker-collabs-2024-so-far/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 20 Sep 2024 10:30:01 GMT*
-
-
-## Avantika
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2773,15 +2080,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Bernie Sanders
 
-## [2024's Best Sneaker Collaborations – So Far ](https://www.highsnobiety.com/p/best-sneaker-collabs-2024-so-far/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 20 Sep 2024 10:30:01 GMT*
-
-
-## Bernie Sanders
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2809,15 +2107,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Big Sean
 
-## [2024's Best Sneaker Collaborations – So Far ](https://www.highsnobiety.com/p/best-sneaker-collabs-2024-so-far/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 20 Sep 2024 10:30:01 GMT*
-
-
-## Big Sean
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2845,15 +2134,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## BlockBoy JB
 
-## [2024's Best Sneaker Collaborations – So Far ](https://www.highsnobiety.com/p/best-sneaker-collabs-2024-so-far/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 20 Sep 2024 10:30:01 GMT*
-
-
-## BlockBoy JB
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2881,15 +2161,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Biden
 
-## [2024's Best Sneaker Collaborations – So Far ](https://www.highsnobiety.com/p/best-sneaker-collabs-2024-so-far/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 20 Sep 2024 10:30:01 GMT*
-
-
-## Biden
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2917,15 +2188,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Bieber
 
-## [2024's Best Sneaker Collaborations – So Far ](https://www.highsnobiety.com/p/best-sneaker-collabs-2024-so-far/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 20 Sep 2024 10:30:01 GMT*
-
-
-## Bieber
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2953,15 +2215,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Paulina Porizkov
 
-## [2024's Best Sneaker Collaborations – So Far ](https://www.highsnobiety.com/p/best-sneaker-collabs-2024-so-far/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 20 Sep 2024 10:30:01 GMT*
-
-
-## Paulina Porizkov
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2989,15 +2242,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Paris Hilton
 
-## [2024's Best Sneaker Collaborations – So Far ](https://www.highsnobiety.com/p/best-sneaker-collabs-2024-so-far/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 20 Sep 2024 10:30:01 GMT*
-
-
-## Paris Hilton
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3025,15 +2269,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Metro Boomin
 
-## [2024's Best Sneaker Collaborations – So Far ](https://www.highsnobiety.com/p/best-sneaker-collabs-2024-so-far/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 20 Sep 2024 10:30:01 GMT*
-
-
-## Metro Boomin
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3061,15 +2296,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Meghan Markle
 
-## [2024's Best Sneaker Collaborations – So Far ](https://www.highsnobiety.com/p/best-sneaker-collabs-2024-so-far/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 20 Sep 2024 10:30:01 GMT*
-
-
-## Meghan Markle
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3097,15 +2323,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Megan Thee Stallion
 
-## [2024's Best Sneaker Collaborations – So Far ](https://www.highsnobiety.com/p/best-sneaker-collabs-2024-so-far/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 20 Sep 2024 10:30:01 GMT*
-
-
-## Megan Thee Stallion
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3133,15 +2350,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Maya Rudolph
 
-## [2024's Best Sneaker Collaborations – So Far ](https://www.highsnobiety.com/p/best-sneaker-collabs-2024-so-far/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 20 Sep 2024 10:30:01 GMT*
-
-
-## Maya Rudolph
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3169,15 +2377,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Olivia Rodrigo
 
-## [2024's Best Sneaker Collaborations – So Far ](https://www.highsnobiety.com/p/best-sneaker-collabs-2024-so-far/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 20 Sep 2024 10:30:01 GMT*
-
-
-## Olivia Rodrigo
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3201,15 +2400,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 20 Sep 2024 16:45:58 GMT*
-
-
-## Obama
-
-## [2024's Best Sneaker Collaborations – So Far ](https://www.highsnobiety.com/p/best-sneaker-collabs-2024-so-far/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 20 Sep 2024 10:30:01 GMT*
 
 
 ## Obama
@@ -3241,15 +2431,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Nicki Minaj
 
-## [2024's Best Sneaker Collaborations – So Far ](https://www.highsnobiety.com/p/best-sneaker-collabs-2024-so-far/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 20 Sep 2024 10:30:01 GMT*
-
-
-## Nicki Minaj
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3273,15 +2454,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Fri, 20 Sep 2024 16:45:58 GMT*
-
-
-## MrBeast
-
-## [2024's Best Sneaker Collaborations – So Far ](https://www.highsnobiety.com/p/best-sneaker-collabs-2024-so-far/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Fri, 20 Sep 2024 10:30:01 GMT*
 
 
 ## MrBeast
