@@ -91,15 +91,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Tim Cook
 
-## [Leave It to Carhartt WIP to Cook up Fire-Resistant Slippers](https://www.highsnobiety.com/p/carhartt-wip-subu-slippers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 23 Sep 2024 12:07:44 GMT*
-
-
-## Tim Cook
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -208,15 +199,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Taylor Swift
 
-## [Leave It to Carhartt WIP to Cook up Fire-Resistant Slippers](https://www.highsnobiety.com/p/carhartt-wip-subu-slippers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 23 Sep 2024 12:07:44 GMT*
-
-
-## Taylor Swift
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -325,15 +307,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Tom Brady
 
-## [Leave It to Carhartt WIP to Cook up Fire-Resistant Slippers](https://www.highsnobiety.com/p/carhartt-wip-subu-slippers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 23 Sep 2024 12:07:44 GMT*
-
-
-## Tom Brady
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -442,15 +415,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Tina Fey
 
-## [Leave It to Carhartt WIP to Cook up Fire-Resistant Slippers](https://www.highsnobiety.com/p/carhartt-wip-subu-slippers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 23 Sep 2024 12:07:44 GMT*
-
-
-## Tina Fey
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -559,15 +523,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Steven Yuen
 
-## [Leave It to Carhartt WIP to Cook up Fire-Resistant Slippers](https://www.highsnobiety.com/p/carhartt-wip-subu-slippers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 23 Sep 2024 12:07:44 GMT*
-
-
-## Steven Yuen
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -676,15 +631,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Sommer Ray
 
-## [Leave It to Carhartt WIP to Cook up Fire-Resistant Slippers](https://www.highsnobiety.com/p/carhartt-wip-subu-slippers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 23 Sep 2024 12:07:44 GMT*
-
-
-## Sommer Ray
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -793,15 +739,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Sza
 
-## [Leave It to Carhartt WIP to Cook up Fire-Resistant Slippers](https://www.highsnobiety.com/p/carhartt-wip-subu-slippers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 23 Sep 2024 12:07:44 GMT*
-
-
-## Sza
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -910,15 +847,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Sydney Sweeney
 
-## [Leave It to Carhartt WIP to Cook up Fire-Resistant Slippers](https://www.highsnobiety.com/p/carhartt-wip-subu-slippers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 23 Sep 2024 12:07:44 GMT*
-
-
-## Sydney Sweeney
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1027,15 +955,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Walton Goggins
 
-## [Leave It to Carhartt WIP to Cook up Fire-Resistant Slippers](https://www.highsnobiety.com/p/carhartt-wip-subu-slippers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 23 Sep 2024 12:07:44 GMT*
-
-
-## Walton Goggins
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1144,15 +1063,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Tom Holland
 
-## [Leave It to Carhartt WIP to Cook up Fire-Resistant Slippers](https://www.highsnobiety.com/p/carhartt-wip-subu-slippers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 23 Sep 2024 12:07:44 GMT*
-
-
-## Tom Holland
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1261,15 +1171,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Gucci Mane
 
-## [Leave It to Carhartt WIP to Cook up Fire-Resistant Slippers](https://www.highsnobiety.com/p/carhartt-wip-subu-slippers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 23 Sep 2024 12:07:44 GMT*
-
-
-## Gucci Mane
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1378,15 +1279,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Harry Styles
 
-## [Leave It to Carhartt WIP to Cook up Fire-Resistant Slippers](https://www.highsnobiety.com/p/carhartt-wip-subu-slippers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 23 Sep 2024 12:07:44 GMT*
-
-
-## Harry Styles
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1495,15 +1387,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Jake Paul
 
-## [Leave It to Carhartt WIP to Cook up Fire-Resistant Slippers](https://www.highsnobiety.com/p/carhartt-wip-subu-slippers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 23 Sep 2024 12:07:44 GMT*
-
-
-## Jake Paul
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1612,15 +1495,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Jameela Jamil
 
-## [Leave It to Carhartt WIP to Cook up Fire-Resistant Slippers](https://www.highsnobiety.com/p/carhartt-wip-subu-slippers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 23 Sep 2024 12:07:44 GMT*
-
-
-## Jameela Jamil
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1729,15 +1603,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Elon Musk
 
-## [Leave It to Carhartt WIP to Cook up Fire-Resistant Slippers](https://www.highsnobiety.com/p/carhartt-wip-subu-slippers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 23 Sep 2024 12:07:44 GMT*
-
-
-## Elon Musk
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1846,15 +1711,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Gabrielle Union
 
-## [Leave It to Carhartt WIP to Cook up Fire-Resistant Slippers](https://www.highsnobiety.com/p/carhartt-wip-subu-slippers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 23 Sep 2024 12:07:44 GMT*
-
-
-## Gabrielle Union
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -1963,15 +1819,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Giancarlo Esposito
 
-## [Leave It to Carhartt WIP to Cook up Fire-Resistant Slippers](https://www.highsnobiety.com/p/carhartt-wip-subu-slippers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 23 Sep 2024 12:07:44 GMT*
-
-
-## Giancarlo Esposito
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2080,15 +1927,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Gillian Jacobs
 
-## [Leave It to Carhartt WIP to Cook up Fire-Resistant Slippers](https://www.highsnobiety.com/p/carhartt-wip-subu-slippers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 23 Sep 2024 12:07:44 GMT*
-
-
-## Gillian Jacobs
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2197,15 +2035,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Jason Mantzoukas
 
-## [Leave It to Carhartt WIP to Cook up Fire-Resistant Slippers](https://www.highsnobiety.com/p/carhartt-wip-subu-slippers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 23 Sep 2024 12:07:44 GMT*
-
-
-## Jason Mantzoukas
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2314,15 +2143,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## JB Smoove
 
-## [Leave It to Carhartt WIP to Cook up Fire-Resistant Slippers](https://www.highsnobiety.com/p/carhartt-wip-subu-slippers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 23 Sep 2024 12:07:44 GMT*
-
-
-## JB Smoove
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2431,15 +2251,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Madison Pettis
 
-## [Leave It to Carhartt WIP to Cook up Fire-Resistant Slippers](https://www.highsnobiety.com/p/carhartt-wip-subu-slippers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 23 Sep 2024 12:07:44 GMT*
-
-
-## Madison Pettis
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2548,15 +2359,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Austin Butler
 
-## [Leave It to Carhartt WIP to Cook up Fire-Resistant Slippers](https://www.highsnobiety.com/p/carhartt-wip-subu-slippers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 23 Sep 2024 12:07:44 GMT*
-
-
-## Austin Butler
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2665,15 +2467,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Mark Zuckerberg
 
-## [Leave It to Carhartt WIP to Cook up Fire-Resistant Slippers](https://www.highsnobiety.com/p/carhartt-wip-subu-slippers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 23 Sep 2024 12:07:44 GMT*
-
-
-## Mark Zuckerberg
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2782,15 +2575,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Ariana Grande
 
-## [Leave It to Carhartt WIP to Cook up Fire-Resistant Slippers](https://www.highsnobiety.com/p/carhartt-wip-subu-slippers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 23 Sep 2024 12:07:44 GMT*
-
-
-## Ariana Grande
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -2899,15 +2683,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Livvy Dunne
 
-## [Leave It to Carhartt WIP to Cook up Fire-Resistant Slippers](https://www.highsnobiety.com/p/carhartt-wip-subu-slippers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 23 Sep 2024 12:07:44 GMT*
-
-
-## Livvy Dunne
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3016,15 +2791,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Ali Wong
 
-## [Leave It to Carhartt WIP to Cook up Fire-Resistant Slippers](https://www.highsnobiety.com/p/carhartt-wip-subu-slippers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 23 Sep 2024 12:07:44 GMT*
-
-
-## Ali Wong
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3133,15 +2899,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Lizzo
 
-## [Leave It to Carhartt WIP to Cook up Fire-Resistant Slippers](https://www.highsnobiety.com/p/carhartt-wip-subu-slippers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 23 Sep 2024 12:07:44 GMT*
-
-
-## Lizzo
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3250,15 +3007,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Alison Brie
 
-## [Leave It to Carhartt WIP to Cook up Fire-Resistant Slippers](https://www.highsnobiety.com/p/carhartt-wip-subu-slippers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 23 Sep 2024 12:07:44 GMT*
-
-
-## Alison Brie
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3367,15 +3115,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Lil Wayne
 
-## [Leave It to Carhartt WIP to Cook up Fire-Resistant Slippers](https://www.highsnobiety.com/p/carhartt-wip-subu-slippers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 23 Sep 2024 12:07:44 GMT*
-
-
-## Lil Wayne
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3484,15 +3223,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Adele
 
-## [Leave It to Carhartt WIP to Cook up Fire-Resistant Slippers](https://www.highsnobiety.com/p/carhartt-wip-subu-slippers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 23 Sep 2024 12:07:44 GMT*
-
-
-## Adele
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3601,15 +3331,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Lindsay Lohan
 
-## [Leave It to Carhartt WIP to Cook up Fire-Resistant Slippers](https://www.highsnobiety.com/p/carhartt-wip-subu-slippers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 23 Sep 2024 12:07:44 GMT*
-
-
-## Lindsay Lohan
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3718,15 +3439,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Addison Rae
 
-## [Leave It to Carhartt WIP to Cook up Fire-Resistant Slippers](https://www.highsnobiety.com/p/carhartt-wip-subu-slippers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 23 Sep 2024 12:07:44 GMT*
-
-
-## Addison Rae
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3835,15 +3547,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Latto
 
-## [Leave It to Carhartt WIP to Cook up Fire-Resistant Slippers](https://www.highsnobiety.com/p/carhartt-wip-subu-slippers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 23 Sep 2024 12:07:44 GMT*
-
-
-## Latto
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -3952,15 +3655,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Aaron Paul
 
-## [Leave It to Carhartt WIP to Cook up Fire-Resistant Slippers](https://www.highsnobiety.com/p/carhartt-wip-subu-slippers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 23 Sep 2024 12:07:44 GMT*
-
-
-## Aaron Paul
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -4069,15 +3763,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## LeBron James
 
-## [Leave It to Carhartt WIP to Cook up Fire-Resistant Slippers](https://www.highsnobiety.com/p/carhartt-wip-subu-slippers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 23 Sep 2024 12:07:44 GMT*
-
-
-## LeBron James
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -4186,15 +3871,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## 50 Cent
 
-## [Leave It to Carhartt WIP to Cook up Fire-Resistant Slippers](https://www.highsnobiety.com/p/carhartt-wip-subu-slippers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 23 Sep 2024 12:07:44 GMT*
-
-
-## 50 Cent
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -4303,15 +3979,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Kesha
 
-## [Leave It to Carhartt WIP to Cook up Fire-Resistant Slippers](https://www.highsnobiety.com/p/carhartt-wip-subu-slippers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 23 Sep 2024 12:07:44 GMT*
-
-
-## Kesha
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -4420,15 +4087,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## 21 Savage
 
-## [Leave It to Carhartt WIP to Cook up Fire-Resistant Slippers](https://www.highsnobiety.com/p/carhartt-wip-subu-slippers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 23 Sep 2024 12:07:44 GMT*
-
-
-## 21 Savage
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -4537,15 +4195,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Larry David
 
-## [Leave It to Carhartt WIP to Cook up Fire-Resistant Slippers](https://www.highsnobiety.com/p/carhartt-wip-subu-slippers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 23 Sep 2024 12:07:44 GMT*
-
-
-## Larry David
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -4654,15 +4303,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Seth Rogan
 
-## [Leave It to Carhartt WIP to Cook up Fire-Resistant Slippers](https://www.highsnobiety.com/p/carhartt-wip-subu-slippers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 23 Sep 2024 12:07:44 GMT*
-
-
-## Seth Rogan
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -4771,15 +4411,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Simone Biles
 
-## [Leave It to Carhartt WIP to Cook up Fire-Resistant Slippers](https://www.highsnobiety.com/p/carhartt-wip-subu-slippers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 23 Sep 2024 12:07:44 GMT*
-
-
-## Simone Biles
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -4888,15 +4519,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Pete Davidson
 
-## [Leave It to Carhartt WIP to Cook up Fire-Resistant Slippers](https://www.highsnobiety.com/p/carhartt-wip-subu-slippers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 23 Sep 2024 12:07:44 GMT*
-
-
-## Pete Davidson
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -5005,15 +4627,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Prince Harry
 
-## [Leave It to Carhartt WIP to Cook up Fire-Resistant Slippers](https://www.highsnobiety.com/p/carhartt-wip-subu-slippers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 23 Sep 2024 12:07:44 GMT*
-
-
-## Prince Harry
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -5122,15 +4735,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Princess of Wales
 
-## [Leave It to Carhartt WIP to Cook up Fire-Resistant Slippers](https://www.highsnobiety.com/p/carhartt-wip-subu-slippers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 23 Sep 2024 12:07:44 GMT*
-
-
-## Princess of Wales
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -5239,15 +4843,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Rachel McAdams
 
-## [Leave It to Carhartt WIP to Cook up Fire-Resistant Slippers](https://www.highsnobiety.com/p/carhartt-wip-subu-slippers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 23 Sep 2024 12:07:44 GMT*
-
-
-## Rachel McAdams
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -5356,15 +4951,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Reneé Rapp
 
-## [Leave It to Carhartt WIP to Cook up Fire-Resistant Slippers](https://www.highsnobiety.com/p/carhartt-wip-subu-slippers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 23 Sep 2024 12:07:44 GMT*
-
-
-## Reneé Rapp
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -5473,15 +5059,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Rick Ross
 
-## [Leave It to Carhartt WIP to Cook up Fire-Resistant Slippers](https://www.highsnobiety.com/p/carhartt-wip-subu-slippers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 23 Sep 2024 12:07:44 GMT*
-
-
-## Rick Ross
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -5590,15 +5167,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Sam Ashgari
 
-## [Leave It to Carhartt WIP to Cook up Fire-Resistant Slippers](https://www.highsnobiety.com/p/carhartt-wip-subu-slippers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 23 Sep 2024 12:07:44 GMT*
-
-
-## Sam Ashgari
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -5707,15 +5275,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Sandra Oh
 
-## [Leave It to Carhartt WIP to Cook up Fire-Resistant Slippers](https://www.highsnobiety.com/p/carhartt-wip-subu-slippers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 23 Sep 2024 12:07:44 GMT*
-
-
-## Sandra Oh
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -5824,15 +5383,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Donald Trump
 
-## [Leave It to Carhartt WIP to Cook up Fire-Resistant Slippers](https://www.highsnobiety.com/p/carhartt-wip-subu-slippers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 23 Sep 2024 12:07:44 GMT*
-
-
-## Donald Trump
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -5941,15 +5491,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Diddy
 
-## [Leave It to Carhartt WIP to Cook up Fire-Resistant Slippers](https://www.highsnobiety.com/p/carhartt-wip-subu-slippers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 23 Sep 2024 12:07:44 GMT*
-
-
-## Diddy
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -6058,15 +5599,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## City Girls
 
-## [Leave It to Carhartt WIP to Cook up Fire-Resistant Slippers](https://www.highsnobiety.com/p/carhartt-wip-subu-slippers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 23 Sep 2024 12:07:44 GMT*
-
-
-## City Girls
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -6175,15 +5707,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Chloe Bailey
 
-## [Leave It to Carhartt WIP to Cook up Fire-Resistant Slippers](https://www.highsnobiety.com/p/carhartt-wip-subu-slippers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 23 Sep 2024 12:07:44 GMT*
-
-
-## Chloe Bailey
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -6292,15 +5815,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Charli D Amelio
 
-## [Leave It to Carhartt WIP to Cook up Fire-Resistant Slippers](https://www.highsnobiety.com/p/carhartt-wip-subu-slippers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 23 Sep 2024 12:07:44 GMT*
-
-
-## Charli D Amelio
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -6409,15 +5923,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Cardi B
 
-## [Leave It to Carhartt WIP to Cook up Fire-Resistant Slippers](https://www.highsnobiety.com/p/carhartt-wip-subu-slippers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 23 Sep 2024 12:07:44 GMT*
-
-
-## Cardi B
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -6526,15 +6031,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Bryan Cranston
 
-## [Leave It to Carhartt WIP to Cook up Fire-Resistant Slippers](https://www.highsnobiety.com/p/carhartt-wip-subu-slippers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 23 Sep 2024 12:07:44 GMT*
-
-
-## Bryan Cranston
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -6643,15 +6139,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Brielle Biermann
 
-## [Leave It to Carhartt WIP to Cook up Fire-Resistant Slippers](https://www.highsnobiety.com/p/carhartt-wip-subu-slippers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 23 Sep 2024 12:07:44 GMT*
-
-
-## Brielle Biermann
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -6760,15 +6247,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Dua Lipa
 
-## [Leave It to Carhartt WIP to Cook up Fire-Resistant Slippers](https://www.highsnobiety.com/p/carhartt-wip-subu-slippers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 23 Sep 2024 12:07:44 GMT*
-
-
-## Dua Lipa
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -6877,15 +6355,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Drake
 
-## [Leave It to Carhartt WIP to Cook up Fire-Resistant Slippers](https://www.highsnobiety.com/p/carhartt-wip-subu-slippers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 23 Sep 2024 12:07:44 GMT*
-
-
-## Drake
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -6994,15 +6463,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Jenner
 
-## [Leave It to Carhartt WIP to Cook up Fire-Resistant Slippers](https://www.highsnobiety.com/p/carhartt-wip-subu-slippers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 23 Sep 2024 12:07:44 GMT*
-
-
-## Jenner
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -7111,15 +6571,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## J. Cole
 
-## [Leave It to Carhartt WIP to Cook up Fire-Resistant Slippers](https://www.highsnobiety.com/p/carhartt-wip-subu-slippers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 23 Sep 2024 12:07:44 GMT*
-
-
-## J. Cole
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -7228,15 +6679,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Jerrod Carmichael
 
-## [Leave It to Carhartt WIP to Cook up Fire-Resistant Slippers](https://www.highsnobiety.com/p/carhartt-wip-subu-slippers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 23 Sep 2024 12:07:44 GMT*
-
-
-## Jerrod Carmichael
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -7345,15 +6787,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Jennifer Lawrence
 
-## [Leave It to Carhartt WIP to Cook up Fire-Resistant Slippers](https://www.highsnobiety.com/p/carhartt-wip-subu-slippers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 23 Sep 2024 12:07:44 GMT*
-
-
-## Jennifer Lawrence
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -7462,15 +6895,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Joe Biden
 
-## [Leave It to Carhartt WIP to Cook up Fire-Resistant Slippers](https://www.highsnobiety.com/p/carhartt-wip-subu-slippers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 23 Sep 2024 12:07:44 GMT*
-
-
-## Joe Biden
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -7579,15 +7003,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## J.K. Simmons
 
-## [Leave It to Carhartt WIP to Cook up Fire-Resistant Slippers](https://www.highsnobiety.com/p/carhartt-wip-subu-slippers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 23 Sep 2024 12:07:44 GMT*
-
-
-## J.K. Simmons
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -7696,15 +7111,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Kamala Harris
 
-## [Leave It to Carhartt WIP to Cook up Fire-Resistant Slippers](https://www.highsnobiety.com/p/carhartt-wip-subu-slippers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 23 Sep 2024 12:07:44 GMT*
-
-
-## Kamala Harris
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -7813,15 +7219,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## John C Reilly
 
-## [Leave It to Carhartt WIP to Cook up Fire-Resistant Slippers](https://www.highsnobiety.com/p/carhartt-wip-subu-slippers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 23 Sep 2024 12:07:44 GMT*
-
-
-## John C Reilly
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -7930,15 +7327,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Kardashian
 
-## [Leave It to Carhartt WIP to Cook up Fire-Resistant Slippers](https://www.highsnobiety.com/p/carhartt-wip-subu-slippers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 23 Sep 2024 12:07:44 GMT*
-
-
-## Kardashian
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -8047,15 +7435,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Kanye
 
-## [Leave It to Carhartt WIP to Cook up Fire-Resistant Slippers](https://www.highsnobiety.com/p/carhartt-wip-subu-slippers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 23 Sep 2024 12:07:44 GMT*
-
-
-## Kanye
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -8164,15 +7543,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Zendaya
 
-## [Leave It to Carhartt WIP to Cook up Fire-Resistant Slippers](https://www.highsnobiety.com/p/carhartt-wip-subu-slippers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 23 Sep 2024 12:07:44 GMT*
-
-
-## Zendaya
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -8281,15 +7651,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Will Ferrell
 
-## [Leave It to Carhartt WIP to Cook up Fire-Resistant Slippers](https://www.highsnobiety.com/p/carhartt-wip-subu-slippers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 23 Sep 2024 12:07:44 GMT*
-
-
-## Will Ferrell
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -8398,15 +7759,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Zazie Beetz
 
-## [Leave It to Carhartt WIP to Cook up Fire-Resistant Slippers](https://www.highsnobiety.com/p/carhartt-wip-subu-slippers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 23 Sep 2024 12:07:44 GMT*
-
-
-## Zazie Beetz
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -8515,15 +7867,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Bob Odenkirk
 
-## [Leave It to Carhartt WIP to Cook up Fire-Resistant Slippers](https://www.highsnobiety.com/p/carhartt-wip-subu-slippers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 23 Sep 2024 12:07:44 GMT*
-
-
-## Bob Odenkirk
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -8632,15 +7975,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Brad Pitt
 
-## [Leave It to Carhartt WIP to Cook up Fire-Resistant Slippers](https://www.highsnobiety.com/p/carhartt-wip-subu-slippers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 23 Sep 2024 12:07:44 GMT*
-
-
-## Brad Pitt
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -8749,15 +8083,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Beyoncé
 
-## [Leave It to Carhartt WIP to Cook up Fire-Resistant Slippers](https://www.highsnobiety.com/p/carhartt-wip-subu-slippers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 23 Sep 2024 12:07:44 GMT*
-
-
-## Beyoncé
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -8866,15 +8191,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Bia
 
-## [Leave It to Carhartt WIP to Cook up Fire-Resistant Slippers](https://www.highsnobiety.com/p/carhartt-wip-subu-slippers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 23 Sep 2024 12:07:44 GMT*
-
-
-## Bia
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -8983,15 +8299,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Avantika
 
-## [Leave It to Carhartt WIP to Cook up Fire-Resistant Slippers](https://www.highsnobiety.com/p/carhartt-wip-subu-slippers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 23 Sep 2024 12:07:44 GMT*
-
-
-## Avantika
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -9100,15 +8407,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Bernie Sanders
 
-## [Leave It to Carhartt WIP to Cook up Fire-Resistant Slippers](https://www.highsnobiety.com/p/carhartt-wip-subu-slippers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 23 Sep 2024 12:07:44 GMT*
-
-
-## Bernie Sanders
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -9217,15 +8515,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Big Sean
 
-## [Leave It to Carhartt WIP to Cook up Fire-Resistant Slippers](https://www.highsnobiety.com/p/carhartt-wip-subu-slippers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 23 Sep 2024 12:07:44 GMT*
-
-
-## Big Sean
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -9334,15 +8623,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## BlockBoy JB
 
-## [Leave It to Carhartt WIP to Cook up Fire-Resistant Slippers](https://www.highsnobiety.com/p/carhartt-wip-subu-slippers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 23 Sep 2024 12:07:44 GMT*
-
-
-## BlockBoy JB
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -9451,15 +8731,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Biden
 
-## [Leave It to Carhartt WIP to Cook up Fire-Resistant Slippers](https://www.highsnobiety.com/p/carhartt-wip-subu-slippers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 23 Sep 2024 12:07:44 GMT*
-
-
-## Biden
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -9568,15 +8839,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Bieber
 
-## [Leave It to Carhartt WIP to Cook up Fire-Resistant Slippers](https://www.highsnobiety.com/p/carhartt-wip-subu-slippers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 23 Sep 2024 12:07:44 GMT*
-
-
-## Bieber
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -9685,15 +8947,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Paulina Porizkov
 
-## [Leave It to Carhartt WIP to Cook up Fire-Resistant Slippers](https://www.highsnobiety.com/p/carhartt-wip-subu-slippers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 23 Sep 2024 12:07:44 GMT*
-
-
-## Paulina Porizkov
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -9802,15 +9055,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Paris Hilton
 
-## [Leave It to Carhartt WIP to Cook up Fire-Resistant Slippers](https://www.highsnobiety.com/p/carhartt-wip-subu-slippers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 23 Sep 2024 12:07:44 GMT*
-
-
-## Paris Hilton
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -9919,15 +9163,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Metro Boomin
 
-## [Leave It to Carhartt WIP to Cook up Fire-Resistant Slippers](https://www.highsnobiety.com/p/carhartt-wip-subu-slippers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 23 Sep 2024 12:07:44 GMT*
-
-
-## Metro Boomin
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -10036,15 +9271,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Meghan Markle
 
-## [Leave It to Carhartt WIP to Cook up Fire-Resistant Slippers](https://www.highsnobiety.com/p/carhartt-wip-subu-slippers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 23 Sep 2024 12:07:44 GMT*
-
-
-## Meghan Markle
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -10153,15 +9379,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Megan Thee Stallion
 
-## [Leave It to Carhartt WIP to Cook up Fire-Resistant Slippers](https://www.highsnobiety.com/p/carhartt-wip-subu-slippers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 23 Sep 2024 12:07:44 GMT*
-
-
-## Megan Thee Stallion
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -10270,15 +9487,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Maya Rudolph
 
-## [Leave It to Carhartt WIP to Cook up Fire-Resistant Slippers](https://www.highsnobiety.com/p/carhartt-wip-subu-slippers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 23 Sep 2024 12:07:44 GMT*
-
-
-## Maya Rudolph
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -10387,15 +9595,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Olivia Rodrigo
 
-## [Leave It to Carhartt WIP to Cook up Fire-Resistant Slippers](https://www.highsnobiety.com/p/carhartt-wip-subu-slippers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 23 Sep 2024 12:07:44 GMT*
-
-
-## Olivia Rodrigo
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -10504,15 +9703,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Obama
 
-## [Leave It to Carhartt WIP to Cook up Fire-Resistant Slippers](https://www.highsnobiety.com/p/carhartt-wip-subu-slippers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 23 Sep 2024 12:07:44 GMT*
-
-
-## Obama
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -10621,15 +9811,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Nicki Minaj
 
-## [Leave It to Carhartt WIP to Cook up Fire-Resistant Slippers](https://www.highsnobiety.com/p/carhartt-wip-subu-slippers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 23 Sep 2024 12:07:44 GMT*
-
-
-## Nicki Minaj
-
 ## [After John Cena Jorts Come Michael Jordan Jeans](https://www.highsnobiety.com/p/baggy-jeans-trend-2024/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -10734,15 +9915,6 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Mon, 23 Sep 2024 13:02:01 GMT*
-
-
-## MrBeast
-
-## [Leave It to Carhartt WIP to Cook up Fire-Resistant Slippers](https://www.highsnobiety.com/p/carhartt-wip-subu-slippers/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Mon, 23 Sep 2024 12:07:44 GMT*
 
 
 ## MrBeast
