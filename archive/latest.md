@@ -1,15 +1,6 @@
 # Latest Stories
 ## Tim Cook
 
-## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
-
-
-## Tim Cook
-
 ## [It's Not Sweater Weather Until the Olsen Twins Say So](https://www.highsnobiety.com/p/mary-kate-ashley-olsen-paris-outfit/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
@@ -82,29 +73,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Tim Cook
 
-## [New Balance TDS Finds Beauty In Techy Running Shoes](https://www.highsnobiety.com/p/new-balance-tokyo-design-studio-fw24/)
+## [A ‘Universal’ Blush Brings Beauty’s Shade Problem Back to Light](https://www.highsnobiety.com/p/ysl-lavender-blush-controversy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 12:55:07 GMT*
-
-
-## Tim Cook
-
-## [I Like Big Totes and I Cannot Lie](https://www.highsnobiety.com/p/totes-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 10:46:11 GMT*
-
-
-## Tim Cook
-
-## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
+*Published on: Wed, 25 Sep 2024 17:17:54 GMT*
 
 
 ## Tim Cook
@@ -122,29 +95,20 @@ Tue, 24 Sep 2024 15:03:51 GMT*
 
 ## Tim Cook
 
-## [Nike’s Reborn Sneaker-Clog Is Fit for a Spider-Man Villain ](https://www.highsnobiety.com/p/nike-clogposite-green-goblin/)
+## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:15:43 GMT*
+*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
 
 
 ## Tim Cook
 
-## [Luxury Fashion Looks Like Luxury Fashion Again. Is That a Good Thing?](https://www.highsnobiety.com/p/luxury-fashion-streetwear-divide/)
+## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:07:11 GMT*
-
-
-## Taylor Swift
-
-## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
+*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
 
 
 ## Taylor Swift
@@ -221,29 +185,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Taylor Swift
 
-## [New Balance TDS Finds Beauty In Techy Running Shoes](https://www.highsnobiety.com/p/new-balance-tokyo-design-studio-fw24/)
+## [A ‘Universal’ Blush Brings Beauty’s Shade Problem Back to Light](https://www.highsnobiety.com/p/ysl-lavender-blush-controversy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 12:55:07 GMT*
-
-
-## Taylor Swift
-
-## [I Like Big Totes and I Cannot Lie](https://www.highsnobiety.com/p/totes-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 10:46:11 GMT*
-
-
-## Taylor Swift
-
-## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
+*Published on: Wed, 25 Sep 2024 17:17:54 GMT*
 
 
 ## Taylor Swift
@@ -261,29 +207,20 @@ Tue, 24 Sep 2024 15:03:51 GMT*
 
 ## Taylor Swift
 
-## [Nike’s Reborn Sneaker-Clog Is Fit for a Spider-Man Villain ](https://www.highsnobiety.com/p/nike-clogposite-green-goblin/)
+## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:15:43 GMT*
+*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
 
 
 ## Taylor Swift
 
-## [Luxury Fashion Looks Like Luxury Fashion Again. Is That a Good Thing?](https://www.highsnobiety.com/p/luxury-fashion-streetwear-divide/)
+## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:07:11 GMT*
-
-
-## Tom Brady
-
-## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
+*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
 
 
 ## Tom Brady
@@ -360,29 +297,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Tom Brady
 
-## [New Balance TDS Finds Beauty In Techy Running Shoes](https://www.highsnobiety.com/p/new-balance-tokyo-design-studio-fw24/)
+## [A ‘Universal’ Blush Brings Beauty’s Shade Problem Back to Light](https://www.highsnobiety.com/p/ysl-lavender-blush-controversy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 12:55:07 GMT*
-
-
-## Tom Brady
-
-## [I Like Big Totes and I Cannot Lie](https://www.highsnobiety.com/p/totes-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 10:46:11 GMT*
-
-
-## Tom Brady
-
-## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
+*Published on: Wed, 25 Sep 2024 17:17:54 GMT*
 
 
 ## Tom Brady
@@ -400,29 +319,20 @@ Tue, 24 Sep 2024 15:03:51 GMT*
 
 ## Tom Brady
 
-## [Nike’s Reborn Sneaker-Clog Is Fit for a Spider-Man Villain ](https://www.highsnobiety.com/p/nike-clogposite-green-goblin/)
+## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:15:43 GMT*
+*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
 
 
 ## Tom Brady
 
-## [Luxury Fashion Looks Like Luxury Fashion Again. Is That a Good Thing?](https://www.highsnobiety.com/p/luxury-fashion-streetwear-divide/)
+## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:07:11 GMT*
-
-
-## Tina Fey
-
-## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
+*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
 
 
 ## Tina Fey
@@ -499,29 +409,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Tina Fey
 
-## [New Balance TDS Finds Beauty In Techy Running Shoes](https://www.highsnobiety.com/p/new-balance-tokyo-design-studio-fw24/)
+## [A ‘Universal’ Blush Brings Beauty’s Shade Problem Back to Light](https://www.highsnobiety.com/p/ysl-lavender-blush-controversy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 12:55:07 GMT*
-
-
-## Tina Fey
-
-## [I Like Big Totes and I Cannot Lie](https://www.highsnobiety.com/p/totes-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 10:46:11 GMT*
-
-
-## Tina Fey
-
-## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
+*Published on: Wed, 25 Sep 2024 17:17:54 GMT*
 
 
 ## Tina Fey
@@ -539,29 +431,20 @@ Tue, 24 Sep 2024 15:03:51 GMT*
 
 ## Tina Fey
 
-## [Nike’s Reborn Sneaker-Clog Is Fit for a Spider-Man Villain ](https://www.highsnobiety.com/p/nike-clogposite-green-goblin/)
+## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:15:43 GMT*
+*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
 
 
 ## Tina Fey
 
-## [Luxury Fashion Looks Like Luxury Fashion Again. Is That a Good Thing?](https://www.highsnobiety.com/p/luxury-fashion-streetwear-divide/)
+## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:07:11 GMT*
-
-
-## Steven Yuen
-
-## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
+*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
 
 
 ## Steven Yuen
@@ -638,29 +521,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Steven Yuen
 
-## [New Balance TDS Finds Beauty In Techy Running Shoes](https://www.highsnobiety.com/p/new-balance-tokyo-design-studio-fw24/)
+## [A ‘Universal’ Blush Brings Beauty’s Shade Problem Back to Light](https://www.highsnobiety.com/p/ysl-lavender-blush-controversy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 12:55:07 GMT*
-
-
-## Steven Yuen
-
-## [I Like Big Totes and I Cannot Lie](https://www.highsnobiety.com/p/totes-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 10:46:11 GMT*
-
-
-## Steven Yuen
-
-## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
+*Published on: Wed, 25 Sep 2024 17:17:54 GMT*
 
 
 ## Steven Yuen
@@ -678,29 +543,20 @@ Tue, 24 Sep 2024 15:03:51 GMT*
 
 ## Steven Yuen
 
-## [Nike’s Reborn Sneaker-Clog Is Fit for a Spider-Man Villain ](https://www.highsnobiety.com/p/nike-clogposite-green-goblin/)
+## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:15:43 GMT*
+*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
 
 
 ## Steven Yuen
 
-## [Luxury Fashion Looks Like Luxury Fashion Again. Is That a Good Thing?](https://www.highsnobiety.com/p/luxury-fashion-streetwear-divide/)
+## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:07:11 GMT*
-
-
-## Sommer Ray
-
-## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
+*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
 
 
 ## Sommer Ray
@@ -777,29 +633,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Sommer Ray
 
-## [New Balance TDS Finds Beauty In Techy Running Shoes](https://www.highsnobiety.com/p/new-balance-tokyo-design-studio-fw24/)
+## [A ‘Universal’ Blush Brings Beauty’s Shade Problem Back to Light](https://www.highsnobiety.com/p/ysl-lavender-blush-controversy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 12:55:07 GMT*
-
-
-## Sommer Ray
-
-## [I Like Big Totes and I Cannot Lie](https://www.highsnobiety.com/p/totes-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 10:46:11 GMT*
-
-
-## Sommer Ray
-
-## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
+*Published on: Wed, 25 Sep 2024 17:17:54 GMT*
 
 
 ## Sommer Ray
@@ -817,29 +655,20 @@ Tue, 24 Sep 2024 15:03:51 GMT*
 
 ## Sommer Ray
 
-## [Nike’s Reborn Sneaker-Clog Is Fit for a Spider-Man Villain ](https://www.highsnobiety.com/p/nike-clogposite-green-goblin/)
+## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:15:43 GMT*
+*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
 
 
 ## Sommer Ray
 
-## [Luxury Fashion Looks Like Luxury Fashion Again. Is That a Good Thing?](https://www.highsnobiety.com/p/luxury-fashion-streetwear-divide/)
+## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:07:11 GMT*
-
-
-## Sza
-
-## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
+*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
 
 
 ## Sza
@@ -916,29 +745,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Sza
 
-## [New Balance TDS Finds Beauty In Techy Running Shoes](https://www.highsnobiety.com/p/new-balance-tokyo-design-studio-fw24/)
+## [A ‘Universal’ Blush Brings Beauty’s Shade Problem Back to Light](https://www.highsnobiety.com/p/ysl-lavender-blush-controversy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 12:55:07 GMT*
-
-
-## Sza
-
-## [I Like Big Totes and I Cannot Lie](https://www.highsnobiety.com/p/totes-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 10:46:11 GMT*
-
-
-## Sza
-
-## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
+*Published on: Wed, 25 Sep 2024 17:17:54 GMT*
 
 
 ## Sza
@@ -956,29 +767,20 @@ Tue, 24 Sep 2024 15:03:51 GMT*
 
 ## Sza
 
-## [Nike’s Reborn Sneaker-Clog Is Fit for a Spider-Man Villain ](https://www.highsnobiety.com/p/nike-clogposite-green-goblin/)
+## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:15:43 GMT*
+*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
 
 
 ## Sza
 
-## [Luxury Fashion Looks Like Luxury Fashion Again. Is That a Good Thing?](https://www.highsnobiety.com/p/luxury-fashion-streetwear-divide/)
+## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:07:11 GMT*
-
-
-## Sydney Sweeney
-
-## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
+*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
 
 
 ## Sydney Sweeney
@@ -1055,29 +857,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Sydney Sweeney
 
-## [New Balance TDS Finds Beauty In Techy Running Shoes](https://www.highsnobiety.com/p/new-balance-tokyo-design-studio-fw24/)
+## [A ‘Universal’ Blush Brings Beauty’s Shade Problem Back to Light](https://www.highsnobiety.com/p/ysl-lavender-blush-controversy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 12:55:07 GMT*
-
-
-## Sydney Sweeney
-
-## [I Like Big Totes and I Cannot Lie](https://www.highsnobiety.com/p/totes-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 10:46:11 GMT*
-
-
-## Sydney Sweeney
-
-## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
+*Published on: Wed, 25 Sep 2024 17:17:54 GMT*
 
 
 ## Sydney Sweeney
@@ -1095,29 +879,20 @@ Tue, 24 Sep 2024 15:03:51 GMT*
 
 ## Sydney Sweeney
 
-## [Nike’s Reborn Sneaker-Clog Is Fit for a Spider-Man Villain ](https://www.highsnobiety.com/p/nike-clogposite-green-goblin/)
+## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:15:43 GMT*
+*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
 
 
 ## Sydney Sweeney
 
-## [Luxury Fashion Looks Like Luxury Fashion Again. Is That a Good Thing?](https://www.highsnobiety.com/p/luxury-fashion-streetwear-divide/)
+## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:07:11 GMT*
-
-
-## Walton Goggins
-
-## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
+*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
 
 
 ## Walton Goggins
@@ -1194,29 +969,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Walton Goggins
 
-## [New Balance TDS Finds Beauty In Techy Running Shoes](https://www.highsnobiety.com/p/new-balance-tokyo-design-studio-fw24/)
+## [A ‘Universal’ Blush Brings Beauty’s Shade Problem Back to Light](https://www.highsnobiety.com/p/ysl-lavender-blush-controversy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 12:55:07 GMT*
-
-
-## Walton Goggins
-
-## [I Like Big Totes and I Cannot Lie](https://www.highsnobiety.com/p/totes-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 10:46:11 GMT*
-
-
-## Walton Goggins
-
-## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
+*Published on: Wed, 25 Sep 2024 17:17:54 GMT*
 
 
 ## Walton Goggins
@@ -1234,29 +991,20 @@ Tue, 24 Sep 2024 15:03:51 GMT*
 
 ## Walton Goggins
 
-## [Nike’s Reborn Sneaker-Clog Is Fit for a Spider-Man Villain ](https://www.highsnobiety.com/p/nike-clogposite-green-goblin/)
+## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:15:43 GMT*
+*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
 
 
 ## Walton Goggins
 
-## [Luxury Fashion Looks Like Luxury Fashion Again. Is That a Good Thing?](https://www.highsnobiety.com/p/luxury-fashion-streetwear-divide/)
+## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:07:11 GMT*
-
-
-## Tom Holland
-
-## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
+*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
 
 
 ## Tom Holland
@@ -1333,29 +1081,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Tom Holland
 
-## [New Balance TDS Finds Beauty In Techy Running Shoes](https://www.highsnobiety.com/p/new-balance-tokyo-design-studio-fw24/)
+## [A ‘Universal’ Blush Brings Beauty’s Shade Problem Back to Light](https://www.highsnobiety.com/p/ysl-lavender-blush-controversy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 12:55:07 GMT*
-
-
-## Tom Holland
-
-## [I Like Big Totes and I Cannot Lie](https://www.highsnobiety.com/p/totes-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 10:46:11 GMT*
-
-
-## Tom Holland
-
-## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
+*Published on: Wed, 25 Sep 2024 17:17:54 GMT*
 
 
 ## Tom Holland
@@ -1373,29 +1103,20 @@ Tue, 24 Sep 2024 15:03:51 GMT*
 
 ## Tom Holland
 
-## [Nike’s Reborn Sneaker-Clog Is Fit for a Spider-Man Villain ](https://www.highsnobiety.com/p/nike-clogposite-green-goblin/)
+## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:15:43 GMT*
+*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
 
 
 ## Tom Holland
 
-## [Luxury Fashion Looks Like Luxury Fashion Again. Is That a Good Thing?](https://www.highsnobiety.com/p/luxury-fashion-streetwear-divide/)
+## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:07:11 GMT*
-
-
-## Gucci Mane
-
-## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
+*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
 
 
 ## Gucci Mane
@@ -1472,29 +1193,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Gucci Mane
 
-## [New Balance TDS Finds Beauty In Techy Running Shoes](https://www.highsnobiety.com/p/new-balance-tokyo-design-studio-fw24/)
+## [A ‘Universal’ Blush Brings Beauty’s Shade Problem Back to Light](https://www.highsnobiety.com/p/ysl-lavender-blush-controversy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 12:55:07 GMT*
-
-
-## Gucci Mane
-
-## [I Like Big Totes and I Cannot Lie](https://www.highsnobiety.com/p/totes-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 10:46:11 GMT*
-
-
-## Gucci Mane
-
-## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
+*Published on: Wed, 25 Sep 2024 17:17:54 GMT*
 
 
 ## Gucci Mane
@@ -1512,29 +1215,20 @@ Tue, 24 Sep 2024 15:03:51 GMT*
 
 ## Gucci Mane
 
-## [Nike’s Reborn Sneaker-Clog Is Fit for a Spider-Man Villain ](https://www.highsnobiety.com/p/nike-clogposite-green-goblin/)
+## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:15:43 GMT*
+*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
 
 
 ## Gucci Mane
 
-## [Luxury Fashion Looks Like Luxury Fashion Again. Is That a Good Thing?](https://www.highsnobiety.com/p/luxury-fashion-streetwear-divide/)
+## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:07:11 GMT*
-
-
-## Harry Styles
-
-## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
+*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
 
 
 ## Harry Styles
@@ -1611,29 +1305,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Harry Styles
 
-## [New Balance TDS Finds Beauty In Techy Running Shoes](https://www.highsnobiety.com/p/new-balance-tokyo-design-studio-fw24/)
+## [A ‘Universal’ Blush Brings Beauty’s Shade Problem Back to Light](https://www.highsnobiety.com/p/ysl-lavender-blush-controversy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 12:55:07 GMT*
-
-
-## Harry Styles
-
-## [I Like Big Totes and I Cannot Lie](https://www.highsnobiety.com/p/totes-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 10:46:11 GMT*
-
-
-## Harry Styles
-
-## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
+*Published on: Wed, 25 Sep 2024 17:17:54 GMT*
 
 
 ## Harry Styles
@@ -1651,29 +1327,20 @@ Tue, 24 Sep 2024 15:03:51 GMT*
 
 ## Harry Styles
 
-## [Nike’s Reborn Sneaker-Clog Is Fit for a Spider-Man Villain ](https://www.highsnobiety.com/p/nike-clogposite-green-goblin/)
+## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:15:43 GMT*
+*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
 
 
 ## Harry Styles
 
-## [Luxury Fashion Looks Like Luxury Fashion Again. Is That a Good Thing?](https://www.highsnobiety.com/p/luxury-fashion-streetwear-divide/)
+## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:07:11 GMT*
-
-
-## Jake Paul
-
-## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
+*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
 
 
 ## Jake Paul
@@ -1750,29 +1417,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Jake Paul
 
-## [New Balance TDS Finds Beauty In Techy Running Shoes](https://www.highsnobiety.com/p/new-balance-tokyo-design-studio-fw24/)
+## [A ‘Universal’ Blush Brings Beauty’s Shade Problem Back to Light](https://www.highsnobiety.com/p/ysl-lavender-blush-controversy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 12:55:07 GMT*
-
-
-## Jake Paul
-
-## [I Like Big Totes and I Cannot Lie](https://www.highsnobiety.com/p/totes-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 10:46:11 GMT*
-
-
-## Jake Paul
-
-## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
+*Published on: Wed, 25 Sep 2024 17:17:54 GMT*
 
 
 ## Jake Paul
@@ -1790,29 +1439,20 @@ Tue, 24 Sep 2024 15:03:51 GMT*
 
 ## Jake Paul
 
-## [Nike’s Reborn Sneaker-Clog Is Fit for a Spider-Man Villain ](https://www.highsnobiety.com/p/nike-clogposite-green-goblin/)
+## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:15:43 GMT*
+*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
 
 
 ## Jake Paul
 
-## [Luxury Fashion Looks Like Luxury Fashion Again. Is That a Good Thing?](https://www.highsnobiety.com/p/luxury-fashion-streetwear-divide/)
+## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:07:11 GMT*
-
-
-## Jameela Jamil
-
-## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
+*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
 
 
 ## Jameela Jamil
@@ -1889,29 +1529,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Jameela Jamil
 
-## [New Balance TDS Finds Beauty In Techy Running Shoes](https://www.highsnobiety.com/p/new-balance-tokyo-design-studio-fw24/)
+## [A ‘Universal’ Blush Brings Beauty’s Shade Problem Back to Light](https://www.highsnobiety.com/p/ysl-lavender-blush-controversy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 12:55:07 GMT*
-
-
-## Jameela Jamil
-
-## [I Like Big Totes and I Cannot Lie](https://www.highsnobiety.com/p/totes-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 10:46:11 GMT*
-
-
-## Jameela Jamil
-
-## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
+*Published on: Wed, 25 Sep 2024 17:17:54 GMT*
 
 
 ## Jameela Jamil
@@ -1929,29 +1551,20 @@ Tue, 24 Sep 2024 15:03:51 GMT*
 
 ## Jameela Jamil
 
-## [Nike’s Reborn Sneaker-Clog Is Fit for a Spider-Man Villain ](https://www.highsnobiety.com/p/nike-clogposite-green-goblin/)
+## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:15:43 GMT*
+*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
 
 
 ## Jameela Jamil
 
-## [Luxury Fashion Looks Like Luxury Fashion Again. Is That a Good Thing?](https://www.highsnobiety.com/p/luxury-fashion-streetwear-divide/)
+## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:07:11 GMT*
-
-
-## Elon Musk
-
-## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
+*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
 
 
 ## Elon Musk
@@ -2028,29 +1641,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Elon Musk
 
-## [New Balance TDS Finds Beauty In Techy Running Shoes](https://www.highsnobiety.com/p/new-balance-tokyo-design-studio-fw24/)
+## [A ‘Universal’ Blush Brings Beauty’s Shade Problem Back to Light](https://www.highsnobiety.com/p/ysl-lavender-blush-controversy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 12:55:07 GMT*
-
-
-## Elon Musk
-
-## [I Like Big Totes and I Cannot Lie](https://www.highsnobiety.com/p/totes-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 10:46:11 GMT*
-
-
-## Elon Musk
-
-## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
+*Published on: Wed, 25 Sep 2024 17:17:54 GMT*
 
 
 ## Elon Musk
@@ -2068,29 +1663,20 @@ Tue, 24 Sep 2024 15:03:51 GMT*
 
 ## Elon Musk
 
-## [Nike’s Reborn Sneaker-Clog Is Fit for a Spider-Man Villain ](https://www.highsnobiety.com/p/nike-clogposite-green-goblin/)
+## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:15:43 GMT*
+*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
 
 
 ## Elon Musk
 
-## [Luxury Fashion Looks Like Luxury Fashion Again. Is That a Good Thing?](https://www.highsnobiety.com/p/luxury-fashion-streetwear-divide/)
+## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:07:11 GMT*
-
-
-## Gabrielle Union
-
-## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
+*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
 
 
 ## Gabrielle Union
@@ -2167,29 +1753,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Gabrielle Union
 
-## [New Balance TDS Finds Beauty In Techy Running Shoes](https://www.highsnobiety.com/p/new-balance-tokyo-design-studio-fw24/)
+## [A ‘Universal’ Blush Brings Beauty’s Shade Problem Back to Light](https://www.highsnobiety.com/p/ysl-lavender-blush-controversy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 12:55:07 GMT*
-
-
-## Gabrielle Union
-
-## [I Like Big Totes and I Cannot Lie](https://www.highsnobiety.com/p/totes-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 10:46:11 GMT*
-
-
-## Gabrielle Union
-
-## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
+*Published on: Wed, 25 Sep 2024 17:17:54 GMT*
 
 
 ## Gabrielle Union
@@ -2207,29 +1775,20 @@ Tue, 24 Sep 2024 15:03:51 GMT*
 
 ## Gabrielle Union
 
-## [Nike’s Reborn Sneaker-Clog Is Fit for a Spider-Man Villain ](https://www.highsnobiety.com/p/nike-clogposite-green-goblin/)
+## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:15:43 GMT*
+*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
 
 
 ## Gabrielle Union
 
-## [Luxury Fashion Looks Like Luxury Fashion Again. Is That a Good Thing?](https://www.highsnobiety.com/p/luxury-fashion-streetwear-divide/)
+## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:07:11 GMT*
-
-
-## Giancarlo Esposito
-
-## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
+*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
 
 
 ## Giancarlo Esposito
@@ -2306,29 +1865,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Giancarlo Esposito
 
-## [New Balance TDS Finds Beauty In Techy Running Shoes](https://www.highsnobiety.com/p/new-balance-tokyo-design-studio-fw24/)
+## [A ‘Universal’ Blush Brings Beauty’s Shade Problem Back to Light](https://www.highsnobiety.com/p/ysl-lavender-blush-controversy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 12:55:07 GMT*
-
-
-## Giancarlo Esposito
-
-## [I Like Big Totes and I Cannot Lie](https://www.highsnobiety.com/p/totes-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 10:46:11 GMT*
-
-
-## Giancarlo Esposito
-
-## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
+*Published on: Wed, 25 Sep 2024 17:17:54 GMT*
 
 
 ## Giancarlo Esposito
@@ -2346,29 +1887,20 @@ Tue, 24 Sep 2024 15:03:51 GMT*
 
 ## Giancarlo Esposito
 
-## [Nike’s Reborn Sneaker-Clog Is Fit for a Spider-Man Villain ](https://www.highsnobiety.com/p/nike-clogposite-green-goblin/)
+## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:15:43 GMT*
+*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
 
 
 ## Giancarlo Esposito
 
-## [Luxury Fashion Looks Like Luxury Fashion Again. Is That a Good Thing?](https://www.highsnobiety.com/p/luxury-fashion-streetwear-divide/)
+## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:07:11 GMT*
-
-
-## Gillian Jacobs
-
-## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
+*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
 
 
 ## Gillian Jacobs
@@ -2445,29 +1977,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Gillian Jacobs
 
-## [New Balance TDS Finds Beauty In Techy Running Shoes](https://www.highsnobiety.com/p/new-balance-tokyo-design-studio-fw24/)
+## [A ‘Universal’ Blush Brings Beauty’s Shade Problem Back to Light](https://www.highsnobiety.com/p/ysl-lavender-blush-controversy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 12:55:07 GMT*
-
-
-## Gillian Jacobs
-
-## [I Like Big Totes and I Cannot Lie](https://www.highsnobiety.com/p/totes-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 10:46:11 GMT*
-
-
-## Gillian Jacobs
-
-## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
+*Published on: Wed, 25 Sep 2024 17:17:54 GMT*
 
 
 ## Gillian Jacobs
@@ -2485,29 +1999,20 @@ Tue, 24 Sep 2024 15:03:51 GMT*
 
 ## Gillian Jacobs
 
-## [Nike’s Reborn Sneaker-Clog Is Fit for a Spider-Man Villain ](https://www.highsnobiety.com/p/nike-clogposite-green-goblin/)
+## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:15:43 GMT*
+*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
 
 
 ## Gillian Jacobs
 
-## [Luxury Fashion Looks Like Luxury Fashion Again. Is That a Good Thing?](https://www.highsnobiety.com/p/luxury-fashion-streetwear-divide/)
+## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:07:11 GMT*
-
-
-## Jason Mantzoukas
-
-## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
+*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
 
 
 ## Jason Mantzoukas
@@ -2584,29 +2089,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Jason Mantzoukas
 
-## [New Balance TDS Finds Beauty In Techy Running Shoes](https://www.highsnobiety.com/p/new-balance-tokyo-design-studio-fw24/)
+## [A ‘Universal’ Blush Brings Beauty’s Shade Problem Back to Light](https://www.highsnobiety.com/p/ysl-lavender-blush-controversy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 12:55:07 GMT*
-
-
-## Jason Mantzoukas
-
-## [I Like Big Totes and I Cannot Lie](https://www.highsnobiety.com/p/totes-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 10:46:11 GMT*
-
-
-## Jason Mantzoukas
-
-## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
+*Published on: Wed, 25 Sep 2024 17:17:54 GMT*
 
 
 ## Jason Mantzoukas
@@ -2624,29 +2111,20 @@ Tue, 24 Sep 2024 15:03:51 GMT*
 
 ## Jason Mantzoukas
 
-## [Nike’s Reborn Sneaker-Clog Is Fit for a Spider-Man Villain ](https://www.highsnobiety.com/p/nike-clogposite-green-goblin/)
+## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:15:43 GMT*
+*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
 
 
 ## Jason Mantzoukas
 
-## [Luxury Fashion Looks Like Luxury Fashion Again. Is That a Good Thing?](https://www.highsnobiety.com/p/luxury-fashion-streetwear-divide/)
+## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:07:11 GMT*
-
-
-## JB Smoove
-
-## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
+*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
 
 
 ## JB Smoove
@@ -2723,29 +2201,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## JB Smoove
 
-## [New Balance TDS Finds Beauty In Techy Running Shoes](https://www.highsnobiety.com/p/new-balance-tokyo-design-studio-fw24/)
+## [A ‘Universal’ Blush Brings Beauty’s Shade Problem Back to Light](https://www.highsnobiety.com/p/ysl-lavender-blush-controversy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 12:55:07 GMT*
-
-
-## JB Smoove
-
-## [I Like Big Totes and I Cannot Lie](https://www.highsnobiety.com/p/totes-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 10:46:11 GMT*
-
-
-## JB Smoove
-
-## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
+*Published on: Wed, 25 Sep 2024 17:17:54 GMT*
 
 
 ## JB Smoove
@@ -2763,29 +2223,20 @@ Tue, 24 Sep 2024 15:03:51 GMT*
 
 ## JB Smoove
 
-## [Nike’s Reborn Sneaker-Clog Is Fit for a Spider-Man Villain ](https://www.highsnobiety.com/p/nike-clogposite-green-goblin/)
+## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:15:43 GMT*
+*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
 
 
 ## JB Smoove
 
-## [Luxury Fashion Looks Like Luxury Fashion Again. Is That a Good Thing?](https://www.highsnobiety.com/p/luxury-fashion-streetwear-divide/)
+## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:07:11 GMT*
-
-
-## Madison Pettis
-
-## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
+*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
 
 
 ## Madison Pettis
@@ -2862,29 +2313,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Madison Pettis
 
-## [New Balance TDS Finds Beauty In Techy Running Shoes](https://www.highsnobiety.com/p/new-balance-tokyo-design-studio-fw24/)
+## [A ‘Universal’ Blush Brings Beauty’s Shade Problem Back to Light](https://www.highsnobiety.com/p/ysl-lavender-blush-controversy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 12:55:07 GMT*
-
-
-## Madison Pettis
-
-## [I Like Big Totes and I Cannot Lie](https://www.highsnobiety.com/p/totes-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 10:46:11 GMT*
-
-
-## Madison Pettis
-
-## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
+*Published on: Wed, 25 Sep 2024 17:17:54 GMT*
 
 
 ## Madison Pettis
@@ -2902,29 +2335,20 @@ Tue, 24 Sep 2024 15:03:51 GMT*
 
 ## Madison Pettis
 
-## [Nike’s Reborn Sneaker-Clog Is Fit for a Spider-Man Villain ](https://www.highsnobiety.com/p/nike-clogposite-green-goblin/)
+## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:15:43 GMT*
+*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
 
 
 ## Madison Pettis
 
-## [Luxury Fashion Looks Like Luxury Fashion Again. Is That a Good Thing?](https://www.highsnobiety.com/p/luxury-fashion-streetwear-divide/)
+## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:07:11 GMT*
-
-
-## Austin Butler
-
-## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
+*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
 
 
 ## Austin Butler
@@ -3001,29 +2425,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Austin Butler
 
-## [New Balance TDS Finds Beauty In Techy Running Shoes](https://www.highsnobiety.com/p/new-balance-tokyo-design-studio-fw24/)
+## [A ‘Universal’ Blush Brings Beauty’s Shade Problem Back to Light](https://www.highsnobiety.com/p/ysl-lavender-blush-controversy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 12:55:07 GMT*
-
-
-## Austin Butler
-
-## [I Like Big Totes and I Cannot Lie](https://www.highsnobiety.com/p/totes-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 10:46:11 GMT*
-
-
-## Austin Butler
-
-## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
+*Published on: Wed, 25 Sep 2024 17:17:54 GMT*
 
 
 ## Austin Butler
@@ -3041,29 +2447,20 @@ Tue, 24 Sep 2024 15:03:51 GMT*
 
 ## Austin Butler
 
-## [Nike’s Reborn Sneaker-Clog Is Fit for a Spider-Man Villain ](https://www.highsnobiety.com/p/nike-clogposite-green-goblin/)
+## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:15:43 GMT*
+*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
 
 
 ## Austin Butler
 
-## [Luxury Fashion Looks Like Luxury Fashion Again. Is That a Good Thing?](https://www.highsnobiety.com/p/luxury-fashion-streetwear-divide/)
+## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:07:11 GMT*
-
-
-## Mark Zuckerberg
-
-## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
+*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
 
 
 ## Mark Zuckerberg
@@ -3140,29 +2537,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Mark Zuckerberg
 
-## [New Balance TDS Finds Beauty In Techy Running Shoes](https://www.highsnobiety.com/p/new-balance-tokyo-design-studio-fw24/)
+## [A ‘Universal’ Blush Brings Beauty’s Shade Problem Back to Light](https://www.highsnobiety.com/p/ysl-lavender-blush-controversy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 12:55:07 GMT*
-
-
-## Mark Zuckerberg
-
-## [I Like Big Totes and I Cannot Lie](https://www.highsnobiety.com/p/totes-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 10:46:11 GMT*
-
-
-## Mark Zuckerberg
-
-## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
+*Published on: Wed, 25 Sep 2024 17:17:54 GMT*
 
 
 ## Mark Zuckerberg
@@ -3180,29 +2559,20 @@ Tue, 24 Sep 2024 15:03:51 GMT*
 
 ## Mark Zuckerberg
 
-## [Nike’s Reborn Sneaker-Clog Is Fit for a Spider-Man Villain ](https://www.highsnobiety.com/p/nike-clogposite-green-goblin/)
+## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:15:43 GMT*
+*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
 
 
 ## Mark Zuckerberg
 
-## [Luxury Fashion Looks Like Luxury Fashion Again. Is That a Good Thing?](https://www.highsnobiety.com/p/luxury-fashion-streetwear-divide/)
+## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:07:11 GMT*
-
-
-## Ariana Grande
-
-## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
+*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
 
 
 ## Ariana Grande
@@ -3279,29 +2649,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Ariana Grande
 
-## [New Balance TDS Finds Beauty In Techy Running Shoes](https://www.highsnobiety.com/p/new-balance-tokyo-design-studio-fw24/)
+## [A ‘Universal’ Blush Brings Beauty’s Shade Problem Back to Light](https://www.highsnobiety.com/p/ysl-lavender-blush-controversy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 12:55:07 GMT*
-
-
-## Ariana Grande
-
-## [I Like Big Totes and I Cannot Lie](https://www.highsnobiety.com/p/totes-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 10:46:11 GMT*
-
-
-## Ariana Grande
-
-## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
+*Published on: Wed, 25 Sep 2024 17:17:54 GMT*
 
 
 ## Ariana Grande
@@ -3319,29 +2671,20 @@ Tue, 24 Sep 2024 15:03:51 GMT*
 
 ## Ariana Grande
 
-## [Nike’s Reborn Sneaker-Clog Is Fit for a Spider-Man Villain ](https://www.highsnobiety.com/p/nike-clogposite-green-goblin/)
+## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:15:43 GMT*
+*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
 
 
 ## Ariana Grande
 
-## [Luxury Fashion Looks Like Luxury Fashion Again. Is That a Good Thing?](https://www.highsnobiety.com/p/luxury-fashion-streetwear-divide/)
+## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:07:11 GMT*
-
-
-## Livvy Dunne
-
-## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
+*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
 
 
 ## Livvy Dunne
@@ -3418,29 +2761,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Livvy Dunne
 
-## [New Balance TDS Finds Beauty In Techy Running Shoes](https://www.highsnobiety.com/p/new-balance-tokyo-design-studio-fw24/)
+## [A ‘Universal’ Blush Brings Beauty’s Shade Problem Back to Light](https://www.highsnobiety.com/p/ysl-lavender-blush-controversy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 12:55:07 GMT*
-
-
-## Livvy Dunne
-
-## [I Like Big Totes and I Cannot Lie](https://www.highsnobiety.com/p/totes-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 10:46:11 GMT*
-
-
-## Livvy Dunne
-
-## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
+*Published on: Wed, 25 Sep 2024 17:17:54 GMT*
 
 
 ## Livvy Dunne
@@ -3458,29 +2783,20 @@ Tue, 24 Sep 2024 15:03:51 GMT*
 
 ## Livvy Dunne
 
-## [Nike’s Reborn Sneaker-Clog Is Fit for a Spider-Man Villain ](https://www.highsnobiety.com/p/nike-clogposite-green-goblin/)
+## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:15:43 GMT*
+*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
 
 
 ## Livvy Dunne
 
-## [Luxury Fashion Looks Like Luxury Fashion Again. Is That a Good Thing?](https://www.highsnobiety.com/p/luxury-fashion-streetwear-divide/)
+## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:07:11 GMT*
-
-
-## Ali Wong
-
-## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
+*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
 
 
 ## Ali Wong
@@ -3557,29 +2873,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Ali Wong
 
-## [New Balance TDS Finds Beauty In Techy Running Shoes](https://www.highsnobiety.com/p/new-balance-tokyo-design-studio-fw24/)
+## [A ‘Universal’ Blush Brings Beauty’s Shade Problem Back to Light](https://www.highsnobiety.com/p/ysl-lavender-blush-controversy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 12:55:07 GMT*
-
-
-## Ali Wong
-
-## [I Like Big Totes and I Cannot Lie](https://www.highsnobiety.com/p/totes-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 10:46:11 GMT*
-
-
-## Ali Wong
-
-## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
+*Published on: Wed, 25 Sep 2024 17:17:54 GMT*
 
 
 ## Ali Wong
@@ -3597,29 +2895,20 @@ Tue, 24 Sep 2024 15:03:51 GMT*
 
 ## Ali Wong
 
-## [Nike’s Reborn Sneaker-Clog Is Fit for a Spider-Man Villain ](https://www.highsnobiety.com/p/nike-clogposite-green-goblin/)
+## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:15:43 GMT*
+*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
 
 
 ## Ali Wong
 
-## [Luxury Fashion Looks Like Luxury Fashion Again. Is That a Good Thing?](https://www.highsnobiety.com/p/luxury-fashion-streetwear-divide/)
+## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:07:11 GMT*
-
-
-## Lizzo
-
-## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
+*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
 
 
 ## Lizzo
@@ -3696,29 +2985,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Lizzo
 
-## [New Balance TDS Finds Beauty In Techy Running Shoes](https://www.highsnobiety.com/p/new-balance-tokyo-design-studio-fw24/)
+## [A ‘Universal’ Blush Brings Beauty’s Shade Problem Back to Light](https://www.highsnobiety.com/p/ysl-lavender-blush-controversy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 12:55:07 GMT*
-
-
-## Lizzo
-
-## [I Like Big Totes and I Cannot Lie](https://www.highsnobiety.com/p/totes-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 10:46:11 GMT*
-
-
-## Lizzo
-
-## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
+*Published on: Wed, 25 Sep 2024 17:17:54 GMT*
 
 
 ## Lizzo
@@ -3736,29 +3007,20 @@ Tue, 24 Sep 2024 15:03:51 GMT*
 
 ## Lizzo
 
-## [Nike’s Reborn Sneaker-Clog Is Fit for a Spider-Man Villain ](https://www.highsnobiety.com/p/nike-clogposite-green-goblin/)
+## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:15:43 GMT*
+*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
 
 
 ## Lizzo
 
-## [Luxury Fashion Looks Like Luxury Fashion Again. Is That a Good Thing?](https://www.highsnobiety.com/p/luxury-fashion-streetwear-divide/)
+## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:07:11 GMT*
-
-
-## Alison Brie
-
-## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
+*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
 
 
 ## Alison Brie
@@ -3835,29 +3097,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Alison Brie
 
-## [New Balance TDS Finds Beauty In Techy Running Shoes](https://www.highsnobiety.com/p/new-balance-tokyo-design-studio-fw24/)
+## [A ‘Universal’ Blush Brings Beauty’s Shade Problem Back to Light](https://www.highsnobiety.com/p/ysl-lavender-blush-controversy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 12:55:07 GMT*
-
-
-## Alison Brie
-
-## [I Like Big Totes and I Cannot Lie](https://www.highsnobiety.com/p/totes-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 10:46:11 GMT*
-
-
-## Alison Brie
-
-## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
+*Published on: Wed, 25 Sep 2024 17:17:54 GMT*
 
 
 ## Alison Brie
@@ -3875,29 +3119,20 @@ Tue, 24 Sep 2024 15:03:51 GMT*
 
 ## Alison Brie
 
-## [Nike’s Reborn Sneaker-Clog Is Fit for a Spider-Man Villain ](https://www.highsnobiety.com/p/nike-clogposite-green-goblin/)
+## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:15:43 GMT*
+*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
 
 
 ## Alison Brie
 
-## [Luxury Fashion Looks Like Luxury Fashion Again. Is That a Good Thing?](https://www.highsnobiety.com/p/luxury-fashion-streetwear-divide/)
+## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:07:11 GMT*
-
-
-## Lil Wayne
-
-## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
+*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
 
 
 ## Lil Wayne
@@ -3974,29 +3209,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Lil Wayne
 
-## [New Balance TDS Finds Beauty In Techy Running Shoes](https://www.highsnobiety.com/p/new-balance-tokyo-design-studio-fw24/)
+## [A ‘Universal’ Blush Brings Beauty’s Shade Problem Back to Light](https://www.highsnobiety.com/p/ysl-lavender-blush-controversy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 12:55:07 GMT*
-
-
-## Lil Wayne
-
-## [I Like Big Totes and I Cannot Lie](https://www.highsnobiety.com/p/totes-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 10:46:11 GMT*
-
-
-## Lil Wayne
-
-## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
+*Published on: Wed, 25 Sep 2024 17:17:54 GMT*
 
 
 ## Lil Wayne
@@ -4014,29 +3231,20 @@ Tue, 24 Sep 2024 15:03:51 GMT*
 
 ## Lil Wayne
 
-## [Nike’s Reborn Sneaker-Clog Is Fit for a Spider-Man Villain ](https://www.highsnobiety.com/p/nike-clogposite-green-goblin/)
+## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:15:43 GMT*
+*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
 
 
 ## Lil Wayne
 
-## [Luxury Fashion Looks Like Luxury Fashion Again. Is That a Good Thing?](https://www.highsnobiety.com/p/luxury-fashion-streetwear-divide/)
+## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:07:11 GMT*
-
-
-## Adele
-
-## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
+*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
 
 
 ## Adele
@@ -4113,29 +3321,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Adele
 
-## [New Balance TDS Finds Beauty In Techy Running Shoes](https://www.highsnobiety.com/p/new-balance-tokyo-design-studio-fw24/)
+## [A ‘Universal’ Blush Brings Beauty’s Shade Problem Back to Light](https://www.highsnobiety.com/p/ysl-lavender-blush-controversy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 12:55:07 GMT*
-
-
-## Adele
-
-## [I Like Big Totes and I Cannot Lie](https://www.highsnobiety.com/p/totes-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 10:46:11 GMT*
-
-
-## Adele
-
-## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
+*Published on: Wed, 25 Sep 2024 17:17:54 GMT*
 
 
 ## Adele
@@ -4153,29 +3343,20 @@ Tue, 24 Sep 2024 15:03:51 GMT*
 
 ## Adele
 
-## [Nike’s Reborn Sneaker-Clog Is Fit for a Spider-Man Villain ](https://www.highsnobiety.com/p/nike-clogposite-green-goblin/)
+## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:15:43 GMT*
+*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
 
 
 ## Adele
 
-## [Luxury Fashion Looks Like Luxury Fashion Again. Is That a Good Thing?](https://www.highsnobiety.com/p/luxury-fashion-streetwear-divide/)
+## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:07:11 GMT*
-
-
-## Lindsay Lohan
-
-## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
+*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
 
 
 ## Lindsay Lohan
@@ -4252,29 +3433,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Lindsay Lohan
 
-## [New Balance TDS Finds Beauty In Techy Running Shoes](https://www.highsnobiety.com/p/new-balance-tokyo-design-studio-fw24/)
+## [A ‘Universal’ Blush Brings Beauty’s Shade Problem Back to Light](https://www.highsnobiety.com/p/ysl-lavender-blush-controversy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 12:55:07 GMT*
-
-
-## Lindsay Lohan
-
-## [I Like Big Totes and I Cannot Lie](https://www.highsnobiety.com/p/totes-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 10:46:11 GMT*
-
-
-## Lindsay Lohan
-
-## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
+*Published on: Wed, 25 Sep 2024 17:17:54 GMT*
 
 
 ## Lindsay Lohan
@@ -4292,29 +3455,20 @@ Tue, 24 Sep 2024 15:03:51 GMT*
 
 ## Lindsay Lohan
 
-## [Nike’s Reborn Sneaker-Clog Is Fit for a Spider-Man Villain ](https://www.highsnobiety.com/p/nike-clogposite-green-goblin/)
+## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:15:43 GMT*
+*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
 
 
 ## Lindsay Lohan
 
-## [Luxury Fashion Looks Like Luxury Fashion Again. Is That a Good Thing?](https://www.highsnobiety.com/p/luxury-fashion-streetwear-divide/)
+## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:07:11 GMT*
-
-
-## Addison Rae
-
-## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
+*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
 
 
 ## Addison Rae
@@ -4391,29 +3545,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Addison Rae
 
-## [New Balance TDS Finds Beauty In Techy Running Shoes](https://www.highsnobiety.com/p/new-balance-tokyo-design-studio-fw24/)
+## [A ‘Universal’ Blush Brings Beauty’s Shade Problem Back to Light](https://www.highsnobiety.com/p/ysl-lavender-blush-controversy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 12:55:07 GMT*
-
-
-## Addison Rae
-
-## [I Like Big Totes and I Cannot Lie](https://www.highsnobiety.com/p/totes-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 10:46:11 GMT*
-
-
-## Addison Rae
-
-## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
+*Published on: Wed, 25 Sep 2024 17:17:54 GMT*
 
 
 ## Addison Rae
@@ -4431,29 +3567,20 @@ Tue, 24 Sep 2024 15:03:51 GMT*
 
 ## Addison Rae
 
-## [Nike’s Reborn Sneaker-Clog Is Fit for a Spider-Man Villain ](https://www.highsnobiety.com/p/nike-clogposite-green-goblin/)
+## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:15:43 GMT*
+*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
 
 
 ## Addison Rae
 
-## [Luxury Fashion Looks Like Luxury Fashion Again. Is That a Good Thing?](https://www.highsnobiety.com/p/luxury-fashion-streetwear-divide/)
+## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:07:11 GMT*
-
-
-## Latto
-
-## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
+*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
 
 
 ## Latto
@@ -4530,29 +3657,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Latto
 
-## [New Balance TDS Finds Beauty In Techy Running Shoes](https://www.highsnobiety.com/p/new-balance-tokyo-design-studio-fw24/)
+## [A ‘Universal’ Blush Brings Beauty’s Shade Problem Back to Light](https://www.highsnobiety.com/p/ysl-lavender-blush-controversy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 12:55:07 GMT*
-
-
-## Latto
-
-## [I Like Big Totes and I Cannot Lie](https://www.highsnobiety.com/p/totes-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 10:46:11 GMT*
-
-
-## Latto
-
-## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
+*Published on: Wed, 25 Sep 2024 17:17:54 GMT*
 
 
 ## Latto
@@ -4570,29 +3679,20 @@ Tue, 24 Sep 2024 15:03:51 GMT*
 
 ## Latto
 
-## [Nike’s Reborn Sneaker-Clog Is Fit for a Spider-Man Villain ](https://www.highsnobiety.com/p/nike-clogposite-green-goblin/)
+## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:15:43 GMT*
+*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
 
 
 ## Latto
 
-## [Luxury Fashion Looks Like Luxury Fashion Again. Is That a Good Thing?](https://www.highsnobiety.com/p/luxury-fashion-streetwear-divide/)
+## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:07:11 GMT*
-
-
-## Aaron Paul
-
-## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
+*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
 
 
 ## Aaron Paul
@@ -4669,29 +3769,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Aaron Paul
 
-## [New Balance TDS Finds Beauty In Techy Running Shoes](https://www.highsnobiety.com/p/new-balance-tokyo-design-studio-fw24/)
+## [A ‘Universal’ Blush Brings Beauty’s Shade Problem Back to Light](https://www.highsnobiety.com/p/ysl-lavender-blush-controversy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 12:55:07 GMT*
-
-
-## Aaron Paul
-
-## [I Like Big Totes and I Cannot Lie](https://www.highsnobiety.com/p/totes-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 10:46:11 GMT*
-
-
-## Aaron Paul
-
-## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
+*Published on: Wed, 25 Sep 2024 17:17:54 GMT*
 
 
 ## Aaron Paul
@@ -4709,29 +3791,20 @@ Tue, 24 Sep 2024 15:03:51 GMT*
 
 ## Aaron Paul
 
-## [Nike’s Reborn Sneaker-Clog Is Fit for a Spider-Man Villain ](https://www.highsnobiety.com/p/nike-clogposite-green-goblin/)
+## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:15:43 GMT*
+*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
 
 
 ## Aaron Paul
 
-## [Luxury Fashion Looks Like Luxury Fashion Again. Is That a Good Thing?](https://www.highsnobiety.com/p/luxury-fashion-streetwear-divide/)
+## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:07:11 GMT*
-
-
-## LeBron James
-
-## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
+*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
 
 
 ## LeBron James
@@ -4808,29 +3881,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## LeBron James
 
-## [New Balance TDS Finds Beauty In Techy Running Shoes](https://www.highsnobiety.com/p/new-balance-tokyo-design-studio-fw24/)
+## [A ‘Universal’ Blush Brings Beauty’s Shade Problem Back to Light](https://www.highsnobiety.com/p/ysl-lavender-blush-controversy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 12:55:07 GMT*
-
-
-## LeBron James
-
-## [I Like Big Totes and I Cannot Lie](https://www.highsnobiety.com/p/totes-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 10:46:11 GMT*
-
-
-## LeBron James
-
-## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
+*Published on: Wed, 25 Sep 2024 17:17:54 GMT*
 
 
 ## LeBron James
@@ -4848,29 +3903,20 @@ Tue, 24 Sep 2024 15:03:51 GMT*
 
 ## LeBron James
 
-## [Nike’s Reborn Sneaker-Clog Is Fit for a Spider-Man Villain ](https://www.highsnobiety.com/p/nike-clogposite-green-goblin/)
+## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:15:43 GMT*
+*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
 
 
 ## LeBron James
 
-## [Luxury Fashion Looks Like Luxury Fashion Again. Is That a Good Thing?](https://www.highsnobiety.com/p/luxury-fashion-streetwear-divide/)
+## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:07:11 GMT*
-
-
-## 50 Cent
-
-## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
+*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
 
 
 ## 50 Cent
@@ -4947,29 +3993,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## 50 Cent
 
-## [New Balance TDS Finds Beauty In Techy Running Shoes](https://www.highsnobiety.com/p/new-balance-tokyo-design-studio-fw24/)
+## [A ‘Universal’ Blush Brings Beauty’s Shade Problem Back to Light](https://www.highsnobiety.com/p/ysl-lavender-blush-controversy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 12:55:07 GMT*
-
-
-## 50 Cent
-
-## [I Like Big Totes and I Cannot Lie](https://www.highsnobiety.com/p/totes-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 10:46:11 GMT*
-
-
-## 50 Cent
-
-## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
+*Published on: Wed, 25 Sep 2024 17:17:54 GMT*
 
 
 ## 50 Cent
@@ -4987,29 +4015,20 @@ Tue, 24 Sep 2024 15:03:51 GMT*
 
 ## 50 Cent
 
-## [Nike’s Reborn Sneaker-Clog Is Fit for a Spider-Man Villain ](https://www.highsnobiety.com/p/nike-clogposite-green-goblin/)
+## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:15:43 GMT*
+*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
 
 
 ## 50 Cent
 
-## [Luxury Fashion Looks Like Luxury Fashion Again. Is That a Good Thing?](https://www.highsnobiety.com/p/luxury-fashion-streetwear-divide/)
+## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:07:11 GMT*
-
-
-## Kesha
-
-## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
+*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
 
 
 ## Kesha
@@ -5086,29 +4105,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Kesha
 
-## [New Balance TDS Finds Beauty In Techy Running Shoes](https://www.highsnobiety.com/p/new-balance-tokyo-design-studio-fw24/)
+## [A ‘Universal’ Blush Brings Beauty’s Shade Problem Back to Light](https://www.highsnobiety.com/p/ysl-lavender-blush-controversy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 12:55:07 GMT*
-
-
-## Kesha
-
-## [I Like Big Totes and I Cannot Lie](https://www.highsnobiety.com/p/totes-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 10:46:11 GMT*
-
-
-## Kesha
-
-## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
+*Published on: Wed, 25 Sep 2024 17:17:54 GMT*
 
 
 ## Kesha
@@ -5126,29 +4127,20 @@ Tue, 24 Sep 2024 15:03:51 GMT*
 
 ## Kesha
 
-## [Nike’s Reborn Sneaker-Clog Is Fit for a Spider-Man Villain ](https://www.highsnobiety.com/p/nike-clogposite-green-goblin/)
+## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:15:43 GMT*
+*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
 
 
 ## Kesha
 
-## [Luxury Fashion Looks Like Luxury Fashion Again. Is That a Good Thing?](https://www.highsnobiety.com/p/luxury-fashion-streetwear-divide/)
+## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:07:11 GMT*
-
-
-## 21 Savage
-
-## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
+*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
 
 
 ## 21 Savage
@@ -5225,29 +4217,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## 21 Savage
 
-## [New Balance TDS Finds Beauty In Techy Running Shoes](https://www.highsnobiety.com/p/new-balance-tokyo-design-studio-fw24/)
+## [A ‘Universal’ Blush Brings Beauty’s Shade Problem Back to Light](https://www.highsnobiety.com/p/ysl-lavender-blush-controversy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 12:55:07 GMT*
-
-
-## 21 Savage
-
-## [I Like Big Totes and I Cannot Lie](https://www.highsnobiety.com/p/totes-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 10:46:11 GMT*
-
-
-## 21 Savage
-
-## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
+*Published on: Wed, 25 Sep 2024 17:17:54 GMT*
 
 
 ## 21 Savage
@@ -5265,29 +4239,20 @@ Tue, 24 Sep 2024 15:03:51 GMT*
 
 ## 21 Savage
 
-## [Nike’s Reborn Sneaker-Clog Is Fit for a Spider-Man Villain ](https://www.highsnobiety.com/p/nike-clogposite-green-goblin/)
+## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:15:43 GMT*
+*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
 
 
 ## 21 Savage
 
-## [Luxury Fashion Looks Like Luxury Fashion Again. Is That a Good Thing?](https://www.highsnobiety.com/p/luxury-fashion-streetwear-divide/)
+## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:07:11 GMT*
-
-
-## Larry David
-
-## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
+*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
 
 
 ## Larry David
@@ -5364,29 +4329,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Larry David
 
-## [New Balance TDS Finds Beauty In Techy Running Shoes](https://www.highsnobiety.com/p/new-balance-tokyo-design-studio-fw24/)
+## [A ‘Universal’ Blush Brings Beauty’s Shade Problem Back to Light](https://www.highsnobiety.com/p/ysl-lavender-blush-controversy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 12:55:07 GMT*
-
-
-## Larry David
-
-## [I Like Big Totes and I Cannot Lie](https://www.highsnobiety.com/p/totes-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 10:46:11 GMT*
-
-
-## Larry David
-
-## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
+*Published on: Wed, 25 Sep 2024 17:17:54 GMT*
 
 
 ## Larry David
@@ -5404,29 +4351,20 @@ Tue, 24 Sep 2024 15:03:51 GMT*
 
 ## Larry David
 
-## [Nike’s Reborn Sneaker-Clog Is Fit for a Spider-Man Villain ](https://www.highsnobiety.com/p/nike-clogposite-green-goblin/)
+## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:15:43 GMT*
+*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
 
 
 ## Larry David
 
-## [Luxury Fashion Looks Like Luxury Fashion Again. Is That a Good Thing?](https://www.highsnobiety.com/p/luxury-fashion-streetwear-divide/)
+## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:07:11 GMT*
-
-
-## Seth Rogan
-
-## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
+*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
 
 
 ## Seth Rogan
@@ -5503,29 +4441,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Seth Rogan
 
-## [New Balance TDS Finds Beauty In Techy Running Shoes](https://www.highsnobiety.com/p/new-balance-tokyo-design-studio-fw24/)
+## [A ‘Universal’ Blush Brings Beauty’s Shade Problem Back to Light](https://www.highsnobiety.com/p/ysl-lavender-blush-controversy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 12:55:07 GMT*
-
-
-## Seth Rogan
-
-## [I Like Big Totes and I Cannot Lie](https://www.highsnobiety.com/p/totes-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 10:46:11 GMT*
-
-
-## Seth Rogan
-
-## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
+*Published on: Wed, 25 Sep 2024 17:17:54 GMT*
 
 
 ## Seth Rogan
@@ -5543,29 +4463,20 @@ Tue, 24 Sep 2024 15:03:51 GMT*
 
 ## Seth Rogan
 
-## [Nike’s Reborn Sneaker-Clog Is Fit for a Spider-Man Villain ](https://www.highsnobiety.com/p/nike-clogposite-green-goblin/)
+## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:15:43 GMT*
+*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
 
 
 ## Seth Rogan
 
-## [Luxury Fashion Looks Like Luxury Fashion Again. Is That a Good Thing?](https://www.highsnobiety.com/p/luxury-fashion-streetwear-divide/)
+## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:07:11 GMT*
-
-
-## Simone Biles
-
-## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
+*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
 
 
 ## Simone Biles
@@ -5642,29 +4553,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Simone Biles
 
-## [New Balance TDS Finds Beauty In Techy Running Shoes](https://www.highsnobiety.com/p/new-balance-tokyo-design-studio-fw24/)
+## [A ‘Universal’ Blush Brings Beauty’s Shade Problem Back to Light](https://www.highsnobiety.com/p/ysl-lavender-blush-controversy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 12:55:07 GMT*
-
-
-## Simone Biles
-
-## [I Like Big Totes and I Cannot Lie](https://www.highsnobiety.com/p/totes-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 10:46:11 GMT*
-
-
-## Simone Biles
-
-## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
+*Published on: Wed, 25 Sep 2024 17:17:54 GMT*
 
 
 ## Simone Biles
@@ -5682,29 +4575,20 @@ Tue, 24 Sep 2024 15:03:51 GMT*
 
 ## Simone Biles
 
-## [Nike’s Reborn Sneaker-Clog Is Fit for a Spider-Man Villain ](https://www.highsnobiety.com/p/nike-clogposite-green-goblin/)
+## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:15:43 GMT*
+*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
 
 
 ## Simone Biles
 
-## [Luxury Fashion Looks Like Luxury Fashion Again. Is That a Good Thing?](https://www.highsnobiety.com/p/luxury-fashion-streetwear-divide/)
+## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:07:11 GMT*
-
-
-## Pete Davidson
-
-## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
+*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
 
 
 ## Pete Davidson
@@ -5781,29 +4665,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Pete Davidson
 
-## [New Balance TDS Finds Beauty In Techy Running Shoes](https://www.highsnobiety.com/p/new-balance-tokyo-design-studio-fw24/)
+## [A ‘Universal’ Blush Brings Beauty’s Shade Problem Back to Light](https://www.highsnobiety.com/p/ysl-lavender-blush-controversy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 12:55:07 GMT*
-
-
-## Pete Davidson
-
-## [I Like Big Totes and I Cannot Lie](https://www.highsnobiety.com/p/totes-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 10:46:11 GMT*
-
-
-## Pete Davidson
-
-## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
+*Published on: Wed, 25 Sep 2024 17:17:54 GMT*
 
 
 ## Pete Davidson
@@ -5821,29 +4687,20 @@ Tue, 24 Sep 2024 15:03:51 GMT*
 
 ## Pete Davidson
 
-## [Nike’s Reborn Sneaker-Clog Is Fit for a Spider-Man Villain ](https://www.highsnobiety.com/p/nike-clogposite-green-goblin/)
+## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:15:43 GMT*
+*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
 
 
 ## Pete Davidson
 
-## [Luxury Fashion Looks Like Luxury Fashion Again. Is That a Good Thing?](https://www.highsnobiety.com/p/luxury-fashion-streetwear-divide/)
+## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:07:11 GMT*
-
-
-## Prince Harry
-
-## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
+*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
 
 
 ## Prince Harry
@@ -5920,29 +4777,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Prince Harry
 
-## [New Balance TDS Finds Beauty In Techy Running Shoes](https://www.highsnobiety.com/p/new-balance-tokyo-design-studio-fw24/)
+## [A ‘Universal’ Blush Brings Beauty’s Shade Problem Back to Light](https://www.highsnobiety.com/p/ysl-lavender-blush-controversy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 12:55:07 GMT*
-
-
-## Prince Harry
-
-## [I Like Big Totes and I Cannot Lie](https://www.highsnobiety.com/p/totes-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 10:46:11 GMT*
-
-
-## Prince Harry
-
-## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
+*Published on: Wed, 25 Sep 2024 17:17:54 GMT*
 
 
 ## Prince Harry
@@ -5960,29 +4799,20 @@ Tue, 24 Sep 2024 15:03:51 GMT*
 
 ## Prince Harry
 
-## [Nike’s Reborn Sneaker-Clog Is Fit for a Spider-Man Villain ](https://www.highsnobiety.com/p/nike-clogposite-green-goblin/)
+## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:15:43 GMT*
+*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
 
 
 ## Prince Harry
 
-## [Luxury Fashion Looks Like Luxury Fashion Again. Is That a Good Thing?](https://www.highsnobiety.com/p/luxury-fashion-streetwear-divide/)
+## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:07:11 GMT*
-
-
-## Princess of Wales
-
-## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
+*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
 
 
 ## Princess of Wales
@@ -6059,29 +4889,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Princess of Wales
 
-## [New Balance TDS Finds Beauty In Techy Running Shoes](https://www.highsnobiety.com/p/new-balance-tokyo-design-studio-fw24/)
+## [A ‘Universal’ Blush Brings Beauty’s Shade Problem Back to Light](https://www.highsnobiety.com/p/ysl-lavender-blush-controversy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 12:55:07 GMT*
-
-
-## Princess of Wales
-
-## [I Like Big Totes and I Cannot Lie](https://www.highsnobiety.com/p/totes-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 10:46:11 GMT*
-
-
-## Princess of Wales
-
-## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
+*Published on: Wed, 25 Sep 2024 17:17:54 GMT*
 
 
 ## Princess of Wales
@@ -6099,29 +4911,20 @@ Tue, 24 Sep 2024 15:03:51 GMT*
 
 ## Princess of Wales
 
-## [Nike’s Reborn Sneaker-Clog Is Fit for a Spider-Man Villain ](https://www.highsnobiety.com/p/nike-clogposite-green-goblin/)
+## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:15:43 GMT*
+*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
 
 
 ## Princess of Wales
 
-## [Luxury Fashion Looks Like Luxury Fashion Again. Is That a Good Thing?](https://www.highsnobiety.com/p/luxury-fashion-streetwear-divide/)
+## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:07:11 GMT*
-
-
-## Rachel McAdams
-
-## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
+*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
 
 
 ## Rachel McAdams
@@ -6198,29 +5001,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Rachel McAdams
 
-## [New Balance TDS Finds Beauty In Techy Running Shoes](https://www.highsnobiety.com/p/new-balance-tokyo-design-studio-fw24/)
+## [A ‘Universal’ Blush Brings Beauty’s Shade Problem Back to Light](https://www.highsnobiety.com/p/ysl-lavender-blush-controversy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 12:55:07 GMT*
-
-
-## Rachel McAdams
-
-## [I Like Big Totes and I Cannot Lie](https://www.highsnobiety.com/p/totes-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 10:46:11 GMT*
-
-
-## Rachel McAdams
-
-## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
+*Published on: Wed, 25 Sep 2024 17:17:54 GMT*
 
 
 ## Rachel McAdams
@@ -6238,29 +5023,20 @@ Tue, 24 Sep 2024 15:03:51 GMT*
 
 ## Rachel McAdams
 
-## [Nike’s Reborn Sneaker-Clog Is Fit for a Spider-Man Villain ](https://www.highsnobiety.com/p/nike-clogposite-green-goblin/)
+## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:15:43 GMT*
+*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
 
 
 ## Rachel McAdams
 
-## [Luxury Fashion Looks Like Luxury Fashion Again. Is That a Good Thing?](https://www.highsnobiety.com/p/luxury-fashion-streetwear-divide/)
+## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:07:11 GMT*
-
-
-## Reneé Rapp
-
-## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
+*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
 
 
 ## Reneé Rapp
@@ -6337,29 +5113,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Reneé Rapp
 
-## [New Balance TDS Finds Beauty In Techy Running Shoes](https://www.highsnobiety.com/p/new-balance-tokyo-design-studio-fw24/)
+## [A ‘Universal’ Blush Brings Beauty’s Shade Problem Back to Light](https://www.highsnobiety.com/p/ysl-lavender-blush-controversy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 12:55:07 GMT*
-
-
-## Reneé Rapp
-
-## [I Like Big Totes and I Cannot Lie](https://www.highsnobiety.com/p/totes-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 10:46:11 GMT*
-
-
-## Reneé Rapp
-
-## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
+*Published on: Wed, 25 Sep 2024 17:17:54 GMT*
 
 
 ## Reneé Rapp
@@ -6377,29 +5135,20 @@ Tue, 24 Sep 2024 15:03:51 GMT*
 
 ## Reneé Rapp
 
-## [Nike’s Reborn Sneaker-Clog Is Fit for a Spider-Man Villain ](https://www.highsnobiety.com/p/nike-clogposite-green-goblin/)
+## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:15:43 GMT*
+*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
 
 
 ## Reneé Rapp
 
-## [Luxury Fashion Looks Like Luxury Fashion Again. Is That a Good Thing?](https://www.highsnobiety.com/p/luxury-fashion-streetwear-divide/)
+## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:07:11 GMT*
-
-
-## Rick Ross
-
-## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
+*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
 
 
 ## Rick Ross
@@ -6476,29 +5225,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Rick Ross
 
-## [New Balance TDS Finds Beauty In Techy Running Shoes](https://www.highsnobiety.com/p/new-balance-tokyo-design-studio-fw24/)
+## [A ‘Universal’ Blush Brings Beauty’s Shade Problem Back to Light](https://www.highsnobiety.com/p/ysl-lavender-blush-controversy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 12:55:07 GMT*
-
-
-## Rick Ross
-
-## [I Like Big Totes and I Cannot Lie](https://www.highsnobiety.com/p/totes-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 10:46:11 GMT*
-
-
-## Rick Ross
-
-## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
+*Published on: Wed, 25 Sep 2024 17:17:54 GMT*
 
 
 ## Rick Ross
@@ -6516,29 +5247,20 @@ Tue, 24 Sep 2024 15:03:51 GMT*
 
 ## Rick Ross
 
-## [Nike’s Reborn Sneaker-Clog Is Fit for a Spider-Man Villain ](https://www.highsnobiety.com/p/nike-clogposite-green-goblin/)
+## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:15:43 GMT*
+*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
 
 
 ## Rick Ross
 
-## [Luxury Fashion Looks Like Luxury Fashion Again. Is That a Good Thing?](https://www.highsnobiety.com/p/luxury-fashion-streetwear-divide/)
+## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:07:11 GMT*
-
-
-## Sam Ashgari
-
-## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
+*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
 
 
 ## Sam Ashgari
@@ -6615,29 +5337,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Sam Ashgari
 
-## [New Balance TDS Finds Beauty In Techy Running Shoes](https://www.highsnobiety.com/p/new-balance-tokyo-design-studio-fw24/)
+## [A ‘Universal’ Blush Brings Beauty’s Shade Problem Back to Light](https://www.highsnobiety.com/p/ysl-lavender-blush-controversy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 12:55:07 GMT*
-
-
-## Sam Ashgari
-
-## [I Like Big Totes and I Cannot Lie](https://www.highsnobiety.com/p/totes-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 10:46:11 GMT*
-
-
-## Sam Ashgari
-
-## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
+*Published on: Wed, 25 Sep 2024 17:17:54 GMT*
 
 
 ## Sam Ashgari
@@ -6655,29 +5359,20 @@ Tue, 24 Sep 2024 15:03:51 GMT*
 
 ## Sam Ashgari
 
-## [Nike’s Reborn Sneaker-Clog Is Fit for a Spider-Man Villain ](https://www.highsnobiety.com/p/nike-clogposite-green-goblin/)
+## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:15:43 GMT*
+*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
 
 
 ## Sam Ashgari
 
-## [Luxury Fashion Looks Like Luxury Fashion Again. Is That a Good Thing?](https://www.highsnobiety.com/p/luxury-fashion-streetwear-divide/)
+## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:07:11 GMT*
-
-
-## Sandra Oh
-
-## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
+*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
 
 
 ## Sandra Oh
@@ -6754,29 +5449,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Sandra Oh
 
-## [New Balance TDS Finds Beauty In Techy Running Shoes](https://www.highsnobiety.com/p/new-balance-tokyo-design-studio-fw24/)
+## [A ‘Universal’ Blush Brings Beauty’s Shade Problem Back to Light](https://www.highsnobiety.com/p/ysl-lavender-blush-controversy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 12:55:07 GMT*
-
-
-## Sandra Oh
-
-## [I Like Big Totes and I Cannot Lie](https://www.highsnobiety.com/p/totes-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 10:46:11 GMT*
-
-
-## Sandra Oh
-
-## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
+*Published on: Wed, 25 Sep 2024 17:17:54 GMT*
 
 
 ## Sandra Oh
@@ -6794,29 +5471,20 @@ Tue, 24 Sep 2024 15:03:51 GMT*
 
 ## Sandra Oh
 
-## [Nike’s Reborn Sneaker-Clog Is Fit for a Spider-Man Villain ](https://www.highsnobiety.com/p/nike-clogposite-green-goblin/)
+## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:15:43 GMT*
+*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
 
 
 ## Sandra Oh
 
-## [Luxury Fashion Looks Like Luxury Fashion Again. Is That a Good Thing?](https://www.highsnobiety.com/p/luxury-fashion-streetwear-divide/)
+## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:07:11 GMT*
-
-
-## Donald Trump
-
-## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
+*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
 
 
 ## Donald Trump
@@ -6893,29 +5561,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Donald Trump
 
-## [New Balance TDS Finds Beauty In Techy Running Shoes](https://www.highsnobiety.com/p/new-balance-tokyo-design-studio-fw24/)
+## [A ‘Universal’ Blush Brings Beauty’s Shade Problem Back to Light](https://www.highsnobiety.com/p/ysl-lavender-blush-controversy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 12:55:07 GMT*
-
-
-## Donald Trump
-
-## [I Like Big Totes and I Cannot Lie](https://www.highsnobiety.com/p/totes-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 10:46:11 GMT*
-
-
-## Donald Trump
-
-## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
+*Published on: Wed, 25 Sep 2024 17:17:54 GMT*
 
 
 ## Donald Trump
@@ -6933,29 +5583,20 @@ Tue, 24 Sep 2024 15:03:51 GMT*
 
 ## Donald Trump
 
-## [Nike’s Reborn Sneaker-Clog Is Fit for a Spider-Man Villain ](https://www.highsnobiety.com/p/nike-clogposite-green-goblin/)
+## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:15:43 GMT*
+*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
 
 
 ## Donald Trump
 
-## [Luxury Fashion Looks Like Luxury Fashion Again. Is That a Good Thing?](https://www.highsnobiety.com/p/luxury-fashion-streetwear-divide/)
+## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:07:11 GMT*
-
-
-## Diddy
-
-## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
+*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
 
 
 ## Diddy
@@ -7032,29 +5673,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Diddy
 
-## [New Balance TDS Finds Beauty In Techy Running Shoes](https://www.highsnobiety.com/p/new-balance-tokyo-design-studio-fw24/)
+## [A ‘Universal’ Blush Brings Beauty’s Shade Problem Back to Light](https://www.highsnobiety.com/p/ysl-lavender-blush-controversy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 12:55:07 GMT*
-
-
-## Diddy
-
-## [I Like Big Totes and I Cannot Lie](https://www.highsnobiety.com/p/totes-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 10:46:11 GMT*
-
-
-## Diddy
-
-## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
+*Published on: Wed, 25 Sep 2024 17:17:54 GMT*
 
 
 ## Diddy
@@ -7072,29 +5695,20 @@ Tue, 24 Sep 2024 15:03:51 GMT*
 
 ## Diddy
 
-## [Nike’s Reborn Sneaker-Clog Is Fit for a Spider-Man Villain ](https://www.highsnobiety.com/p/nike-clogposite-green-goblin/)
+## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:15:43 GMT*
+*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
 
 
 ## Diddy
 
-## [Luxury Fashion Looks Like Luxury Fashion Again. Is That a Good Thing?](https://www.highsnobiety.com/p/luxury-fashion-streetwear-divide/)
+## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:07:11 GMT*
-
-
-## City Girls
-
-## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
+*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
 
 
 ## City Girls
@@ -7171,29 +5785,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## City Girls
 
-## [New Balance TDS Finds Beauty In Techy Running Shoes](https://www.highsnobiety.com/p/new-balance-tokyo-design-studio-fw24/)
+## [A ‘Universal’ Blush Brings Beauty’s Shade Problem Back to Light](https://www.highsnobiety.com/p/ysl-lavender-blush-controversy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 12:55:07 GMT*
-
-
-## City Girls
-
-## [I Like Big Totes and I Cannot Lie](https://www.highsnobiety.com/p/totes-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 10:46:11 GMT*
-
-
-## City Girls
-
-## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
+*Published on: Wed, 25 Sep 2024 17:17:54 GMT*
 
 
 ## City Girls
@@ -7211,29 +5807,20 @@ Tue, 24 Sep 2024 15:03:51 GMT*
 
 ## City Girls
 
-## [Nike’s Reborn Sneaker-Clog Is Fit for a Spider-Man Villain ](https://www.highsnobiety.com/p/nike-clogposite-green-goblin/)
+## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:15:43 GMT*
+*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
 
 
 ## City Girls
 
-## [Luxury Fashion Looks Like Luxury Fashion Again. Is That a Good Thing?](https://www.highsnobiety.com/p/luxury-fashion-streetwear-divide/)
+## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:07:11 GMT*
-
-
-## Chloe Bailey
-
-## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
+*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
 
 
 ## Chloe Bailey
@@ -7310,29 +5897,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Chloe Bailey
 
-## [New Balance TDS Finds Beauty In Techy Running Shoes](https://www.highsnobiety.com/p/new-balance-tokyo-design-studio-fw24/)
+## [A ‘Universal’ Blush Brings Beauty’s Shade Problem Back to Light](https://www.highsnobiety.com/p/ysl-lavender-blush-controversy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 12:55:07 GMT*
-
-
-## Chloe Bailey
-
-## [I Like Big Totes and I Cannot Lie](https://www.highsnobiety.com/p/totes-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 10:46:11 GMT*
-
-
-## Chloe Bailey
-
-## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
+*Published on: Wed, 25 Sep 2024 17:17:54 GMT*
 
 
 ## Chloe Bailey
@@ -7350,29 +5919,20 @@ Tue, 24 Sep 2024 15:03:51 GMT*
 
 ## Chloe Bailey
 
-## [Nike’s Reborn Sneaker-Clog Is Fit for a Spider-Man Villain ](https://www.highsnobiety.com/p/nike-clogposite-green-goblin/)
+## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:15:43 GMT*
+*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
 
 
 ## Chloe Bailey
 
-## [Luxury Fashion Looks Like Luxury Fashion Again. Is That a Good Thing?](https://www.highsnobiety.com/p/luxury-fashion-streetwear-divide/)
+## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:07:11 GMT*
-
-
-## Charli D Amelio
-
-## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
+*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
 
 
 ## Charli D Amelio
@@ -7449,29 +6009,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Charli D Amelio
 
-## [New Balance TDS Finds Beauty In Techy Running Shoes](https://www.highsnobiety.com/p/new-balance-tokyo-design-studio-fw24/)
+## [A ‘Universal’ Blush Brings Beauty’s Shade Problem Back to Light](https://www.highsnobiety.com/p/ysl-lavender-blush-controversy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 12:55:07 GMT*
-
-
-## Charli D Amelio
-
-## [I Like Big Totes and I Cannot Lie](https://www.highsnobiety.com/p/totes-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 10:46:11 GMT*
-
-
-## Charli D Amelio
-
-## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
+*Published on: Wed, 25 Sep 2024 17:17:54 GMT*
 
 
 ## Charli D Amelio
@@ -7489,29 +6031,20 @@ Tue, 24 Sep 2024 15:03:51 GMT*
 
 ## Charli D Amelio
 
-## [Nike’s Reborn Sneaker-Clog Is Fit for a Spider-Man Villain ](https://www.highsnobiety.com/p/nike-clogposite-green-goblin/)
+## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:15:43 GMT*
+*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
 
 
 ## Charli D Amelio
 
-## [Luxury Fashion Looks Like Luxury Fashion Again. Is That a Good Thing?](https://www.highsnobiety.com/p/luxury-fashion-streetwear-divide/)
+## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:07:11 GMT*
-
-
-## Cardi B
-
-## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
+*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
 
 
 ## Cardi B
@@ -7588,29 +6121,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Cardi B
 
-## [New Balance TDS Finds Beauty In Techy Running Shoes](https://www.highsnobiety.com/p/new-balance-tokyo-design-studio-fw24/)
+## [A ‘Universal’ Blush Brings Beauty’s Shade Problem Back to Light](https://www.highsnobiety.com/p/ysl-lavender-blush-controversy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 12:55:07 GMT*
-
-
-## Cardi B
-
-## [I Like Big Totes and I Cannot Lie](https://www.highsnobiety.com/p/totes-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 10:46:11 GMT*
-
-
-## Cardi B
-
-## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
+*Published on: Wed, 25 Sep 2024 17:17:54 GMT*
 
 
 ## Cardi B
@@ -7628,29 +6143,20 @@ Tue, 24 Sep 2024 15:03:51 GMT*
 
 ## Cardi B
 
-## [Nike’s Reborn Sneaker-Clog Is Fit for a Spider-Man Villain ](https://www.highsnobiety.com/p/nike-clogposite-green-goblin/)
+## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:15:43 GMT*
+*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
 
 
 ## Cardi B
 
-## [Luxury Fashion Looks Like Luxury Fashion Again. Is That a Good Thing?](https://www.highsnobiety.com/p/luxury-fashion-streetwear-divide/)
+## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:07:11 GMT*
-
-
-## Bryan Cranston
-
-## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
+*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
 
 
 ## Bryan Cranston
@@ -7727,29 +6233,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Bryan Cranston
 
-## [New Balance TDS Finds Beauty In Techy Running Shoes](https://www.highsnobiety.com/p/new-balance-tokyo-design-studio-fw24/)
+## [A ‘Universal’ Blush Brings Beauty’s Shade Problem Back to Light](https://www.highsnobiety.com/p/ysl-lavender-blush-controversy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 12:55:07 GMT*
-
-
-## Bryan Cranston
-
-## [I Like Big Totes and I Cannot Lie](https://www.highsnobiety.com/p/totes-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 10:46:11 GMT*
-
-
-## Bryan Cranston
-
-## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
+*Published on: Wed, 25 Sep 2024 17:17:54 GMT*
 
 
 ## Bryan Cranston
@@ -7767,29 +6255,20 @@ Tue, 24 Sep 2024 15:03:51 GMT*
 
 ## Bryan Cranston
 
-## [Nike’s Reborn Sneaker-Clog Is Fit for a Spider-Man Villain ](https://www.highsnobiety.com/p/nike-clogposite-green-goblin/)
+## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:15:43 GMT*
+*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
 
 
 ## Bryan Cranston
 
-## [Luxury Fashion Looks Like Luxury Fashion Again. Is That a Good Thing?](https://www.highsnobiety.com/p/luxury-fashion-streetwear-divide/)
+## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:07:11 GMT*
-
-
-## Brielle Biermann
-
-## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
+*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
 
 
 ## Brielle Biermann
@@ -7866,29 +6345,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Brielle Biermann
 
-## [New Balance TDS Finds Beauty In Techy Running Shoes](https://www.highsnobiety.com/p/new-balance-tokyo-design-studio-fw24/)
+## [A ‘Universal’ Blush Brings Beauty’s Shade Problem Back to Light](https://www.highsnobiety.com/p/ysl-lavender-blush-controversy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 12:55:07 GMT*
-
-
-## Brielle Biermann
-
-## [I Like Big Totes and I Cannot Lie](https://www.highsnobiety.com/p/totes-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 10:46:11 GMT*
-
-
-## Brielle Biermann
-
-## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
+*Published on: Wed, 25 Sep 2024 17:17:54 GMT*
 
 
 ## Brielle Biermann
@@ -7906,29 +6367,20 @@ Tue, 24 Sep 2024 15:03:51 GMT*
 
 ## Brielle Biermann
 
-## [Nike’s Reborn Sneaker-Clog Is Fit for a Spider-Man Villain ](https://www.highsnobiety.com/p/nike-clogposite-green-goblin/)
+## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:15:43 GMT*
+*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
 
 
 ## Brielle Biermann
 
-## [Luxury Fashion Looks Like Luxury Fashion Again. Is That a Good Thing?](https://www.highsnobiety.com/p/luxury-fashion-streetwear-divide/)
+## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:07:11 GMT*
-
-
-## Dua Lipa
-
-## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
+*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
 
 
 ## Dua Lipa
@@ -8005,29 +6457,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Dua Lipa
 
-## [New Balance TDS Finds Beauty In Techy Running Shoes](https://www.highsnobiety.com/p/new-balance-tokyo-design-studio-fw24/)
+## [A ‘Universal’ Blush Brings Beauty’s Shade Problem Back to Light](https://www.highsnobiety.com/p/ysl-lavender-blush-controversy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 12:55:07 GMT*
-
-
-## Dua Lipa
-
-## [I Like Big Totes and I Cannot Lie](https://www.highsnobiety.com/p/totes-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 10:46:11 GMT*
-
-
-## Dua Lipa
-
-## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
+*Published on: Wed, 25 Sep 2024 17:17:54 GMT*
 
 
 ## Dua Lipa
@@ -8045,29 +6479,20 @@ Tue, 24 Sep 2024 15:03:51 GMT*
 
 ## Dua Lipa
 
-## [Nike’s Reborn Sneaker-Clog Is Fit for a Spider-Man Villain ](https://www.highsnobiety.com/p/nike-clogposite-green-goblin/)
+## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:15:43 GMT*
+*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
 
 
 ## Dua Lipa
 
-## [Luxury Fashion Looks Like Luxury Fashion Again. Is That a Good Thing?](https://www.highsnobiety.com/p/luxury-fashion-streetwear-divide/)
+## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:07:11 GMT*
-
-
-## Drake
-
-## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
+*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
 
 
 ## Drake
@@ -8144,29 +6569,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Drake
 
-## [New Balance TDS Finds Beauty In Techy Running Shoes](https://www.highsnobiety.com/p/new-balance-tokyo-design-studio-fw24/)
+## [A ‘Universal’ Blush Brings Beauty’s Shade Problem Back to Light](https://www.highsnobiety.com/p/ysl-lavender-blush-controversy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 12:55:07 GMT*
-
-
-## Drake
-
-## [I Like Big Totes and I Cannot Lie](https://www.highsnobiety.com/p/totes-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 10:46:11 GMT*
-
-
-## Drake
-
-## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
+*Published on: Wed, 25 Sep 2024 17:17:54 GMT*
 
 
 ## Drake
@@ -8184,29 +6591,20 @@ Tue, 24 Sep 2024 15:03:51 GMT*
 
 ## Drake
 
-## [Nike’s Reborn Sneaker-Clog Is Fit for a Spider-Man Villain ](https://www.highsnobiety.com/p/nike-clogposite-green-goblin/)
+## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:15:43 GMT*
+*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
 
 
 ## Drake
 
-## [Luxury Fashion Looks Like Luxury Fashion Again. Is That a Good Thing?](https://www.highsnobiety.com/p/luxury-fashion-streetwear-divide/)
+## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:07:11 GMT*
-
-
-## Jenner
-
-## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
+*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
 
 
 ## Jenner
@@ -8283,29 +6681,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Jenner
 
-## [New Balance TDS Finds Beauty In Techy Running Shoes](https://www.highsnobiety.com/p/new-balance-tokyo-design-studio-fw24/)
+## [A ‘Universal’ Blush Brings Beauty’s Shade Problem Back to Light](https://www.highsnobiety.com/p/ysl-lavender-blush-controversy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 12:55:07 GMT*
-
-
-## Jenner
-
-## [I Like Big Totes and I Cannot Lie](https://www.highsnobiety.com/p/totes-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 10:46:11 GMT*
-
-
-## Jenner
-
-## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
+*Published on: Wed, 25 Sep 2024 17:17:54 GMT*
 
 
 ## Jenner
@@ -8323,29 +6703,20 @@ Tue, 24 Sep 2024 15:03:51 GMT*
 
 ## Jenner
 
-## [Nike’s Reborn Sneaker-Clog Is Fit for a Spider-Man Villain ](https://www.highsnobiety.com/p/nike-clogposite-green-goblin/)
+## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:15:43 GMT*
+*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
 
 
 ## Jenner
 
-## [Luxury Fashion Looks Like Luxury Fashion Again. Is That a Good Thing?](https://www.highsnobiety.com/p/luxury-fashion-streetwear-divide/)
+## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:07:11 GMT*
-
-
-## J. Cole
-
-## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
+*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
 
 
 ## J. Cole
@@ -8422,29 +6793,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## J. Cole
 
-## [New Balance TDS Finds Beauty In Techy Running Shoes](https://www.highsnobiety.com/p/new-balance-tokyo-design-studio-fw24/)
+## [A ‘Universal’ Blush Brings Beauty’s Shade Problem Back to Light](https://www.highsnobiety.com/p/ysl-lavender-blush-controversy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 12:55:07 GMT*
-
-
-## J. Cole
-
-## [I Like Big Totes and I Cannot Lie](https://www.highsnobiety.com/p/totes-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 10:46:11 GMT*
-
-
-## J. Cole
-
-## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
+*Published on: Wed, 25 Sep 2024 17:17:54 GMT*
 
 
 ## J. Cole
@@ -8462,29 +6815,20 @@ Tue, 24 Sep 2024 15:03:51 GMT*
 
 ## J. Cole
 
-## [Nike’s Reborn Sneaker-Clog Is Fit for a Spider-Man Villain ](https://www.highsnobiety.com/p/nike-clogposite-green-goblin/)
+## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:15:43 GMT*
+*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
 
 
 ## J. Cole
 
-## [Luxury Fashion Looks Like Luxury Fashion Again. Is That a Good Thing?](https://www.highsnobiety.com/p/luxury-fashion-streetwear-divide/)
+## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:07:11 GMT*
-
-
-## Jerrod Carmichael
-
-## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
+*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
 
 
 ## Jerrod Carmichael
@@ -8561,29 +6905,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Jerrod Carmichael
 
-## [New Balance TDS Finds Beauty In Techy Running Shoes](https://www.highsnobiety.com/p/new-balance-tokyo-design-studio-fw24/)
+## [A ‘Universal’ Blush Brings Beauty’s Shade Problem Back to Light](https://www.highsnobiety.com/p/ysl-lavender-blush-controversy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 12:55:07 GMT*
-
-
-## Jerrod Carmichael
-
-## [I Like Big Totes and I Cannot Lie](https://www.highsnobiety.com/p/totes-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 10:46:11 GMT*
-
-
-## Jerrod Carmichael
-
-## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
+*Published on: Wed, 25 Sep 2024 17:17:54 GMT*
 
 
 ## Jerrod Carmichael
@@ -8601,29 +6927,20 @@ Tue, 24 Sep 2024 15:03:51 GMT*
 
 ## Jerrod Carmichael
 
-## [Nike’s Reborn Sneaker-Clog Is Fit for a Spider-Man Villain ](https://www.highsnobiety.com/p/nike-clogposite-green-goblin/)
+## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:15:43 GMT*
+*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
 
 
 ## Jerrod Carmichael
 
-## [Luxury Fashion Looks Like Luxury Fashion Again. Is That a Good Thing?](https://www.highsnobiety.com/p/luxury-fashion-streetwear-divide/)
+## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:07:11 GMT*
-
-
-## Jennifer Lawrence
-
-## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
+*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
 
 
 ## Jennifer Lawrence
@@ -8700,29 +7017,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Jennifer Lawrence
 
-## [New Balance TDS Finds Beauty In Techy Running Shoes](https://www.highsnobiety.com/p/new-balance-tokyo-design-studio-fw24/)
+## [A ‘Universal’ Blush Brings Beauty’s Shade Problem Back to Light](https://www.highsnobiety.com/p/ysl-lavender-blush-controversy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 12:55:07 GMT*
-
-
-## Jennifer Lawrence
-
-## [I Like Big Totes and I Cannot Lie](https://www.highsnobiety.com/p/totes-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 10:46:11 GMT*
-
-
-## Jennifer Lawrence
-
-## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
+*Published on: Wed, 25 Sep 2024 17:17:54 GMT*
 
 
 ## Jennifer Lawrence
@@ -8740,29 +7039,20 @@ Tue, 24 Sep 2024 15:03:51 GMT*
 
 ## Jennifer Lawrence
 
-## [Nike’s Reborn Sneaker-Clog Is Fit for a Spider-Man Villain ](https://www.highsnobiety.com/p/nike-clogposite-green-goblin/)
+## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:15:43 GMT*
+*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
 
 
 ## Jennifer Lawrence
 
-## [Luxury Fashion Looks Like Luxury Fashion Again. Is That a Good Thing?](https://www.highsnobiety.com/p/luxury-fashion-streetwear-divide/)
+## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:07:11 GMT*
-
-
-## Joe Biden
-
-## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
+*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
 
 
 ## Joe Biden
@@ -8839,29 +7129,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Joe Biden
 
-## [New Balance TDS Finds Beauty In Techy Running Shoes](https://www.highsnobiety.com/p/new-balance-tokyo-design-studio-fw24/)
+## [A ‘Universal’ Blush Brings Beauty’s Shade Problem Back to Light](https://www.highsnobiety.com/p/ysl-lavender-blush-controversy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 12:55:07 GMT*
-
-
-## Joe Biden
-
-## [I Like Big Totes and I Cannot Lie](https://www.highsnobiety.com/p/totes-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 10:46:11 GMT*
-
-
-## Joe Biden
-
-## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
+*Published on: Wed, 25 Sep 2024 17:17:54 GMT*
 
 
 ## Joe Biden
@@ -8879,29 +7151,20 @@ Tue, 24 Sep 2024 15:03:51 GMT*
 
 ## Joe Biden
 
-## [Nike’s Reborn Sneaker-Clog Is Fit for a Spider-Man Villain ](https://www.highsnobiety.com/p/nike-clogposite-green-goblin/)
+## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:15:43 GMT*
+*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
 
 
 ## Joe Biden
 
-## [Luxury Fashion Looks Like Luxury Fashion Again. Is That a Good Thing?](https://www.highsnobiety.com/p/luxury-fashion-streetwear-divide/)
+## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:07:11 GMT*
-
-
-## J.K. Simmons
-
-## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
+*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
 
 
 ## J.K. Simmons
@@ -8978,29 +7241,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## J.K. Simmons
 
-## [New Balance TDS Finds Beauty In Techy Running Shoes](https://www.highsnobiety.com/p/new-balance-tokyo-design-studio-fw24/)
+## [A ‘Universal’ Blush Brings Beauty’s Shade Problem Back to Light](https://www.highsnobiety.com/p/ysl-lavender-blush-controversy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 12:55:07 GMT*
-
-
-## J.K. Simmons
-
-## [I Like Big Totes and I Cannot Lie](https://www.highsnobiety.com/p/totes-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 10:46:11 GMT*
-
-
-## J.K. Simmons
-
-## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
+*Published on: Wed, 25 Sep 2024 17:17:54 GMT*
 
 
 ## J.K. Simmons
@@ -9018,29 +7263,20 @@ Tue, 24 Sep 2024 15:03:51 GMT*
 
 ## J.K. Simmons
 
-## [Nike’s Reborn Sneaker-Clog Is Fit for a Spider-Man Villain ](https://www.highsnobiety.com/p/nike-clogposite-green-goblin/)
+## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:15:43 GMT*
+*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
 
 
 ## J.K. Simmons
 
-## [Luxury Fashion Looks Like Luxury Fashion Again. Is That a Good Thing?](https://www.highsnobiety.com/p/luxury-fashion-streetwear-divide/)
+## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:07:11 GMT*
-
-
-## Kamala Harris
-
-## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
+*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
 
 
 ## Kamala Harris
@@ -9117,29 +7353,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Kamala Harris
 
-## [New Balance TDS Finds Beauty In Techy Running Shoes](https://www.highsnobiety.com/p/new-balance-tokyo-design-studio-fw24/)
+## [A ‘Universal’ Blush Brings Beauty’s Shade Problem Back to Light](https://www.highsnobiety.com/p/ysl-lavender-blush-controversy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 12:55:07 GMT*
-
-
-## Kamala Harris
-
-## [I Like Big Totes and I Cannot Lie](https://www.highsnobiety.com/p/totes-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 10:46:11 GMT*
-
-
-## Kamala Harris
-
-## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
+*Published on: Wed, 25 Sep 2024 17:17:54 GMT*
 
 
 ## Kamala Harris
@@ -9157,29 +7375,20 @@ Tue, 24 Sep 2024 15:03:51 GMT*
 
 ## Kamala Harris
 
-## [Nike’s Reborn Sneaker-Clog Is Fit for a Spider-Man Villain ](https://www.highsnobiety.com/p/nike-clogposite-green-goblin/)
+## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:15:43 GMT*
+*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
 
 
 ## Kamala Harris
 
-## [Luxury Fashion Looks Like Luxury Fashion Again. Is That a Good Thing?](https://www.highsnobiety.com/p/luxury-fashion-streetwear-divide/)
+## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:07:11 GMT*
-
-
-## John C Reilly
-
-## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
+*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
 
 
 ## John C Reilly
@@ -9256,29 +7465,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## John C Reilly
 
-## [New Balance TDS Finds Beauty In Techy Running Shoes](https://www.highsnobiety.com/p/new-balance-tokyo-design-studio-fw24/)
+## [A ‘Universal’ Blush Brings Beauty’s Shade Problem Back to Light](https://www.highsnobiety.com/p/ysl-lavender-blush-controversy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 12:55:07 GMT*
-
-
-## John C Reilly
-
-## [I Like Big Totes and I Cannot Lie](https://www.highsnobiety.com/p/totes-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 10:46:11 GMT*
-
-
-## John C Reilly
-
-## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
+*Published on: Wed, 25 Sep 2024 17:17:54 GMT*
 
 
 ## John C Reilly
@@ -9296,29 +7487,20 @@ Tue, 24 Sep 2024 15:03:51 GMT*
 
 ## John C Reilly
 
-## [Nike’s Reborn Sneaker-Clog Is Fit for a Spider-Man Villain ](https://www.highsnobiety.com/p/nike-clogposite-green-goblin/)
+## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:15:43 GMT*
+*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
 
 
 ## John C Reilly
 
-## [Luxury Fashion Looks Like Luxury Fashion Again. Is That a Good Thing?](https://www.highsnobiety.com/p/luxury-fashion-streetwear-divide/)
+## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:07:11 GMT*
-
-
-## Kardashian
-
-## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
+*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
 
 
 ## Kardashian
@@ -9395,29 +7577,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Kardashian
 
-## [New Balance TDS Finds Beauty In Techy Running Shoes](https://www.highsnobiety.com/p/new-balance-tokyo-design-studio-fw24/)
+## [A ‘Universal’ Blush Brings Beauty’s Shade Problem Back to Light](https://www.highsnobiety.com/p/ysl-lavender-blush-controversy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 12:55:07 GMT*
-
-
-## Kardashian
-
-## [I Like Big Totes and I Cannot Lie](https://www.highsnobiety.com/p/totes-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 10:46:11 GMT*
-
-
-## Kardashian
-
-## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
+*Published on: Wed, 25 Sep 2024 17:17:54 GMT*
 
 
 ## Kardashian
@@ -9435,29 +7599,20 @@ Tue, 24 Sep 2024 15:03:51 GMT*
 
 ## Kardashian
 
-## [Nike’s Reborn Sneaker-Clog Is Fit for a Spider-Man Villain ](https://www.highsnobiety.com/p/nike-clogposite-green-goblin/)
+## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:15:43 GMT*
+*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
 
 
 ## Kardashian
 
-## [Luxury Fashion Looks Like Luxury Fashion Again. Is That a Good Thing?](https://www.highsnobiety.com/p/luxury-fashion-streetwear-divide/)
+## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:07:11 GMT*
-
-
-## Kanye
-
-## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
+*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
 
 
 ## Kanye
@@ -9534,29 +7689,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Kanye
 
-## [New Balance TDS Finds Beauty In Techy Running Shoes](https://www.highsnobiety.com/p/new-balance-tokyo-design-studio-fw24/)
+## [A ‘Universal’ Blush Brings Beauty’s Shade Problem Back to Light](https://www.highsnobiety.com/p/ysl-lavender-blush-controversy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 12:55:07 GMT*
-
-
-## Kanye
-
-## [I Like Big Totes and I Cannot Lie](https://www.highsnobiety.com/p/totes-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 10:46:11 GMT*
-
-
-## Kanye
-
-## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
+*Published on: Wed, 25 Sep 2024 17:17:54 GMT*
 
 
 ## Kanye
@@ -9574,29 +7711,20 @@ Tue, 24 Sep 2024 15:03:51 GMT*
 
 ## Kanye
 
-## [Nike’s Reborn Sneaker-Clog Is Fit for a Spider-Man Villain ](https://www.highsnobiety.com/p/nike-clogposite-green-goblin/)
+## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:15:43 GMT*
+*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
 
 
 ## Kanye
 
-## [Luxury Fashion Looks Like Luxury Fashion Again. Is That a Good Thing?](https://www.highsnobiety.com/p/luxury-fashion-streetwear-divide/)
+## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:07:11 GMT*
-
-
-## Zendaya
-
-## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
+*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
 
 
 ## Zendaya
@@ -9673,29 +7801,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Zendaya
 
-## [New Balance TDS Finds Beauty In Techy Running Shoes](https://www.highsnobiety.com/p/new-balance-tokyo-design-studio-fw24/)
+## [A ‘Universal’ Blush Brings Beauty’s Shade Problem Back to Light](https://www.highsnobiety.com/p/ysl-lavender-blush-controversy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 12:55:07 GMT*
-
-
-## Zendaya
-
-## [I Like Big Totes and I Cannot Lie](https://www.highsnobiety.com/p/totes-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 10:46:11 GMT*
-
-
-## Zendaya
-
-## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
+*Published on: Wed, 25 Sep 2024 17:17:54 GMT*
 
 
 ## Zendaya
@@ -9713,29 +7823,20 @@ Tue, 24 Sep 2024 15:03:51 GMT*
 
 ## Zendaya
 
-## [Nike’s Reborn Sneaker-Clog Is Fit for a Spider-Man Villain ](https://www.highsnobiety.com/p/nike-clogposite-green-goblin/)
+## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:15:43 GMT*
+*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
 
 
 ## Zendaya
 
-## [Luxury Fashion Looks Like Luxury Fashion Again. Is That a Good Thing?](https://www.highsnobiety.com/p/luxury-fashion-streetwear-divide/)
+## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:07:11 GMT*
-
-
-## Will Ferrell
-
-## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
+*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
 
 
 ## Will Ferrell
@@ -9812,29 +7913,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Will Ferrell
 
-## [New Balance TDS Finds Beauty In Techy Running Shoes](https://www.highsnobiety.com/p/new-balance-tokyo-design-studio-fw24/)
+## [A ‘Universal’ Blush Brings Beauty’s Shade Problem Back to Light](https://www.highsnobiety.com/p/ysl-lavender-blush-controversy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 12:55:07 GMT*
-
-
-## Will Ferrell
-
-## [I Like Big Totes and I Cannot Lie](https://www.highsnobiety.com/p/totes-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 10:46:11 GMT*
-
-
-## Will Ferrell
-
-## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
+*Published on: Wed, 25 Sep 2024 17:17:54 GMT*
 
 
 ## Will Ferrell
@@ -9852,29 +7935,20 @@ Tue, 24 Sep 2024 15:03:51 GMT*
 
 ## Will Ferrell
 
-## [Nike’s Reborn Sneaker-Clog Is Fit for a Spider-Man Villain ](https://www.highsnobiety.com/p/nike-clogposite-green-goblin/)
+## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:15:43 GMT*
+*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
 
 
 ## Will Ferrell
 
-## [Luxury Fashion Looks Like Luxury Fashion Again. Is That a Good Thing?](https://www.highsnobiety.com/p/luxury-fashion-streetwear-divide/)
+## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:07:11 GMT*
-
-
-## Zazie Beetz
-
-## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
+*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
 
 
 ## Zazie Beetz
@@ -9951,29 +8025,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Zazie Beetz
 
-## [New Balance TDS Finds Beauty In Techy Running Shoes](https://www.highsnobiety.com/p/new-balance-tokyo-design-studio-fw24/)
+## [A ‘Universal’ Blush Brings Beauty’s Shade Problem Back to Light](https://www.highsnobiety.com/p/ysl-lavender-blush-controversy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 12:55:07 GMT*
-
-
-## Zazie Beetz
-
-## [I Like Big Totes and I Cannot Lie](https://www.highsnobiety.com/p/totes-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 10:46:11 GMT*
-
-
-## Zazie Beetz
-
-## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
+*Published on: Wed, 25 Sep 2024 17:17:54 GMT*
 
 
 ## Zazie Beetz
@@ -9991,29 +8047,20 @@ Tue, 24 Sep 2024 15:03:51 GMT*
 
 ## Zazie Beetz
 
-## [Nike’s Reborn Sneaker-Clog Is Fit for a Spider-Man Villain ](https://www.highsnobiety.com/p/nike-clogposite-green-goblin/)
+## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:15:43 GMT*
+*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
 
 
 ## Zazie Beetz
 
-## [Luxury Fashion Looks Like Luxury Fashion Again. Is That a Good Thing?](https://www.highsnobiety.com/p/luxury-fashion-streetwear-divide/)
+## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:07:11 GMT*
-
-
-## Bob Odenkirk
-
-## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
+*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
 
 
 ## Bob Odenkirk
@@ -10090,29 +8137,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Bob Odenkirk
 
-## [New Balance TDS Finds Beauty In Techy Running Shoes](https://www.highsnobiety.com/p/new-balance-tokyo-design-studio-fw24/)
+## [A ‘Universal’ Blush Brings Beauty’s Shade Problem Back to Light](https://www.highsnobiety.com/p/ysl-lavender-blush-controversy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 12:55:07 GMT*
-
-
-## Bob Odenkirk
-
-## [I Like Big Totes and I Cannot Lie](https://www.highsnobiety.com/p/totes-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 10:46:11 GMT*
-
-
-## Bob Odenkirk
-
-## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
+*Published on: Wed, 25 Sep 2024 17:17:54 GMT*
 
 
 ## Bob Odenkirk
@@ -10130,29 +8159,20 @@ Tue, 24 Sep 2024 15:03:51 GMT*
 
 ## Bob Odenkirk
 
-## [Nike’s Reborn Sneaker-Clog Is Fit for a Spider-Man Villain ](https://www.highsnobiety.com/p/nike-clogposite-green-goblin/)
+## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:15:43 GMT*
+*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
 
 
 ## Bob Odenkirk
 
-## [Luxury Fashion Looks Like Luxury Fashion Again. Is That a Good Thing?](https://www.highsnobiety.com/p/luxury-fashion-streetwear-divide/)
+## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:07:11 GMT*
-
-
-## Brad Pitt
-
-## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
+*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
 
 
 ## Brad Pitt
@@ -10229,29 +8249,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Brad Pitt
 
-## [New Balance TDS Finds Beauty In Techy Running Shoes](https://www.highsnobiety.com/p/new-balance-tokyo-design-studio-fw24/)
+## [A ‘Universal’ Blush Brings Beauty’s Shade Problem Back to Light](https://www.highsnobiety.com/p/ysl-lavender-blush-controversy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 12:55:07 GMT*
-
-
-## Brad Pitt
-
-## [I Like Big Totes and I Cannot Lie](https://www.highsnobiety.com/p/totes-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 10:46:11 GMT*
-
-
-## Brad Pitt
-
-## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
+*Published on: Wed, 25 Sep 2024 17:17:54 GMT*
 
 
 ## Brad Pitt
@@ -10269,29 +8271,20 @@ Tue, 24 Sep 2024 15:03:51 GMT*
 
 ## Brad Pitt
 
-## [Nike’s Reborn Sneaker-Clog Is Fit for a Spider-Man Villain ](https://www.highsnobiety.com/p/nike-clogposite-green-goblin/)
+## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:15:43 GMT*
+*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
 
 
 ## Brad Pitt
 
-## [Luxury Fashion Looks Like Luxury Fashion Again. Is That a Good Thing?](https://www.highsnobiety.com/p/luxury-fashion-streetwear-divide/)
+## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:07:11 GMT*
-
-
-## Beyoncé
-
-## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
+*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
 
 
 ## Beyoncé
@@ -10368,29 +8361,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Beyoncé
 
-## [New Balance TDS Finds Beauty In Techy Running Shoes](https://www.highsnobiety.com/p/new-balance-tokyo-design-studio-fw24/)
+## [A ‘Universal’ Blush Brings Beauty’s Shade Problem Back to Light](https://www.highsnobiety.com/p/ysl-lavender-blush-controversy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 12:55:07 GMT*
-
-
-## Beyoncé
-
-## [I Like Big Totes and I Cannot Lie](https://www.highsnobiety.com/p/totes-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 10:46:11 GMT*
-
-
-## Beyoncé
-
-## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
+*Published on: Wed, 25 Sep 2024 17:17:54 GMT*
 
 
 ## Beyoncé
@@ -10408,29 +8383,20 @@ Tue, 24 Sep 2024 15:03:51 GMT*
 
 ## Beyoncé
 
-## [Nike’s Reborn Sneaker-Clog Is Fit for a Spider-Man Villain ](https://www.highsnobiety.com/p/nike-clogposite-green-goblin/)
+## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:15:43 GMT*
+*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
 
 
 ## Beyoncé
 
-## [Luxury Fashion Looks Like Luxury Fashion Again. Is That a Good Thing?](https://www.highsnobiety.com/p/luxury-fashion-streetwear-divide/)
+## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:07:11 GMT*
-
-
-## Bia
-
-## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
+*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
 
 
 ## Bia
@@ -10507,29 +8473,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Bia
 
-## [New Balance TDS Finds Beauty In Techy Running Shoes](https://www.highsnobiety.com/p/new-balance-tokyo-design-studio-fw24/)
+## [A ‘Universal’ Blush Brings Beauty’s Shade Problem Back to Light](https://www.highsnobiety.com/p/ysl-lavender-blush-controversy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 12:55:07 GMT*
-
-
-## Bia
-
-## [I Like Big Totes and I Cannot Lie](https://www.highsnobiety.com/p/totes-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 10:46:11 GMT*
-
-
-## Bia
-
-## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
+*Published on: Wed, 25 Sep 2024 17:17:54 GMT*
 
 
 ## Bia
@@ -10547,29 +8495,20 @@ Tue, 24 Sep 2024 15:03:51 GMT*
 
 ## Bia
 
-## [Nike’s Reborn Sneaker-Clog Is Fit for a Spider-Man Villain ](https://www.highsnobiety.com/p/nike-clogposite-green-goblin/)
+## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:15:43 GMT*
+*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
 
 
 ## Bia
 
-## [Luxury Fashion Looks Like Luxury Fashion Again. Is That a Good Thing?](https://www.highsnobiety.com/p/luxury-fashion-streetwear-divide/)
+## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:07:11 GMT*
-
-
-## Avantika
-
-## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
+*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
 
 
 ## Avantika
@@ -10646,29 +8585,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Avantika
 
-## [New Balance TDS Finds Beauty In Techy Running Shoes](https://www.highsnobiety.com/p/new-balance-tokyo-design-studio-fw24/)
+## [A ‘Universal’ Blush Brings Beauty’s Shade Problem Back to Light](https://www.highsnobiety.com/p/ysl-lavender-blush-controversy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 12:55:07 GMT*
-
-
-## Avantika
-
-## [I Like Big Totes and I Cannot Lie](https://www.highsnobiety.com/p/totes-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 10:46:11 GMT*
-
-
-## Avantika
-
-## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
+*Published on: Wed, 25 Sep 2024 17:17:54 GMT*
 
 
 ## Avantika
@@ -10686,29 +8607,20 @@ Tue, 24 Sep 2024 15:03:51 GMT*
 
 ## Avantika
 
-## [Nike’s Reborn Sneaker-Clog Is Fit for a Spider-Man Villain ](https://www.highsnobiety.com/p/nike-clogposite-green-goblin/)
+## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:15:43 GMT*
+*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
 
 
 ## Avantika
 
-## [Luxury Fashion Looks Like Luxury Fashion Again. Is That a Good Thing?](https://www.highsnobiety.com/p/luxury-fashion-streetwear-divide/)
+## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:07:11 GMT*
-
-
-## Bernie Sanders
-
-## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
+*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
 
 
 ## Bernie Sanders
@@ -10785,29 +8697,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Bernie Sanders
 
-## [New Balance TDS Finds Beauty In Techy Running Shoes](https://www.highsnobiety.com/p/new-balance-tokyo-design-studio-fw24/)
+## [A ‘Universal’ Blush Brings Beauty’s Shade Problem Back to Light](https://www.highsnobiety.com/p/ysl-lavender-blush-controversy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 12:55:07 GMT*
-
-
-## Bernie Sanders
-
-## [I Like Big Totes and I Cannot Lie](https://www.highsnobiety.com/p/totes-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 10:46:11 GMT*
-
-
-## Bernie Sanders
-
-## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
+*Published on: Wed, 25 Sep 2024 17:17:54 GMT*
 
 
 ## Bernie Sanders
@@ -10825,29 +8719,20 @@ Tue, 24 Sep 2024 15:03:51 GMT*
 
 ## Bernie Sanders
 
-## [Nike’s Reborn Sneaker-Clog Is Fit for a Spider-Man Villain ](https://www.highsnobiety.com/p/nike-clogposite-green-goblin/)
+## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:15:43 GMT*
+*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
 
 
 ## Bernie Sanders
 
-## [Luxury Fashion Looks Like Luxury Fashion Again. Is That a Good Thing?](https://www.highsnobiety.com/p/luxury-fashion-streetwear-divide/)
+## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:07:11 GMT*
-
-
-## Big Sean
-
-## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
+*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
 
 
 ## Big Sean
@@ -10924,29 +8809,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Big Sean
 
-## [New Balance TDS Finds Beauty In Techy Running Shoes](https://www.highsnobiety.com/p/new-balance-tokyo-design-studio-fw24/)
+## [A ‘Universal’ Blush Brings Beauty’s Shade Problem Back to Light](https://www.highsnobiety.com/p/ysl-lavender-blush-controversy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 12:55:07 GMT*
-
-
-## Big Sean
-
-## [I Like Big Totes and I Cannot Lie](https://www.highsnobiety.com/p/totes-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 10:46:11 GMT*
-
-
-## Big Sean
-
-## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
+*Published on: Wed, 25 Sep 2024 17:17:54 GMT*
 
 
 ## Big Sean
@@ -10964,29 +8831,20 @@ Tue, 24 Sep 2024 15:03:51 GMT*
 
 ## Big Sean
 
-## [Nike’s Reborn Sneaker-Clog Is Fit for a Spider-Man Villain ](https://www.highsnobiety.com/p/nike-clogposite-green-goblin/)
+## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:15:43 GMT*
+*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
 
 
 ## Big Sean
 
-## [Luxury Fashion Looks Like Luxury Fashion Again. Is That a Good Thing?](https://www.highsnobiety.com/p/luxury-fashion-streetwear-divide/)
+## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:07:11 GMT*
-
-
-## BlockBoy JB
-
-## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
+*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
 
 
 ## BlockBoy JB
@@ -11063,29 +8921,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## BlockBoy JB
 
-## [New Balance TDS Finds Beauty In Techy Running Shoes](https://www.highsnobiety.com/p/new-balance-tokyo-design-studio-fw24/)
+## [A ‘Universal’ Blush Brings Beauty’s Shade Problem Back to Light](https://www.highsnobiety.com/p/ysl-lavender-blush-controversy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 12:55:07 GMT*
-
-
-## BlockBoy JB
-
-## [I Like Big Totes and I Cannot Lie](https://www.highsnobiety.com/p/totes-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 10:46:11 GMT*
-
-
-## BlockBoy JB
-
-## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
+*Published on: Wed, 25 Sep 2024 17:17:54 GMT*
 
 
 ## BlockBoy JB
@@ -11103,29 +8943,20 @@ Tue, 24 Sep 2024 15:03:51 GMT*
 
 ## BlockBoy JB
 
-## [Nike’s Reborn Sneaker-Clog Is Fit for a Spider-Man Villain ](https://www.highsnobiety.com/p/nike-clogposite-green-goblin/)
+## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:15:43 GMT*
+*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
 
 
 ## BlockBoy JB
 
-## [Luxury Fashion Looks Like Luxury Fashion Again. Is That a Good Thing?](https://www.highsnobiety.com/p/luxury-fashion-streetwear-divide/)
+## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:07:11 GMT*
-
-
-## Biden
-
-## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
+*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
 
 
 ## Biden
@@ -11202,29 +9033,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Biden
 
-## [New Balance TDS Finds Beauty In Techy Running Shoes](https://www.highsnobiety.com/p/new-balance-tokyo-design-studio-fw24/)
+## [A ‘Universal’ Blush Brings Beauty’s Shade Problem Back to Light](https://www.highsnobiety.com/p/ysl-lavender-blush-controversy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 12:55:07 GMT*
-
-
-## Biden
-
-## [I Like Big Totes and I Cannot Lie](https://www.highsnobiety.com/p/totes-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 10:46:11 GMT*
-
-
-## Biden
-
-## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
+*Published on: Wed, 25 Sep 2024 17:17:54 GMT*
 
 
 ## Biden
@@ -11242,29 +9055,20 @@ Tue, 24 Sep 2024 15:03:51 GMT*
 
 ## Biden
 
-## [Nike’s Reborn Sneaker-Clog Is Fit for a Spider-Man Villain ](https://www.highsnobiety.com/p/nike-clogposite-green-goblin/)
+## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:15:43 GMT*
+*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
 
 
 ## Biden
 
-## [Luxury Fashion Looks Like Luxury Fashion Again. Is That a Good Thing?](https://www.highsnobiety.com/p/luxury-fashion-streetwear-divide/)
+## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:07:11 GMT*
-
-
-## Bieber
-
-## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
+*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
 
 
 ## Bieber
@@ -11341,29 +9145,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Bieber
 
-## [New Balance TDS Finds Beauty In Techy Running Shoes](https://www.highsnobiety.com/p/new-balance-tokyo-design-studio-fw24/)
+## [A ‘Universal’ Blush Brings Beauty’s Shade Problem Back to Light](https://www.highsnobiety.com/p/ysl-lavender-blush-controversy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 12:55:07 GMT*
-
-
-## Bieber
-
-## [I Like Big Totes and I Cannot Lie](https://www.highsnobiety.com/p/totes-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 10:46:11 GMT*
-
-
-## Bieber
-
-## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
+*Published on: Wed, 25 Sep 2024 17:17:54 GMT*
 
 
 ## Bieber
@@ -11381,29 +9167,20 @@ Tue, 24 Sep 2024 15:03:51 GMT*
 
 ## Bieber
 
-## [Nike’s Reborn Sneaker-Clog Is Fit for a Spider-Man Villain ](https://www.highsnobiety.com/p/nike-clogposite-green-goblin/)
+## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:15:43 GMT*
+*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
 
 
 ## Bieber
 
-## [Luxury Fashion Looks Like Luxury Fashion Again. Is That a Good Thing?](https://www.highsnobiety.com/p/luxury-fashion-streetwear-divide/)
+## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:07:11 GMT*
-
-
-## Paulina Porizkov
-
-## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
+*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
 
 
 ## Paulina Porizkov
@@ -11480,29 +9257,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Paulina Porizkov
 
-## [New Balance TDS Finds Beauty In Techy Running Shoes](https://www.highsnobiety.com/p/new-balance-tokyo-design-studio-fw24/)
+## [A ‘Universal’ Blush Brings Beauty’s Shade Problem Back to Light](https://www.highsnobiety.com/p/ysl-lavender-blush-controversy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 12:55:07 GMT*
-
-
-## Paulina Porizkov
-
-## [I Like Big Totes and I Cannot Lie](https://www.highsnobiety.com/p/totes-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 10:46:11 GMT*
-
-
-## Paulina Porizkov
-
-## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
+*Published on: Wed, 25 Sep 2024 17:17:54 GMT*
 
 
 ## Paulina Porizkov
@@ -11520,29 +9279,20 @@ Tue, 24 Sep 2024 15:03:51 GMT*
 
 ## Paulina Porizkov
 
-## [Nike’s Reborn Sneaker-Clog Is Fit for a Spider-Man Villain ](https://www.highsnobiety.com/p/nike-clogposite-green-goblin/)
+## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:15:43 GMT*
+*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
 
 
 ## Paulina Porizkov
 
-## [Luxury Fashion Looks Like Luxury Fashion Again. Is That a Good Thing?](https://www.highsnobiety.com/p/luxury-fashion-streetwear-divide/)
+## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:07:11 GMT*
-
-
-## Paris Hilton
-
-## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
+*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
 
 
 ## Paris Hilton
@@ -11619,29 +9369,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Paris Hilton
 
-## [New Balance TDS Finds Beauty In Techy Running Shoes](https://www.highsnobiety.com/p/new-balance-tokyo-design-studio-fw24/)
+## [A ‘Universal’ Blush Brings Beauty’s Shade Problem Back to Light](https://www.highsnobiety.com/p/ysl-lavender-blush-controversy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 12:55:07 GMT*
-
-
-## Paris Hilton
-
-## [I Like Big Totes and I Cannot Lie](https://www.highsnobiety.com/p/totes-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 10:46:11 GMT*
-
-
-## Paris Hilton
-
-## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
+*Published on: Wed, 25 Sep 2024 17:17:54 GMT*
 
 
 ## Paris Hilton
@@ -11659,29 +9391,20 @@ Tue, 24 Sep 2024 15:03:51 GMT*
 
 ## Paris Hilton
 
-## [Nike’s Reborn Sneaker-Clog Is Fit for a Spider-Man Villain ](https://www.highsnobiety.com/p/nike-clogposite-green-goblin/)
+## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:15:43 GMT*
+*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
 
 
 ## Paris Hilton
 
-## [Luxury Fashion Looks Like Luxury Fashion Again. Is That a Good Thing?](https://www.highsnobiety.com/p/luxury-fashion-streetwear-divide/)
+## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:07:11 GMT*
-
-
-## Metro Boomin
-
-## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
+*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
 
 
 ## Metro Boomin
@@ -11758,29 +9481,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Metro Boomin
 
-## [New Balance TDS Finds Beauty In Techy Running Shoes](https://www.highsnobiety.com/p/new-balance-tokyo-design-studio-fw24/)
+## [A ‘Universal’ Blush Brings Beauty’s Shade Problem Back to Light](https://www.highsnobiety.com/p/ysl-lavender-blush-controversy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 12:55:07 GMT*
-
-
-## Metro Boomin
-
-## [I Like Big Totes and I Cannot Lie](https://www.highsnobiety.com/p/totes-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 10:46:11 GMT*
-
-
-## Metro Boomin
-
-## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
+*Published on: Wed, 25 Sep 2024 17:17:54 GMT*
 
 
 ## Metro Boomin
@@ -11798,29 +9503,20 @@ Tue, 24 Sep 2024 15:03:51 GMT*
 
 ## Metro Boomin
 
-## [Nike’s Reborn Sneaker-Clog Is Fit for a Spider-Man Villain ](https://www.highsnobiety.com/p/nike-clogposite-green-goblin/)
+## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:15:43 GMT*
+*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
 
 
 ## Metro Boomin
 
-## [Luxury Fashion Looks Like Luxury Fashion Again. Is That a Good Thing?](https://www.highsnobiety.com/p/luxury-fashion-streetwear-divide/)
+## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:07:11 GMT*
-
-
-## Meghan Markle
-
-## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
+*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
 
 
 ## Meghan Markle
@@ -11897,29 +9593,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Meghan Markle
 
-## [New Balance TDS Finds Beauty In Techy Running Shoes](https://www.highsnobiety.com/p/new-balance-tokyo-design-studio-fw24/)
+## [A ‘Universal’ Blush Brings Beauty’s Shade Problem Back to Light](https://www.highsnobiety.com/p/ysl-lavender-blush-controversy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 12:55:07 GMT*
-
-
-## Meghan Markle
-
-## [I Like Big Totes and I Cannot Lie](https://www.highsnobiety.com/p/totes-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 10:46:11 GMT*
-
-
-## Meghan Markle
-
-## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
+*Published on: Wed, 25 Sep 2024 17:17:54 GMT*
 
 
 ## Meghan Markle
@@ -11937,29 +9615,20 @@ Tue, 24 Sep 2024 15:03:51 GMT*
 
 ## Meghan Markle
 
-## [Nike’s Reborn Sneaker-Clog Is Fit for a Spider-Man Villain ](https://www.highsnobiety.com/p/nike-clogposite-green-goblin/)
+## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:15:43 GMT*
+*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
 
 
 ## Meghan Markle
 
-## [Luxury Fashion Looks Like Luxury Fashion Again. Is That a Good Thing?](https://www.highsnobiety.com/p/luxury-fashion-streetwear-divide/)
+## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:07:11 GMT*
-
-
-## Megan Thee Stallion
-
-## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
+*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
 
 
 ## Megan Thee Stallion
@@ -12036,29 +9705,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Megan Thee Stallion
 
-## [New Balance TDS Finds Beauty In Techy Running Shoes](https://www.highsnobiety.com/p/new-balance-tokyo-design-studio-fw24/)
+## [A ‘Universal’ Blush Brings Beauty’s Shade Problem Back to Light](https://www.highsnobiety.com/p/ysl-lavender-blush-controversy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 12:55:07 GMT*
-
-
-## Megan Thee Stallion
-
-## [I Like Big Totes and I Cannot Lie](https://www.highsnobiety.com/p/totes-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 10:46:11 GMT*
-
-
-## Megan Thee Stallion
-
-## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
+*Published on: Wed, 25 Sep 2024 17:17:54 GMT*
 
 
 ## Megan Thee Stallion
@@ -12076,29 +9727,20 @@ Tue, 24 Sep 2024 15:03:51 GMT*
 
 ## Megan Thee Stallion
 
-## [Nike’s Reborn Sneaker-Clog Is Fit for a Spider-Man Villain ](https://www.highsnobiety.com/p/nike-clogposite-green-goblin/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 10:15:43 GMT*
-
-
-## Megan Thee Stallion
-
-## [Luxury Fashion Looks Like Luxury Fashion Again. Is That a Good Thing?](https://www.highsnobiety.com/p/luxury-fashion-streetwear-divide/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 10:07:11 GMT*
-
-
-## Maya Rudolph
-
 ## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Wed, 25 Sep 2024 08:29:38 GMT*
+
+
+## Megan Thee Stallion
+
+## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
 
 
 ## Maya Rudolph
@@ -12175,29 +9817,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Maya Rudolph
 
-## [New Balance TDS Finds Beauty In Techy Running Shoes](https://www.highsnobiety.com/p/new-balance-tokyo-design-studio-fw24/)
+## [A ‘Universal’ Blush Brings Beauty’s Shade Problem Back to Light](https://www.highsnobiety.com/p/ysl-lavender-blush-controversy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 12:55:07 GMT*
-
-
-## Maya Rudolph
-
-## [I Like Big Totes and I Cannot Lie](https://www.highsnobiety.com/p/totes-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 10:46:11 GMT*
-
-
-## Maya Rudolph
-
-## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
+*Published on: Wed, 25 Sep 2024 17:17:54 GMT*
 
 
 ## Maya Rudolph
@@ -12215,29 +9839,20 @@ Tue, 24 Sep 2024 15:03:51 GMT*
 
 ## Maya Rudolph
 
-## [Nike’s Reborn Sneaker-Clog Is Fit for a Spider-Man Villain ](https://www.highsnobiety.com/p/nike-clogposite-green-goblin/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 10:15:43 GMT*
-
-
-## Maya Rudolph
-
-## [Luxury Fashion Looks Like Luxury Fashion Again. Is That a Good Thing?](https://www.highsnobiety.com/p/luxury-fashion-streetwear-divide/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 10:07:11 GMT*
-
-
-## Olivia Rodrigo
-
 ## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Wed, 25 Sep 2024 08:29:38 GMT*
+
+
+## Maya Rudolph
+
+## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
 
 
 ## Olivia Rodrigo
@@ -12314,29 +9929,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Olivia Rodrigo
 
-## [New Balance TDS Finds Beauty In Techy Running Shoes](https://www.highsnobiety.com/p/new-balance-tokyo-design-studio-fw24/)
+## [A ‘Universal’ Blush Brings Beauty’s Shade Problem Back to Light](https://www.highsnobiety.com/p/ysl-lavender-blush-controversy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 12:55:07 GMT*
-
-
-## Olivia Rodrigo
-
-## [I Like Big Totes and I Cannot Lie](https://www.highsnobiety.com/p/totes-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 10:46:11 GMT*
-
-
-## Olivia Rodrigo
-
-## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
+*Published on: Wed, 25 Sep 2024 17:17:54 GMT*
 
 
 ## Olivia Rodrigo
@@ -12354,29 +9951,20 @@ Tue, 24 Sep 2024 15:03:51 GMT*
 
 ## Olivia Rodrigo
 
-## [Nike’s Reborn Sneaker-Clog Is Fit for a Spider-Man Villain ](https://www.highsnobiety.com/p/nike-clogposite-green-goblin/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 10:15:43 GMT*
-
-
-## Olivia Rodrigo
-
-## [Luxury Fashion Looks Like Luxury Fashion Again. Is That a Good Thing?](https://www.highsnobiety.com/p/luxury-fashion-streetwear-divide/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 10:07:11 GMT*
-
-
-## Obama
-
 ## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Wed, 25 Sep 2024 08:29:38 GMT*
+
+
+## Olivia Rodrigo
+
+## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
 
 
 ## Obama
@@ -12453,29 +10041,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Obama
 
-## [New Balance TDS Finds Beauty In Techy Running Shoes](https://www.highsnobiety.com/p/new-balance-tokyo-design-studio-fw24/)
+## [A ‘Universal’ Blush Brings Beauty’s Shade Problem Back to Light](https://www.highsnobiety.com/p/ysl-lavender-blush-controversy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 12:55:07 GMT*
-
-
-## Obama
-
-## [I Like Big Totes and I Cannot Lie](https://www.highsnobiety.com/p/totes-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 10:46:11 GMT*
-
-
-## Obama
-
-## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
+*Published on: Wed, 25 Sep 2024 17:17:54 GMT*
 
 
 ## Obama
@@ -12493,29 +10063,20 @@ Tue, 24 Sep 2024 15:03:51 GMT*
 
 ## Obama
 
-## [Nike’s Reborn Sneaker-Clog Is Fit for a Spider-Man Villain ](https://www.highsnobiety.com/p/nike-clogposite-green-goblin/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 10:15:43 GMT*
-
-
-## Obama
-
-## [Luxury Fashion Looks Like Luxury Fashion Again. Is That a Good Thing?](https://www.highsnobiety.com/p/luxury-fashion-streetwear-divide/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 10:07:11 GMT*
-
-
-## Nicki Minaj
-
 ## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Wed, 25 Sep 2024 08:29:38 GMT*
+
+
+## Obama
+
+## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
 
 
 ## Nicki Minaj
@@ -12592,29 +10153,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## Nicki Minaj
 
-## [New Balance TDS Finds Beauty In Techy Running Shoes](https://www.highsnobiety.com/p/new-balance-tokyo-design-studio-fw24/)
+## [A ‘Universal’ Blush Brings Beauty’s Shade Problem Back to Light](https://www.highsnobiety.com/p/ysl-lavender-blush-controversy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 12:55:07 GMT*
-
-
-## Nicki Minaj
-
-## [I Like Big Totes and I Cannot Lie](https://www.highsnobiety.com/p/totes-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 10:46:11 GMT*
-
-
-## Nicki Minaj
-
-## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
+*Published on: Wed, 25 Sep 2024 17:17:54 GMT*
 
 
 ## Nicki Minaj
@@ -12632,29 +10175,20 @@ Tue, 24 Sep 2024 15:03:51 GMT*
 
 ## Nicki Minaj
 
-## [Nike’s Reborn Sneaker-Clog Is Fit for a Spider-Man Villain ](https://www.highsnobiety.com/p/nike-clogposite-green-goblin/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 10:15:43 GMT*
-
-
-## Nicki Minaj
-
-## [Luxury Fashion Looks Like Luxury Fashion Again. Is That a Good Thing?](https://www.highsnobiety.com/p/luxury-fashion-streetwear-divide/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 10:07:11 GMT*
-
-
-## MrBeast
-
 ## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
 *Published on: Wed, 25 Sep 2024 08:29:38 GMT*
+
+
+## Nicki Minaj
+
+## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
+
+Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
+
+*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
 
 
 ## MrBeast
@@ -12731,29 +10265,11 @@ Highsnobiety is a global fashion and media brand passionate about product and th
 
 ## MrBeast
 
-## [New Balance TDS Finds Beauty In Techy Running Shoes](https://www.highsnobiety.com/p/new-balance-tokyo-design-studio-fw24/)
+## [A ‘Universal’ Blush Brings Beauty’s Shade Problem Back to Light](https://www.highsnobiety.com/p/ysl-lavender-blush-controversy/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 12:55:07 GMT*
-
-
-## MrBeast
-
-## [I Like Big Totes and I Cannot Lie](https://www.highsnobiety.com/p/totes-trend/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 10:46:11 GMT*
-
-
-## MrBeast
-
-## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
-
-Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
-
-*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
+*Published on: Wed, 25 Sep 2024 17:17:54 GMT*
 
 
 ## MrBeast
@@ -12771,19 +10287,19 @@ Tue, 24 Sep 2024 15:03:51 GMT*
 
 ## MrBeast
 
-## [Nike’s Reborn Sneaker-Clog Is Fit for a Spider-Man Villain ](https://www.highsnobiety.com/p/nike-clogposite-green-goblin/)
+## [Nike’s Zip-Up Air Max Is Extra Rugged in GORE-TEX](https://www.highsnobiety.com/p/nike-air-max-sndr-gore-tex/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:15:43 GMT*
+*Published on: Wed, 25 Sep 2024 08:29:38 GMT*
 
 
 ## MrBeast
 
-## [Luxury Fashion Looks Like Luxury Fashion Again. Is That a Good Thing?](https://www.highsnobiety.com/p/luxury-fashion-streetwear-divide/)
+## [Nike's No-Fail Dad Shoe Slips Into a Spooky Spidey Suit ](https://www.highsnobiety.com/p/nike-zoom-vomero-5-spider/)
 
 Highsnobiety is a global fashion and media brand passionate about product and the stories that shape them.
 
-*Published on: Tue, 24 Sep 2024 10:07:11 GMT*
+*Published on: Tue, 24 Sep 2024 17:21:41 GMT*
 
 
