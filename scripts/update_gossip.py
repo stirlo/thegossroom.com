@@ -13,6 +13,18 @@ def ensure_data_directory():
     if not os.path.exists('data'):
         os.makedirs('data')
 
+def initialize_gossip_data():
+    """
+    Initialize the gossip data file with an empty structure.
+    """
+    empty_data = {
+        "entries": [],
+        "last_hour_topics": []
+    }
+    ensure_data_directory()
+    with open('data/gossip_data.json', 'w') as f:
+        json.dump(empty_data, f)
+
 def load_rss_feeds():
     with open('rss.txt', 'r') as f:
         return [line.strip() for line in f if line.strip()]
@@ -128,6 +140,11 @@ def get_last_hour_topics(entries):
     return list(recent_topics)
 
 def main():
+    ensure_data_directory()
+
+    if not os.path.exists('data/gossip_data.json') or os.path.getsize('data/gossip_data.json') == 0:
+        initialize_gossip_data()
+
     rss_feeds = load_rss_feeds()
     hot_topics = load_hot_topics()
     processed_articles = load_processed_articles()
@@ -140,8 +157,6 @@ def main():
     formatted_entries = format_entries(filtered_entries)
 
     last_hour_topics = get_last_hour_topics(formatted_entries)
-
-    ensure_data_directory()
 
     with open('data/gossip_data.json', 'w') as f:
         json.dump({
