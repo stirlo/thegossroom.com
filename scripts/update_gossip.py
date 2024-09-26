@@ -5,6 +5,7 @@ import hashlib
 import os
 from collections import Counter
 import re
+import pytz
 
 # Common words to exclude from potential celebrity names
 COMMON_WORDS = set(['in', 'new', 'to', 'for', 'her', 'his', 'after', 'tv', 'with', 'out', 'from', 'the', 'is', 'how', 'reveals', 'are', 'of', 'a', 'and', 'about', 'why', 'so', 'says', 'i', 'uk'])
@@ -19,7 +20,7 @@ def initialize_gossip_data():
     """
     empty_data = {
         "entries": [],
-        "last_hour_topics": []
+        "hourly_topics": {str(i): [] for i in range(1, 11)}
     }
     ensure_data_directory()
     with open('data/gossip_data.json', 'w') as f:
@@ -131,13 +132,20 @@ def update_hot_topics(entries, current_topics):
     save_hot_topics(updated_topics)
     return updated_topics
 
-def get_last_hour_topics(entries):
-    one_hour_ago = datetime.now() - timedelta(hours=1)
-    recent_entries = [entry for entry in entries if datetime.strptime(entry['published'], "%a, %d %b %Y %H:%M:%S %z") > one_hour_ago]
-    recent_topics = set()
-    for entry in recent_entries:
-        recent_topics.update(entry['topics'])
-    return list(recent_topics)
+def get_hourly_topics(entries):
+    now = datetime.now(pytz.UTC)
+    hourly_topics = {str(i): set() for i in range(1, 11)}
+
+    for entry in entries:
+        entry_time = datetime.strptime(entry['published'], "%a, %d %b %Y %H:%M:%S %z").replace(tzinfo=pytz.UTC)
+        hours_ago = (now - entry_time).total_seconds() / 3600
+
+        if hours_ago <= 10:
+            hour_bucket = min(10, max(1, int(hours_ago) + 1))
+            hourly_topics[str(hour_bucket)].update(entry['topics'])
+
+    # Convert sets to lists for JSON serialization
+    return {k: list(v) for k, v in hourly_topics.items()}
 
 def main():
     ensure_data_directory()
@@ -156,12 +164,12 @@ def main():
     filtered_entries = filter_entries_by_topics(entries, hot_topics)
     formatted_entries = format_entries(filtered_entries)
 
-    last_hour_topics = get_last_hour_topics(formatted_entries)
+    hourly_topics = get_hourly_topics(formatted_entries)
 
     with open('data/gossip_data.json', 'w') as f:
         json.dump({
             'entries': formatted_entries,
-            'last_hour_topics': last_hour_topics
+            'hourly_topics': hourly_topics
         }, f, default=str)
 
     save_processed_articles(processed_articles)
