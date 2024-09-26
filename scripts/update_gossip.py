@@ -134,22 +134,30 @@ def filter_entries_by_topics(entries, topics):
 
 def format_entries(entries, topics):
     """
-    Format entries into a dictionary grouped by topics.
+    Format entries into a dictionary grouped by topics and sorted by date.
 
     Args:
     entries (list): List of article entries.
     topics (list): List of topics (celebrity names) to group by.
 
     Returns:
-    dict: A dictionary with topics as keys and lists of relevant articles as values.
+    dict: A dictionary with topics as keys and lists of relevant articles as values,
+          sorted by the most recent article in each topic.
     """
     formatted_content = {}
     for topic in topics:
         topic_entries = [entry for entry in entries if topic.lower() in entry['title'].lower()]
         if topic_entries:
-            formatted_content[topic] = sorted(topic_entries, key=lambda x: x['published'], reverse=True)
+            # Sort entries within each topic by date, newest first
+            topic_entries.sort(key=lambda x: datetime.strptime(x['published'], "%a, %d %b %Y %H:%M:%S %z"), reverse=True)
+            formatted_content[topic] = topic_entries
 
-    return formatted_content
+    # Sort topics based on the date of their most recent article
+    sorted_topics = sorted(formatted_content.items(), 
+                           key=lambda x: datetime.strptime(x[1][0]['published'], "%a, %d %b %Y %H:%M:%S %z"), 
+                           reverse=True)
+
+    return dict(sorted_topics)
 
 def extract_potential_celebrities(entries, existing_topics):
     """
