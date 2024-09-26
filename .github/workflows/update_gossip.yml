@@ -20,7 +20,7 @@ jobs:
     - name: Install dependencies
       run: |
         python -m pip install --upgrade pip
-        pip install feedparser pytz
+        pip install feedparser pytz python-dateutil
         if [ -f requirements.txt ]; then pip install -r requirements.txt; fi
 
     - name: Run update script
