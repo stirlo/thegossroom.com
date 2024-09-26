@@ -1,33 +1,36 @@
 <!DOCTYPE html>
 <html lang="en">
 <head>
-  <meta charset="UTF-8">
-  <meta name="viewport" content="width=device-width, initial-scale=1.0">
-  <title>Attribution - The Goss Room</title>
-  <link rel="stylesheet" href="styles.css">
+    <meta charset="UTF-8">
+    <meta name="viewport" content="width=device-width, initial-scale=1.0">
+    <title>The Gossip Room - Attribution</title>
+    <link rel="stylesheet" href="style.css">
 </head>
 <body>
-  <header>
-    <h1>The Goss Room</h1>
-    <nav>
-      <ul>
-        <li><a href="index.html">Home</a></li>
-        <li><a href="#">Categories</a></li>
-        <li><a href="#">About</a></li>
-        <li><a href="#">Contact</a></li>
-        <li><a href="attribution.html">Attribution</a></li>
-      </ul>
-    </nav>
-  </header>
-  <main>
-    <div class="content-container">
-      <h2>Attribution</h2>
-      <p>Thank you to TMZ, E! Online, People, Entertainment Weekly, PerezHilton.com, Us Weekly, Variety, The Hollywood Reporter, Just Jared, Hello! Magazine, HuffPost Entertainment, Daily Mail, Metro UK, NewsCelebrity, 9Celebrity, Elle, Vogue, Harper's Bazaar, GQ, Esquire, HighSnobiety, Hypebeast, Sneaker News, and High Heel Confidential for providing RSS feeds and content that enriches our understanding of celebrity and entertainment news. We appreciate these organizations sharing their original reporting and photos which allow us to stay informed. Their journalism and media provide value to readers across the world.</p>
-    </div>
-  </main>
-  <footer>
-    <p>&copy; <span id="currentYear"></span> The Goss Room. All rights reserved.</p>
-  </footer>
-  <script src="script.js"></script>
+    <header>
+        <h1>The Gossip Room</h1>
+        <nav>
+            <ul>
+                <li><a href="index.html">Latest Gossip</a></li>
+                <li><a href="attribution.html">Attribution</a></li>
+            </ul>
+        </nav>
+    </header>
+
+    <main>
+        <div class="content-container">
+            <h2>Attribution</h2>
+            <p>The Gossip Room aggregates content from various reputable gossip and entertainment news sources. We'd like to thank and acknowledge the following publications:</p>
+            <ul id="sourceList">
+                <!-- This list will be populated by JavaScript -->
+            </ul>
+        </div>
+    </main>
+
+    <footer>
+        <p>&copy; 2024 The Gossip Room. All rights reserved.</p>
+    </footer>
+
+    <script src="attribution.js"></script>
 </body>
 </html>
