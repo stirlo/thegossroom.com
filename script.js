@@ -10,15 +10,19 @@ document.addEventListener('DOMContentLoaded', function() {
             const contentDiv = document.getElementById('content');
             const topicsDiv = document.getElementById('last-hour-topics');
 
-            if (data.entries.length === 0) {
+            // Check if data is an array (old format) or an object with 'entries' (new format)
+            const entries = Array.isArray(data) ? data : (data.entries || []);
+            const lastHourTopics = data.last_hour_topics || [];
+
+            if (entries.length === 0) {
                 contentDiv.innerHTML = '<p>No gossip data available at the moment. Check back later!</p>';
                 return;
             }
 
             // Create HTML for all articles
-            const articlesHTML = data.entries.map(item => `
+            const articlesHTML = entries.map(item => `
                 <article class="article">
-                    <h2>${item.topics.join(', ')}</h2>
+                    <h2>${Array.isArray(item.topics) ? item.topics.join(', ') : (item.topic || 'Gossip')}</h2>
                     <h3><a href="${item.link}" target="_blank">${item.title}</a></h3>
                     <p>Published: ${new Date(item.published).toLocaleString()}</p>
                     <p>${item.summary}</p>
@@ -29,18 +33,23 @@ document.addEventListener('DOMContentLoaded', function() {
             contentDiv.innerHTML = articlesHTML;
 
             // Create HTML for last hour's topics
-            const topicsHTML = data.last_hour_topics.map((topic, index) => `
+            const topicsHTML = lastHourTopics.map((topic, index) => `
                 <a href="#" class="topic-link" data-topic="${topic}">${index + 1}</a>
             `).join(' ');
 
-            topicsDiv.innerHTML = `<h3>Last Hour's Topics:</h3>${topicsHTML}`;
+            topicsDiv.innerHTML = lastHourTopics.length > 0 ? 
+                `<h3>Last Hour's Topics:</h3>${topicsHTML}` : 
+                '<p>No hot topics in the last hour.</p>';
 
             // Add event listeners to topic links
             document.querySelectorAll('.topic-link').forEach(link => {
                 link.addEventListener('click', function(e) {
                     e.preventDefault();
                     const topic = this.getAttribute('data-topic');
-                    const topicArticles = data.entries.filter(item => item.topics.includes(topic));
+                    const topicArticles = entries.filter(item => 
+                        (Array.isArray(item.topics) && item.topics.includes(topic)) || 
+                        item.topic === topic
+                    );
 
                     const topicHTML = topicArticles.map(item => `
                         <article class="article">
@@ -51,7 +60,7 @@ document.addEventListener('DOMContentLoaded', function() {
                         </article>
                     `).join('');
 
-                    contentDiv.innerHTML = topicHTML;
+                    contentDiv.innerHTML = topicHTML || '<p>No articles found for this topic.</p>';
                 });
             });
         })
