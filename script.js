@@ -1,70 +1,26 @@
-const contentContainer = document.querySelector('.content-container');
-const paginationContainer = document.querySelector('.pagination');
-const postsPerPage = 20; // Adjust based on your preference
-let currentPage = 1;
-let htmlContentPages = [];
-
-async function fetchPosts() {
-  const owner = 'stirlo';
-  const repo = 'thegossroom.com';
-  const path = 'archive';
-
-  const apiUrl = `https://api.github.com/repos/${owner}/${repo}/contents/${path}`;
-  contentContainer.innerHTML = '<p>Loading posts...</p>';
-
-  const response = await fetch(apiUrl);
-  const files = await response.json();
-
-  let markdownContent = '';
-  for (const file of files.reverse()) {
-    if (file.type === 'file' && file.name.endsWith('.md')) {
-      const fileResponse = await fetch(file.download_url);
-      const markdown = await fileResponse.text();
-      markdownContent += markdown + '\n\n';
-    }
-  }
-
-  // Use Showdown to convert Markdown to HTML
-  const converter = new showdown.Converter();
-  const htmlContent = converter.makeHtml(markdownContent);
-
-  splitIntoPages(htmlContent);
-  displayCurrentPage();
-  displayPagination();
-}
-
-function splitIntoPages(htmlContent) {
-  const charsPerPage = 10000; // Example character count, adjust as needed
-  htmlContentPages = [];
-  for (let i = 0; i < htmlContent.length; i += charsPerPage) {
-    htmlContentPages.push(htmlContent.substring(i, i + charsPerPage));
-  }
-}
-
-function displayCurrentPage() {
-  contentContainer.innerHTML = htmlContentPages[currentPage - 1] || '';
-}
-
-function displayPagination() {
-  paginationContainer.innerHTML = '';
-  for (let i = 1; i <= htmlContentPages.length; i++) {
-    const pageLink = document.createElement('a');
-    pageLink.href = '#';
-    pageLink.innerText = i;
-    pageLink.addEventListener('click', (e) => {
-      e.preventDefault();
-      currentPage = i;
-      displayCurrentPage();
-    });
-    paginationContainer.appendChild(pageLink);
-  }
-}
-
-function setCurrentYear() {
-  const currentYearElement = document.getElementById('currentYear');
-  const currentYear = new Date().getFullYear();
-  currentYearElement.textContent = currentYear;
-}
-
-setCurrentYear();
-fetchPosts();
+document.addEventListener('DOMContentLoaded', function() {
+    fetch('data/gossip_data.json')
+        .then(response => response.json())
+        .then(data => {
+            const contentDiv = document.getElementById('content');
+            for (const [topic, articles] of Object.entries(data)) {
+                const topicSection = document.createElement('section');
+                topicSection.className = 'topic-section';
+                topicSection.innerHTML = `
+                    <h2>${topic} News</h2>
+                    ${articles.map(article => `
+                        <article class="article">
+                            <h3><a href="${article.link}" target="_blank">${article.title}</a></h3>
+                            <p>Published: ${new Date(article.published).toLocaleString()}</p>
+                            <p>${article.summary}</p>
+                        </article>
+                    `).slice(0, 5).join('')}
+                `;
+                contentDiv.appendChild(topicSection);
+            }
+        })
+        .catch(error => {
+            console.error('Error fetching gossip data:', error);
+            document.getElementById('content').innerHTML = '<p>Sorry, there was an error loading the latest gossip. Please try again later.</p>';
+        });
+});
