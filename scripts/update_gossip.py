@@ -6,6 +6,11 @@ import os
 from collections import Counter
 import re
 import pytz
+import logging
+from dateutil import parser  # New import
+
+logging.basicConfig(level=logging.INFO)
+logger = logging.getLogger(__name__)
 
 # Common words to exclude from potential celebrity names
 COMMON_WORDS = set(['in', 'new', 'to', 'for', 'her', 'his', 'after', 'tv', 'with', 'out', 'from', 'the', 'is', 'how', 'reveals', 'are', 'of', 'a', 'and', 'about', 'why', 'so', 'says', 'i', 'uk'])
@@ -75,7 +80,7 @@ def fetch_and_parse_feeds(rss_feeds, processed_articles):
                         'published': parsed_entry['published']
                     }
         except Exception as e:
-            print(f"Error processing feed {feed_url}: {str(e)}")
+            logger.error(f"Error processing feed {feed_url}: {str(e)}")
 
     return all_entries, processed_articles
 
@@ -88,9 +93,16 @@ def filter_entries_by_topics(entries, topics):
             filtered_entries.append(entry)
     return filtered_entries
 
+def parse_date(date_string):
+    try:
+        return parser.parse(date_string)
+    except ValueError:
+        # If parsing fails, return a very old date so it sorts to the end
+        return datetime.min.replace(tzinfo=pytz.UTC)
+
 def format_entries(entries):
     # Sort all entries by date, newest first
-    sorted_entries = sorted(entries, key=lambda x: datetime.strptime(x['published'], "%a, %d %b %Y %H:%M:%S %z"), reverse=True)
+    sorted_entries = sorted(entries, key=lambda x: parse_date(x['published']), reverse=True)
 
     # Remove duplicates while preserving order
     seen = set()
@@ -137,7 +149,9 @@ def get_hourly_topics(entries):
     hourly_topics = {str(i): set() for i in range(1, 11)}
 
     for entry in entries:
-        entry_time = datetime.strptime(entry['published'], "%a, %d %b %Y %H:%M:%S %z").replace(tzinfo=pytz.UTC)
+        entry_time = parse_date(entry['published'])
+        if entry_time.tzinfo is None:
+            entry_time = entry_time.replace(tzinfo=pytz.UTC)
         hours_ago = (now - entry_time).total_seconds() / 3600
 
         if hours_ago <= 10:
@@ -148,31 +162,48 @@ def get_hourly_topics(entries):
     return {k: list(v) for k, v in hourly_topics.items()}
 
 def main():
+    logger.info("Starting gossip update process")
     ensure_data_directory()
 
     if not os.path.exists('data/gossip_data.json') or os.path.getsize('data/gossip_data.json') == 0:
+        logger.info("Initializing gossip data file")
         initialize_gossip_data()
 
     rss_feeds = load_rss_feeds()
+    logger.info(f"Loaded {len(rss_feeds)} RSS feeds")
+
     hot_topics = load_hot_topics()
+    logger.info(f"Loaded {len(hot_topics)} hot topics")
+
     processed_articles = load_processed_articles()
+    logger.info(f"Loaded {len(processed_articles)} processed articles")
 
     entries, processed_articles = fetch_and_parse_feeds(rss_feeds, processed_articles)
+    logger.info(f"Fetched {len(entries)} new entries")
 
     hot_topics = update_hot_topics(entries, hot_topics)
+    logger.info(f"Updated hot topics, now have {len(hot_topics)} topics")
 
     filtered_entries = filter_entries_by_topics(entries, hot_topics)
+    logger.info(f"Filtered entries, now have {len(filtered_entries)} entries")
+
     formatted_entries = format_entries(filtered_entries)
+    logger.info(f"Formatted entries, final count: {len(formatted_entries)}")
 
     hourly_topics = get_hourly_topics(formatted_entries)
+    logger.info(f"Generated hourly topics")
 
     with open('data/gossip_data.json', 'w') as f:
         json.dump({
             'entries': formatted_entries,
             'hourly_topics': hourly_topics
         }, f, default=str)
+    logger.info("Saved gossip data to file")
 
     save_processed_articles(processed_articles)
+    logger.info("Saved processed articles")
+
+    logger.info("Gossip update process completed")
 
 if __name__ == "__main__":
     main()
