@@ -4,6 +4,10 @@ from datetime import datetime, timedelta
 import hashlib
 import os
 from collections import Counter
+import re
+
+# Common words to exclude from potential celebrity names
+COMMON_WORDS = set(['in', 'new', 'to', 'for', 'her', 'his', 'after', 'tv', 'with', 'out', 'from', 'the', 'is', 'how', 'reveals', 'are', 'of', 'a', 'and', 'about', 'why', 'so', 'says', 'i', 'uk'])
 
 def ensure_data_directory():
     """
@@ -158,14 +162,35 @@ def extract_potential_celebrities(entries, existing_topics):
     Returns:
     list: List of potential new celebrities.
     """
-    words = ' '.join([entry['title'] for entry in entries]).split()
-    capitalized_words = [word for word in words if word[0].isupper()]
-    potential_celebrities = Counter(capitalized_words)
+    # Join all titles
+    all_titles = ' '.join([entry['title'] for entry in entries])
 
-    new_celebrities = [celeb for celeb, count in potential_celebrities.items() 
-                       if count >= 5 and celeb not in existing_topics]
+    # Use regex to find potential names (two or more capitalized words)
+    potential_names = re.findall(r'\b([A-Z][a-z]+(?:\s+[A-Z][a-z]+)+)\b', all_titles)
 
-    return new_celebrities
+    # Count occurrences of potential names
+    name_counts = Counter(potential_names)
+
+    # Filter out common words and apply a higher threshold
+    new_celebrities = [
+        name for name, count in name_counts.items()
+        if count >= 10  # Increased threshold
+        and name.lower() not in COMMON_WORDS
+        and all(word.lower() not in COMMON_WORDS for word in name.split())
+        and name not in existing_topics
+    ]
+
+    # Also include single-word names that meet a very high threshold
+    single_word_names = re.findall(r'\b([A-Z][a-z]+)\b', all_titles)
+    single_word_counts = Counter(single_word_names)
+    new_celebrities.extend([
+        name for name, count in single_word_counts.items()
+        if count >= 20  # Even higher threshold for single-word names
+        and name.lower() not in COMMON_WORDS
+        and name not in existing_topics
+    ])
+
+    return list(set(new_celebrities))  # Remove any duplicates
 
 def update_hot_topics(entries, current_topics):
     """
@@ -179,7 +204,7 @@ def update_hot_topics(entries, current_topics):
     list: Updated list of celebrity names.
     """
     new_celebrities = extract_potential_celebrities(entries, current_topics)
-    updated_topics = current_topics + new_celebrities
+    updated_topics = list(set(current_topics + new_celebrities))  # Remove any duplicates
     save_hot_topics(updated_topics)
     return updated_topics
 
