@@ -1,45 +1,74 @@
-# thegossroom.com
-The Gossip Room -- automated gossip blog; following trends and celebrity news
+# The Gossip Room
 
+## Overview
 
-scans RSS for stories 
-outputs like this but in a nicer page 
+The Gossip Room is an automated celebrity gossip aggregator that collects and displays the latest celebrity news from various reputable sources. This project uses web scraping techniques and natural language processing to curate up-to-date, relevant gossip about popular celebrities.
 
-## Taylor Swift News for April 03, 2024
+## Features
 
-### [Travis Kelce Teases Whether He Will Be At Any Of Taylor Swift's London Shows, And...](https://perezhilton.com/travis-kelce-taylor-swift-london-shows-tease/)
+- Automated collection of celebrity gossip from multiple RSS feeds
+- Dynamic updating of celebrity list based on trending topics
+- Responsive web design for optimal viewing on various devices
+- Attribution page to acknowledge and link to original sources
+- GitHub Actions for automated hourly updates
 
+## Technology Stack
 
-## Tom Brady News for April 03, 2024
+- Python (for web scraping and data processing)
+- HTML/CSS/JavaScript (for the frontend)
+- GitHub Pages (for hosting)
+- GitHub Actions (for automation)
 
-### [	Inside Gisele's stunning post-divorce sanctuary: Supermodel, 43, proudly shows off her incredibly lavish $9.1 MILLION Miami ranch - as she opens up about creating a 'comfortable space' for her and her kids in the wake of Tom Brady split](	https://www.dailymail.co.uk/femail/article-13264487/gisele-shows-florida-ranch-estate-tom-brady-split.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+## Setup and Installation
 
-### [      ](      )
+1. Clone the repository:
+   ```
+   git clone https://github.com/yourusername/thegossiproom.git
+   ```
 
+2. Navigate to the project directory:
+   ```
+   cd thegossiproom
+   ```
 
-## Diddy News for April 03, 2024
+3. Install the required Python packages:
+   ```
+   pip install -r requirements.txt
+   ```
 
-### [Diddy Raid: New Video Shared As Justin Combs' Mom Threatens Feds With Legal Action!](https://perezhilton.com/justin-combs-mom-threatens-feds-with-legal-action-diddy-raid-new-video/)
+4. Set up your RSS feeds:
+   Edit the `rss.txt` file to include the RSS feed URLs you want to scrape.
 
-### [	Shocking new footage shows FBI raid on Diddy's LA mansion as heavily-armed agents march his sons through house at gunpoint, pin them against walls and park armored tanks outside](	https://www.dailymail.co.uk/news/article-13264925/new-footage-FBI-raid-Diddy-mansion.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+5. Initialize your celebrity list:
+   Edit the `celebrities.txt` file to include initial celebrity names.
 
+6. Push your changes to GitHub:
+   ```
+   git add .
+   git commit -m &quot;Initial setup&quot;
+   git push origin main
+   ```
 
-## Drake News for April 03, 2024
+7. Set up GitHub Pages:
+   Go to your repository settings on GitHub and enable GitHub Pages for the main branch.
 
-### [Metro Boomin Says Toronto Phone Numbers Hacked Him Amid Drake Beef](https://www.tmz.com/2024/04/02/metro-boomin-drake-beef-toronto-icloud-hack-future-we-dont-trust-you/)
+## Usage
 
-### [	Fruity Messiah, or Drake? People spot Jesus or rap star in market stall optical illusion, so, who do YOU see?](	https://www.dailymail.co.uk/femail/article-13263833/Fruity-Messiah-Drake-People-spot-Jesus-rap-star-market-stall-optical-illusion-see.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+The website will automatically update hourly via GitHub Actions. To manually trigger an update:
 
-### [<![CDATA[Forget Rap Beef — Who Wears the Style Crown, Drake or Kendrick Lamar?]]>](https://www.highsnobiety.com/p/who-is-the-best-dressed-rapper-drake-kendrick-lamar/)
+1. Go to the "Actions" tab in your GitHub repository
+2. Select the "Update Gossip Data" workflow
+3. Click "Run workflow"
 
+## Contributing
 
-## 50 Cent News for April 03, 2024
+Contributions are welcome! Please feel free to submit a Pull Request.
 
-### [Stevie J Calls 50 Cent 'Uncle Tom' for Diddy Attacks, Describes Miami Raid](https://www.tmz.com/2024/04/02/stevie-j-diddy-federal-raids-investigation-50-cent-uncle-tom/)
+## License
 
+This project is licensed under the MIT License - see the [LICENSE.md](LICENSE.md) file for details.
 
-## Lizzo News for April 03, 2024
+## Acknowledgements
 
-### [Lizzo Clarifies 'I Quit' Post, Not Leaving Music Industry](https://www.tmz.com/2024/04/02/lizzo-clarify-quit-post-not-leave-music-industry/)
-
-### [People Are Big Mad At Jennifer Hudson AND Shakira! But They Should Be Mad At Lizzo Instead!! Doja Cat Is A Hypocrite! Poor JoJo Siwa! Shannen Doherty Planning For Her Death And...](https://perezhilton.com/people-are-big-mad-at-jennifer-hudson-and-shakira-but-they-should-be-mad-at-lizzo-instead-doja-cat-is-a-hypocrite-poor-jojo-siwa-shannen-doherty-planning-for-her-death-and/)
+- Thanks to all the news sources listed on our [Attribution](https://yourusername.github.io/thegossiproom/attribution.html) page.
+- Built with love for celebrity gossip enthusiasts everywhere.
