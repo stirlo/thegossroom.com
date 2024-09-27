@@ -60,9 +60,7 @@ def fetch_and_parse_feeds(rss_feeds, processed_articles):
     all_entries = []
     for feed_url in rss_feeds:
         try:
-            logger.info(f"Fetching feed: {feed_url}")
             feed = feedparser.parse(feed_url)
-            logger.info(f"Feed {feed_url} has {len(feed.entries)} entries")
             for entry in feed.entries:
                 parsed_entry = {
                     "title": entry.get('title', ''),
@@ -72,19 +70,14 @@ def fetch_and_parse_feeds(rss_feeds, processed_articles):
                 }
                 parsed_entry['id'] = hashlib.md5(parsed_entry['link'].encode()).hexdigest()
                 if is_article_new(parsed_entry['id'], processed_articles):
-                    logger.debug(f"New article found: {parsed_entry['title']}")
                     all_entries.append(parsed_entry)
                     processed_articles[parsed_entry['id']] = {
                         'title': parsed_entry['title'],
                         'link': parsed_entry['link'],
                         'published': parsed_entry['published']
                     }
-                else:
-                    logger.debug(f"Skipping already processed article: {parsed_entry['title']}")
         except Exception as e:
-            logger.error(f"Error processing feed {feed_url}: {str(e)}", exc_info=True)
-
-    logger.info(f"Total new entries found: {len(all_entries)}")
+            logger.error(f"Error processing feed {feed_url}: {str(e)}")
     return all_entries, processed_articles
 
 def filter_entries_by_topics(entries, topics):
@@ -179,11 +172,9 @@ def main():
 
     rss_feeds = load_rss_feeds()
     logger.info(f"Loaded {len(rss_feeds)} RSS feeds")
-    logger.debug(f"RSS feeds: {rss_feeds}")
 
     hot_topics = load_hot_topics()
     logger.info(f"Loaded {len(hot_topics)} hot topics")
-    logger.debug(f"Hot topics: {hot_topics}")
 
     processed_articles = load_processed_articles()
     logger.info(f"Loaded {len(processed_articles)} processed articles")
