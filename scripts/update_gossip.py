@@ -7,12 +7,11 @@ from collections import Counter
 import re
 import pytz
 import logging
-from dateutil import parser  # New import
+from dateutil import parser
 
 logging.basicConfig(level=logging.INFO)
 logger = logging.getLogger(__name__)
 
-# Common words to exclude from potential celebrity names
 COMMON_WORDS = set(['in', 'new', 'to', 'for', 'her', 'his', 'after', 'tv', 'with', 'out', 'from', 'the', 'is', 'how', 'reveals', 'are', 'of', 'a', 'and', 'about', 'why', 'so', 'says', 'i', 'uk'])
 
 def ensure_data_directory():
@@ -20,12 +19,10 @@ def ensure_data_directory():
         os.makedirs('data')
 
 def initialize_gossip_data():
-    """
-    Initialize the gossip data file with an empty structure.
-    """
     empty_data = {
         "entries": [],
-        "hourly_topics": {str(i): [] for i in range(1, 11)}
+        "hourly_topics": {str(i): [] for i in range(1, 11)},
+        "weekly_popularity": []
     }
     ensure_data_directory()
     with open('data/gossip_data.json', 'w') as f:
@@ -63,7 +60,9 @@ def fetch_and_parse_feeds(rss_feeds, processed_articles):
     all_entries = []
     for feed_url in rss_feeds:
         try:
+            logger.info(f"Fetching feed: {feed_url}")
             feed = feedparser.parse(feed_url)
+            logger.info(f"Feed {feed_url} has {len(feed.entries)} entries")
             for entry in feed.entries:
                 parsed_entry = {
                     "title": entry.get('title', ''),
@@ -73,15 +72,19 @@ def fetch_and_parse_feeds(rss_feeds, processed_articles):
                 }
                 parsed_entry['id'] = hashlib.md5(parsed_entry['link'].encode()).hexdigest()
                 if is_article_new(parsed_entry['id'], processed_articles):
+                    logger.debug(f"New article found: {parsed_entry['title']}")
                     all_entries.append(parsed_entry)
                     processed_articles[parsed_entry['id']] = {
                         'title': parsed_entry['title'],
                         'link': parsed_entry['link'],
                         'published': parsed_entry['published']
                     }
+                else:
+                    logger.debug(f"Skipping already processed article: {parsed_entry['title']}")
         except Exception as e:
-            logger.error(f"Error processing feed {feed_url}: {str(e)}")
+            logger.error(f"Error processing feed {feed_url}: {str(e)}", exc_info=True)
 
+    logger.info(f"Total new entries found: {len(all_entries)}")
     return all_entries, processed_articles
 
 def filter_entries_by_topics(entries, topics):
@@ -97,21 +100,16 @@ def parse_date(date_string):
     try:
         return parser.parse(date_string)
     except ValueError:
-        # If parsing fails, return a very old date so it sorts to the end
         return datetime.min.replace(tzinfo=pytz.UTC)
 
 def format_entries(entries):
-    # Sort all entries by date, newest first
     sorted_entries = sorted(entries, key=lambda x: parse_date(x['published']), reverse=True)
-
-    # Remove duplicates while preserving order
     seen = set()
     unique_entries = []
     for entry in sorted_entries:
         if entry['id'] not in seen:
             seen.add(entry['id'])
             unique_entries.append(entry)
-
     return unique_entries
 
 def extract_potential_celebrities(entries, existing_topics):
@@ -158,8 +156,18 @@ def get_hourly_topics(entries):
             hour_bucket = min(10, max(1, int(hours_ago) + 1))
             hourly_topics[str(hour_bucket)].update(entry['topics'])
 
-    # Convert sets to lists for JSON serialization
     return {k: list(v) for k, v in hourly_topics.items()}
+
+def calculate_weekly_popularity(entries):
+    one_week_ago = datetime.now(pytz.UTC) - timedelta(days=7)
+    recent_entries = [entry for entry in entries if parse_date(entry['published']) > one_week_ago]
+
+    topic_mentions = Counter()
+    for entry in recent_entries:
+        for topic in entry['topics']:
+            topic_mentions[topic] += 1
+
+    return sorted(topic_mentions.items(), key=lambda x: x[1], reverse=True)[:10]
 
 def main():
     logger.info("Starting gossip update process")
@@ -171,9 +179,11 @@ def main():
 
     rss_feeds = load_rss_feeds()
     logger.info(f"Loaded {len(rss_feeds)} RSS feeds")
+    logger.debug(f"RSS feeds: {rss_feeds}")
 
     hot_topics = load_hot_topics()
     logger.info(f"Loaded {len(hot_topics)} hot topics")
+    logger.debug(f"Hot topics: {hot_topics}")
 
     processed_articles = load_processed_articles()
     logger.info(f"Loaded {len(processed_articles)} processed articles")
@@ -193,10 +203,14 @@ def main():
     hourly_topics = get_hourly_topics(formatted_entries)
     logger.info(f"Generated hourly topics")
 
+    weekly_popularity = calculate_weekly_popularity(formatted_entries)
+    logger.info(f"Calculated weekly popularity")
+
     with open('data/gossip_data.json', 'w') as f:
         json.dump({
             'entries': formatted_entries,
-            'hourly_topics': hourly_topics
+            'hourly_topics': hourly_topics,
+            'weekly_popularity': weekly_popularity
         }, f, default=str)
     logger.info("Saved gossip data to file")
 
