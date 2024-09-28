@@ -289,7 +289,7 @@ def main():
     logger.info(f"Calculated weekly popularity")
     fallback_entries = generate_fallback_entries(weekly_popularity)
     logger.info(f"Generated {len(fallback_entries)} fallback entries")
-  with open('data/gossip_data.json', 'w') as f:
+    with open('data/gossip_data.json', 'w') as f:
         json.dump({
             'entries': formatted_entries,
             'fallback_entries': fallback_entries,
@@ -309,3 +309,4 @@ def main():
 
 if __name__ == "__main__":
     main()
+
