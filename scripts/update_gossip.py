@@ -38,7 +38,7 @@ def load_rss_feeds():
 
 def load_hot_topics():
     with open('celebrities.txt', 'r') as f:
-        return [line.strip().split(',') for line in f if line.strip()]
+        return [(line.strip().split(',')[0], int(line.strip().split(',')[1])) if ',' in line else (line.strip(), 0) for line in f if line.strip()]
 
 def save_hot_topics(topics):
     with open('celebrities.txt', 'w') as f:
@@ -139,13 +139,27 @@ def update_hot_topics(entries, current_topics):
     for entry in entries:
         for topic in entry.get('topics', []):
             topic_mentions[topic] += 1
+
     # Update counts for existing topics
-    updated_topics = [(topic, topic_mentions.get(topic, 0) + int(count)) for topic, count in current_topics]
+    updated_topics = []
+    for item in current_topics:
+        if isinstance(item, tuple) and len(item) == 2:
+            topic, count = item
+        elif isinstance(item, list) and len(item) >= 2:
+            topic, count = item[0], item[1]
+        else:
+            logger.warning(f"Unexpected format in current_topics: {item}")
+            continue
+        updated_topics.append((topic, topic_mentions.get(topic, 0) + int(count)))
+
     # Add new celebrities
-    new_celebrities = extract_potential_celebrities(entries, [topic for topic, _ in current_topics])
+    existing_topics = set(topic for topic, _ in updated_topics)
+    new_celebrities = extract_potential_celebrities(entries, existing_topics)
     updated_topics.extend([(celeb, topic_mentions.get(celeb, 1)) for celeb in new_celebrities])
+
     # Sort by count (descending)
     updated_topics.sort(key=lambda x: x[1], reverse=True)
+
     save_hot_topics(updated_topics)
     return updated_topics
 
@@ -242,21 +256,17 @@ def generate_celebrity_ranks():
     if os.path.exists(file_path):
         with open(file_path, 'r') as f:
             weekly_popularity = json.load(f)
-
         # Create a dictionary of celebrity ranks
         celebrity_ranks = {}
         for topic, count, _ in weekly_popularity:
             celebrity_ranks[topic] = count
-
         # Normalize the ranks to a 0-100 scale
         max_count = max(celebrity_ranks.values())
         for celebrity, count in celebrity_ranks.items():
             celebrity_ranks[celebrity] = int((count / max_count) * 100)
-
         # Save the celebrity ranks
         with open('data/celebrity_ranks.json', 'w') as f:
             json.dump(celebrity_ranks, f, indent=2)
-
         logger.info("Generated celebrity ranks")
     else:
         logger.warning("Weekly popularity data not found. Unable to generate celebrity ranks.")
@@ -302,11 +312,8 @@ def main():
     logger.info("Saved gossip data to file")
     save_processed_articles(processed_articles)
     logger.info("Saved processed articles")
-
     generate_celebrity_ranks()
-
     logger.info("Gossip update process completed")
 
 if __name__ == "__main__":
     main()
-
