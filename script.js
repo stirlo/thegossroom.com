@@ -39,6 +39,13 @@ function createEntryElement(entry) {
     const entryElement = document.createElement('div');
     entryElement.className = 'gossip-entry';
 
+    if (entry.image) {
+        const imageElement = document.createElement('img');
+        imageElement.src = entry.image;
+        imageElement.alt = entry.title;
+        entryElement.appendChild(imageElement);
+    }
+
     const titleElement = document.createElement('h3');
     const linkElement = document.createElement('a');
     linkElement.href = entry.link;
