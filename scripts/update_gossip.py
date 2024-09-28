@@ -139,17 +139,13 @@ def update_hot_topics(entries, current_topics):
     for entry in entries:
         for topic in entry.get('topics', []):
             topic_mentions[topic] += 1
-
     # Update counts for existing topics
     updated_topics = [(topic, topic_mentions.get(topic, 0) + int(count)) for topic, count in current_topics]
-
     # Add new celebrities
     new_celebrities = extract_potential_celebrities(entries, [topic for topic, _ in current_topics])
     updated_topics.extend([(celeb, topic_mentions.get(celeb, 1)) for celeb in new_celebrities])
-
     # Sort by count (descending)
     updated_topics.sort(key=lambda x: x[1], reverse=True)
-
     save_hot_topics(updated_topics)
     return updated_topics
 
@@ -168,19 +164,16 @@ def get_hourly_topics(entries):
 
 def update_weekly_popularity(new_data, existing_data):
     topic_dict = {}
-
     # Combine existing and new data
     for item in existing_data + new_data:
-        if len(item) >= 2:  # Ensure we have at least topic and count
+        if len(item) >= 2: # Ensure we have at least topic and count
             topic, count = item[0], item[1]
             articles = item[2] if len(item) > 2 else []
-
             if topic in topic_dict:
                 topic_dict[topic]['count'] += count
                 topic_dict[topic]['articles'].extend(articles)
             else:
                 topic_dict[topic] = {'count': count, 'articles': articles}
-
     # Sort by count and convert back to list of tuples
     sorted_topics = sorted(topic_dict.items(), key=lambda x: x[1]['count'], reverse=True)
     return [(topic, data['count'], data['articles']) for topic, data in sorted_topics]
@@ -194,9 +187,7 @@ def calculate_weekly_popularity(entries):
         for topic in entry['topics']:
             topic_mentions[topic] += 1
             topic_articles[topic].append(entry)
-
     new_data = [(topic, count, topic_articles[topic]) for topic, count in topic_mentions.items()]
-
     # Load existing data
     file_path = 'data/weekly_popularity.json'
     if os.path.exists(file_path):
@@ -204,19 +195,16 @@ def calculate_weekly_popularity(entries):
             existing_data = json.load(f)
     else:
         existing_data = []
-
     updated_data = update_weekly_popularity(new_data, existing_data)
-
     # Write updated data back to file
     with open(file_path, 'w') as f:
         json.dump(updated_data, f, default=str)
-
     return updated_data
 
 def generate_fallback_entries(weekly_popularity):
     fallback_entries = []
     for topic, count, articles in weekly_popularity:
-        for article in articles[:min(count, 5)]:  # Add up to 5 articles for each topic
+        for article in articles[:min(count, 5)]: # Add up to 5 articles for each topic
             if article not in fallback_entries:
                 article['is_fallback'] = True
                 fallback_entries.append(article)
@@ -227,7 +215,6 @@ def get_celebrity_categories(entries, hot_topics):
     for entry in entries:
         for topic in entry.get('topics', []):
             topic_mentions[topic] += 1
-
     hot_this_week = []
     not_this_week = []
     for topic, _ in hot_topics:
@@ -235,24 +222,44 @@ def get_celebrity_categories(entries, hot_topics):
             hot_this_week.append((topic, topic_mentions[topic]))
         else:
             not_this_week.append(topic)
-
     # Sort hot_this_week by mentions and limit to top 10
     hot_this_week.sort(key=lambda x: x[1], reverse=True)
     hot_this_week = hot_this_week[:10]
-
     # Limit not_this_week to bottom 10
     not_this_week = not_this_week[-10:]
-
     # Get upcoming new names
     existing_topics = set(topic for topic, _ in hot_topics)
     upcoming_new_names = [
         (topic, count) for topic, count in topic_mentions.items()
-        if topic not in existing_topics and count >= 5  # Adjust the threshold as needed
+        if topic not in existing_topics and count >= 5 # Adjust the threshold as needed
     ]
     upcoming_new_names.sort(key=lambda x: x[1], reverse=True)
-    upcoming_new_names = upcoming_new_names[:10]  # Limit to top 10
-
+    upcoming_new_names = upcoming_new_names[:10] # Limit to top 10
     return hot_this_week, not_this_week, upcoming_new_names
+
+def generate_celebrity_ranks():
+    file_path = 'data/weekly_popularity.json'
+    if os.path.exists(file_path):
+        with open(file_path, 'r') as f:
+            weekly_popularity = json.load(f)
+
+        # Create a dictionary of celebrity ranks
+        celebrity_ranks = {}
+        for topic, count, _ in weekly_popularity:
+            celebrity_ranks[topic] = count
+
+        # Normalize the ranks to a 0-100 scale
+        max_count = max(celebrity_ranks.values())
+        for celebrity, count in celebrity_ranks.items():
+            celebrity_ranks[celebrity] = int((count / max_count) * 100)
+
+        # Save the celebrity ranks
+        with open('data/celebrity_ranks.json', 'w') as f:
+            json.dump(celebrity_ranks, f, indent=2)
+
+        logger.info("Generated celebrity ranks")
+    else:
+        logger.warning("Weekly popularity data not found. Unable to generate celebrity ranks.")
 
 def main():
     logger.info("Starting gossip update process")
@@ -260,39 +267,29 @@ def main():
     if not os.path.exists('data/gossip_data.json') or os.path.getsize('data/gossip_data.json') == 0:
         logger.info("Initializing gossip data file")
         initialize_gossip_data()
-
     rss_feeds = load_rss_feeds()
     logger.info(f"Loaded {len(rss_feeds)} RSS feeds")
     hot_topics = load_hot_topics()
     logger.info(f"Loaded {len(hot_topics)} hot topics")
     processed_articles = load_processed_articles()
     logger.info(f"Loaded {len(processed_articles)} processed articles")
-
     entries, processed_articles = fetch_and_parse_feeds(rss_feeds, processed_articles)
     logger.info(f"Fetched {len(entries)} new entries")
-
     hot_topics = update_hot_topics(entries, hot_topics)
     logger.info(f"Updated hot topics, now have {len(hot_topics)} topics")
-
     filtered_entries = filter_entries_by_topics(entries, [topic for topic, _ in hot_topics])
     logger.info(f"Filtered entries, now have {len(filtered_entries)} entries")
-
     formatted_entries = format_entries(filtered_entries)
     logger.info(f"Formatted entries, final count: {len(formatted_entries)}")
-
     hot_this_week, not_this_week, upcoming_new_names = get_celebrity_categories(formatted_entries, hot_topics)
     logger.info(f"Generated celebrity categories")
-
     hourly_topics = get_hourly_topics(formatted_entries)
     logger.info(f"Generated hourly topics")
-
     weekly_popularity = calculate_weekly_popularity(formatted_entries)
     logger.info(f"Calculated weekly popularity")
-
     fallback_entries = generate_fallback_entries(weekly_popularity)
     logger.info(f"Generated {len(fallback_entries)} fallback entries")
-
-    with open('data/gossip_data.json', 'w') as f:
+  with open('data/gossip_data.json', 'w') as f:
         json.dump({
             'entries': formatted_entries,
             'fallback_entries': fallback_entries,
@@ -303,9 +300,11 @@ def main():
             'upcoming_new_names': upcoming_new_names
         }, f, default=str)
     logger.info("Saved gossip data to file")
-
     save_processed_articles(processed_articles)
     logger.info("Saved processed articles")
+
+    generate_celebrity_ranks()
+
     logger.info("Gossip update process completed")
 
 if __name__ == "__main__":
