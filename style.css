@@ -84,6 +84,7 @@ aside {
   padding: 10px;
   border: 1px solid var(--tertiary-color);
   border-radius: 5px;
+  background-color: var(--bg-color); /* Add this line */
 }
 
 .gossip-entry img {
@@ -148,11 +149,9 @@ footer {
   body {
     grid-template-columns: 2fr 1fr;
   }
-
   main {
     grid-column: 1 / 2;
   }
-
   aside {
     grid-column: 2 / 3;
     display: block;
