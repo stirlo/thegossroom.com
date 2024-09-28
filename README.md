@@ -2,13 +2,17 @@
 
 ## Overview
 
-The Gossip Room is an automated celebrity gossip aggregator that collects and displays the latest celebrity news from various reputable sources. This project uses web scraping techniques and natural language processing to curate up-to-date, relevant gossip about popular celebrities.
+The Gossip Room is an automated celebrity gossip aggregator that collects and displays the latest celebrity news from various reputable sources. This project uses web scraping techniques and natural language processing to curate up-to-date, relevant gossip about popular celebrities, providing a dynamic and engaging user experience.
 
 ## Features
 
 - Automated collection of celebrity gossip from multiple RSS feeds
 - Dynamic updating of celebrity list based on trending topics
 - Responsive web design for optimal viewing on various devices
+- Full-width image display for a more immersive experience
+- Trending topics section showing popular subjects in the last hour and last 10 hours
+- Weekly popularity chart of most mentioned celebrities
+- Fallback content system to display recent popular stories when no new gossip is available
 - Attribution page to acknowledge and link to original sources
 - GitHub Actions for automated hourly updates
 
@@ -23,12 +27,12 @@ The Gossip Room is an automated celebrity gossip aggregator that collects and di
 
 1. Clone the repository:
    ```
-   git clone https://github.com/yourusername/thegossiproom.git
+   git clone https://github.com/stirlo/thegossroom.com.git
    ```
 
 2. Navigate to the project directory:
    ```
-   cd thegossiproom
+   cd thegossroom.com
    ```
 
 3. Install the required Python packages:
@@ -60,6 +64,17 @@ The website will automatically update hourly via GitHub Actions. To manually tri
 2. Select the "Update Gossip Data" workflow
 3. Click "Run workflow"
 
+## Project Structure
+
+- `index.html`: Main page of the website
+- `style.css`: Stylesheet for the website
+- `script.js`: JavaScript file for dynamic content loading and interaction
+- `gossip_scraper.py`: Python script for scraping and processing gossip data
+- `data/gossip_data.json`: JSON file containing the latest gossip data
+- `data/weekly_popularity.json`: JSON file containing weekly popularity data
+- `rss.txt`: List of RSS feed URLs to scrape
+- `celebrities.txt`: List of celebrities to track
+
 ## Contributing
 
 Contributions are welcome! Please feel free to submit a Pull Request.
@@ -70,5 +85,12 @@ This project is licensed under the MIT License - see the [LICENSE.md](LICENSE.md
 
 ## Acknowledgements
 
-- Thanks to all the news sources listed on our [Attribution](https://yourusername.github.io/thegossiproom/attribution.html) page.
+- Thanks to all the news sources listed on our [Attribution](https://stirlo.github.io/thegossroom.com/attribution.html) page.
 - Built with love for celebrity gossip enthusiasts everywhere.
+
+## Future Enhancements
+
+- Implement user accounts for personalized gossip feeds
+- Add social media sharing functionality
+- Develop a mobile app version of The Gossip Room
+- Incorporate sentiment analysis to categorize gossip as positive, negative, or neutral
