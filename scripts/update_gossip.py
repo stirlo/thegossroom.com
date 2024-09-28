@@ -150,6 +150,30 @@ def get_hourly_topics(entries):
             hourly_topics[str(hour_bucket)].update(entry['topics'])
     return {k: list(v) for k, v in hourly_topics.items()}
 
+def update_weekly_popularity(new_data):
+    file_path = 'data/weekly_popularity.json'
+    ensure_data_directory()
+
+    # Read existing data
+    if os.path.exists(file_path):
+        with open(file_path, 'r') as f:
+            existing_data = json.load(f)
+    else:
+        existing_data = []
+
+    # Merge new data with existing data
+    combined_data = existing_data + new_data
+
+    # Sort by count (descending) and keep top 10
+    sorted_data = sorted(combined_data, key=lambda x: x[1], reverse=True)
+    top_10 = sorted_data[:10]
+
+    # Write updated data back to file
+    with open(file_path, 'w') as f:
+        json.dump(top_10, f)
+
+    return top_10
+
 def calculate_weekly_popularity(entries):
     one_week_ago = datetime.now(pytz.UTC) - timedelta(days=7)
     recent_entries = [entry for entry in entries if parse_date(entry['published']) > one_week_ago]
@@ -157,7 +181,8 @@ def calculate_weekly_popularity(entries):
     for entry in recent_entries:
         for topic in entry['topics']:
             topic_mentions[topic] += 1
-    return sorted(topic_mentions.items(), key=lambda x: x[1], reverse=True)[:10]
+    new_data = list(topic_mentions.items())
+    return update_weekly_popularity(new_data)
 
 def main():
     logger.info("Starting gossip update process")
@@ -183,6 +208,16 @@ def main():
     logger.info(f"Generated hourly topics")
     weekly_popularity = calculate_weekly_popularity(formatted_entries)
     logger.info(f"Calculated weekly popularity")
+
+    if not weekly_popularity:
+        # If no new data, load the existing data
+        file_path = 'data/weekly_popularity.json'
+        if os.path.exists(file_path):
+            with open(file_path, 'r') as f:
+                weekly_popularity = json.load(f)
+        else:
+            weekly_popularity = []
+
     with open('data/gossip_data.json', 'w') as f:
         json.dump({
             'entries': formatted_entries,
