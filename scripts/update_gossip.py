@@ -23,7 +23,10 @@ def initialize_gossip_data():
         "entries": [],
         "fallback_entries": [],
         "hourly_topics": {str(i): [] for i in range(1, 11)},
-        "weekly_popularity": []
+        "weekly_popularity": [],
+        "hot_this_week": [],
+        "not_this_week": [],
+        "upcoming_new_names": []
     }
     ensure_data_directory()
     with open('data/gossip_data.json', 'w') as f:
@@ -35,12 +38,12 @@ def load_rss_feeds():
 
 def load_hot_topics():
     with open('celebrities.txt', 'r') as f:
-        return [line.strip() for line in f if line.strip()]
+        return [line.strip().split(',') for line in f if line.strip()]
 
 def save_hot_topics(topics):
     with open('celebrities.txt', 'w') as f:
-        for topic in topics:
-            f.write(f"{topic}\n")
+        for topic, count in topics:
+            f.write(f"{topic},{count}\n")
 
 def load_processed_articles():
     ensure_data_directory()
@@ -132,8 +135,21 @@ def extract_potential_celebrities(entries, existing_topics):
     return list(set(new_celebrities))
 
 def update_hot_topics(entries, current_topics):
-    new_celebrities = extract_potential_celebrities(entries, current_topics)
-    updated_topics = list(set(current_topics + new_celebrities))
+    topic_mentions = Counter()
+    for entry in entries:
+        for topic in entry.get('topics', []):
+            topic_mentions[topic] += 1
+
+    # Update counts for existing topics
+    updated_topics = [(topic, topic_mentions.get(topic, 0) + int(count)) for topic, count in current_topics]
+
+    # Add new celebrities
+    new_celebrities = extract_potential_celebrities(entries, [topic for topic, _ in current_topics])
+    updated_topics.extend([(celeb, topic_mentions.get(celeb, 1)) for celeb in new_celebrities])
+
+    # Sort by count (descending)
+    updated_topics.sort(key=lambda x: x[1], reverse=True)
+
     save_hot_topics(updated_topics)
     return updated_topics
 
@@ -206,6 +222,38 @@ def generate_fallback_entries(weekly_popularity):
                 fallback_entries.append(article)
     return format_entries(fallback_entries)
 
+def get_celebrity_categories(entries, hot_topics):
+    topic_mentions = Counter()
+    for entry in entries:
+        for topic in entry.get('topics', []):
+            topic_mentions[topic] += 1
+
+    hot_this_week = []
+    not_this_week = []
+    for topic, _ in hot_topics:
+        if topic_mentions[topic] > 0:
+            hot_this_week.append((topic, topic_mentions[topic]))
+        else:
+            not_this_week.append(topic)
+
+    # Sort hot_this_week by mentions and limit to top 10
+    hot_this_week.sort(key=lambda x: x[1], reverse=True)
+    hot_this_week = hot_this_week[:10]
+
+    # Limit not_this_week to bottom 10
+    not_this_week = not_this_week[-10:]
+
+    # Get upcoming new names
+    existing_topics = set(topic for topic, _ in hot_topics)
+    upcoming_new_names = [
+        (topic, count) for topic, count in topic_mentions.items()
+        if topic not in existing_topics and count >= 5  # Adjust the threshold as needed
+    ]
+    upcoming_new_names.sort(key=lambda x: x[1], reverse=True)
+    upcoming_new_names = upcoming_new_names[:10]  # Limit to top 10
+
+    return hot_this_week, not_this_week, upcoming_new_names
+
 def main():
     logger.info("Starting gossip update process")
     ensure_data_directory()
@@ -226,11 +274,14 @@ def main():
     hot_topics = update_hot_topics(entries, hot_topics)
     logger.info(f"Updated hot topics, now have {len(hot_topics)} topics")
 
-    filtered_entries = filter_entries_by_topics(entries, hot_topics)
+    filtered_entries = filter_entries_by_topics(entries, [topic for topic, _ in hot_topics])
     logger.info(f"Filtered entries, now have {len(filtered_entries)} entries")
 
     formatted_entries = format_entries(filtered_entries)
     logger.info(f"Formatted entries, final count: {len(formatted_entries)}")
+
+    hot_this_week, not_this_week, upcoming_new_names = get_celebrity_categories(formatted_entries, hot_topics)
+    logger.info(f"Generated celebrity categories")
 
     hourly_topics = get_hourly_topics(formatted_entries)
     logger.info(f"Generated hourly topics")
@@ -246,7 +297,10 @@ def main():
             'entries': formatted_entries,
             'fallback_entries': fallback_entries,
             'hourly_topics': hourly_topics,
-            'weekly_popularity': weekly_popularity
+            'weekly_popularity': weekly_popularity,
+            'hot_this_week': hot_this_week,
+            'not_this_week': not_this_week,
+            'upcoming_new_names': upcoming_new_names
         }, f, default=str)
     logger.info("Saved gossip data to file")
 
