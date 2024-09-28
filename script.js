@@ -5,6 +5,7 @@ document.addEventListener('DOMContentLoaded', function() {
             displayEntries(data.entries, data.fallback_entries);
             displayHourlyTopics(data.hourly_topics);
             displayWeeklyPopularity(data.weekly_popularity);
+            displayLastHourTopics(data.hourly_topics['1']);
         })
         .catch(error => console.error('Error:', error));
 });
@@ -38,7 +39,7 @@ function createEntryElement(entry) {
     const entryElement = document.createElement('div');
     entryElement.className = 'gossip-entry';
 
-    const titleElement = document.createElement('h2');
+    const titleElement = document.createElement('h3');
     const linkElement = document.createElement('a');
     linkElement.href = entry.link;
     linkElement.textContent = entry.title;
@@ -75,8 +76,8 @@ function displayHourlyTopics(hourlyTopics) {
 }
 
 function displayWeeklyPopularity(weeklyPopularity) {
-    const container = document.getElementById('weekly-popularity');
-    container.innerHTML = '<h2>Who\'s Popular This Week?</h2>';
+    const container = document.getElementById('popularity-chart');
+    container.innerHTML = '';
 
     const list = document.createElement('ol');
     weeklyPopularity.forEach(([topic, count]) => {
@@ -85,4 +86,16 @@ function displayWeeklyPopularity(weeklyPopularity) {
         list.appendChild(item);
     });
     container.appendChild(list);
+}
+
+function displayLastHourTopics(lastHourTopics) {
+    const container = document.getElementById('last-hour-topics');
+    container.innerHTML = '<h3>Trending in the Last Hour</h3>';
+
+    if (lastHourTopics && lastHourTopics.length > 0) {
+        const topicsList = lastHourTopics.join(', ');
+        container.innerHTML += `<p>${topicsList}</p>`;
+    } else {
+        container.innerHTML += '<p>No trending topics in the last hour.</p>';
+    }
 }
