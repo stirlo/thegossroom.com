@@ -86,7 +86,6 @@ def filter_entries_by_topics(entries, topics):
     for entry in entries:
         entry_topics = []
         for topic in topics:
-            # Create a regex pattern that matches the whole word
             pattern = r'\b' + re.escape(topic) + r'\b'
             if re.search(pattern, entry['title'], re.IGNORECASE):
                 entry_topics.append(topic)
@@ -152,28 +151,29 @@ def get_hourly_topics(entries):
     return {k: list(v) for k, v in hourly_topics.items()}
 
 def update_weekly_popularity(new_data, existing_data):
-    # Merge new data with existing data
-    topic_data = defaultdict(lambda: {'count': 0, 'articles': []})
+    topic_dict = {}
 
-    for topic, count, articles in existing_data + new_data:
-        topic_data[topic]['count'] += count
-        topic_data[topic]['articles'].extend(articles)
+    # Combine existing and new data
+    for item in existing_data + new_data:
+        if len(item) >= 2:  # Ensure we have at least topic and count
+            topic, count = item[0], item[1]
+            articles = item[2] if len(item) > 2 else []
 
-    # Sort by count (descending) and keep top 10
-    sorted_data = sorted(
-        [(topic, data['count'], data['articles']) for topic, data in topic_data.items()],
-        key=lambda x: x[1],
-        reverse=True
-    )[:10]
+            if topic in topic_dict:
+                topic_dict[topic]['count'] += count
+                topic_dict[topic]['articles'].extend(articles)
+            else:
+                topic_dict[topic] = {'count': count, 'articles': articles}
 
-    return sorted_data
+    # Sort by count and convert back to list of tuples
+    sorted_topics = sorted(topic_dict.items(), key=lambda x: x[1]['count'], reverse=True)
+    return [(topic, data['count'], data['articles']) for topic, data in sorted_topics]
 
 def calculate_weekly_popularity(entries):
     one_week_ago = datetime.now(pytz.UTC) - timedelta(days=7)
     recent_entries = [entry for entry in entries if parse_date(entry['published']) > one_week_ago]
     topic_mentions = Counter()
     topic_articles = defaultdict(list)
-
     for entry in recent_entries:
         for topic in entry['topics']:
             topic_mentions[topic] += 1
@@ -200,11 +200,11 @@ def calculate_weekly_popularity(entries):
 def generate_fallback_entries(weekly_popularity):
     fallback_entries = []
     for topic, count, articles in weekly_popularity:
-        for article in articles[:count]:  # Add up to 'count' articles for each topic
+        for article in articles[:min(count, 5)]:  # Add up to 5 articles for each topic
             if article not in fallback_entries:
                 article['is_fallback'] = True
                 fallback_entries.append(article)
-    return format_entries(fallback_entries)  # Use existing format_entries function to sort and remove duplicates
+    return format_entries(fallback_entries)
 
 def main():
     logger.info("Starting gossip update process")
@@ -212,22 +212,29 @@ def main():
     if not os.path.exists('data/gossip_data.json') or os.path.getsize('data/gossip_data.json') == 0:
         logger.info("Initializing gossip data file")
         initialize_gossip_data()
+
     rss_feeds = load_rss_feeds()
     logger.info(f"Loaded {len(rss_feeds)} RSS feeds")
     hot_topics = load_hot_topics()
     logger.info(f"Loaded {len(hot_topics)} hot topics")
     processed_articles = load_processed_articles()
     logger.info(f"Loaded {len(processed_articles)} processed articles")
+
     entries, processed_articles = fetch_and_parse_feeds(rss_feeds, processed_articles)
     logger.info(f"Fetched {len(entries)} new entries")
+
     hot_topics = update_hot_topics(entries, hot_topics)
     logger.info(f"Updated hot topics, now have {len(hot_topics)} topics")
+
     filtered_entries = filter_entries_by_topics(entries, hot_topics)
     logger.info(f"Filtered entries, now have {len(filtered_entries)} entries")
+
     formatted_entries = format_entries(filtered_entries)
     logger.info(f"Formatted entries, final count: {len(formatted_entries)}")
+
     hourly_topics = get_hourly_topics(formatted_entries)
     logger.info(f"Generated hourly topics")
+
     weekly_popularity = calculate_weekly_popularity(formatted_entries)
     logger.info(f"Calculated weekly popularity")
 
@@ -242,6 +249,7 @@ def main():
             'weekly_popularity': weekly_popularity
         }, f, default=str)
     logger.info("Saved gossip data to file")
+
     save_processed_articles(processed_articles)
     logger.info("Saved processed articles")
     logger.info("Gossip update process completed")
