@@ -1,131 +1,115 @@
-document.addEventListener('DOMContentLoaded', function() {
-    fetchGossipData();
-});
+// script.js
 
-async function fetchGossipData() {
-    try {
-        const response = await fetch('data/gossip_data.json');
-        const data = await response.json();
-        displayEntries(data.entries, data.fallback_entries);
-        displayLastHourTopics(data.hourly_topics['1']);
-        displayHourlyTopics(data.hourly_topics);
-        displayWeeklyPopularity(data.weekly_popularity);
-        displayCelebrityCategories(data.hot_this_week, data.not_this_week, data.upcoming_new_names);
-    } catch (error) {
-        console.error('Error fetching gossip data:', error);
-    }
+document.addEventListener('DOMContentLoaded', initializePage);
+
+function initializePage() {
+    loadLatestGossip();
+    updateHourlyTopics();
+    updatePopularityChart();
+    setupLoadMoreButton();
+    updateCelebrityCategories();
+    setupPeriodicUpdates();
 }
 
-function displayEntries(entries, fallbackEntries) {
-    const container = document.getElementById('gossip-entries');
-    container.innerHTML = '';
-    if (entries.length > 0) {
-        entries.forEach(entry => {
-            const entryElement = createEntryElement(entry);
-            container.appendChild(entryElement);
+function loadLatestGossip(page = 1) {
+    fetch(`data/gossip_data.json`)
+        .then(response => response.json())
+        .then(data => {
+            const gossipEntriesContainer = document.getElementById('gossip-entries');
+            gossipEntriesContainer.innerHTML = ''; // Clear existing entries
+            data.entries.slice((page - 1) * 10, page * 10).forEach(entry => {
+                gossipEntriesContainer.appendChild(createGossipEntryElement(entry));
+            });
+            updateLoadMoreButton(data.entries.length > page * 10);
         });
-    } else if (fallbackEntries.length > 0) {
-        const fallbackMessage = document.createElement('p');
-        fallbackMessage.textContent = "No new gossip today, but here are some popular recent stories:";
-        fallbackMessage.className = 'fallback-message';
-        container.appendChild(fallbackMessage);
-        fallbackEntries.forEach(entry => {
-            const entryElement = createEntryElement(entry);
-            entryElement.classList.add('fallback-entry');
-            container.appendChild(entryElement);
+}
+
+function createGossipEntryElement(entry) {
+    const article = document.createElement('article');
+    article.innerHTML = `
+        <h3><a href="${entry.link}" target="_blank">${entry.title}</a></h3>
+        <p>${entry.summary}</p>
+        <p class="topics">Topics: ${entry.topics.join(', ')}</p>
+        <p class="published">Published: ${entry.published}</p>
+    `;
+    return article;
+}
+
+function updateHourlyTopics() {
+    fetch('data/gossip_data.json')
+        .then(response => response.json())
+        .then(data => {
+            const hourlyTopicsContainer = document.getElementById('hourly-topics');
+            hourlyTopicsContainer.innerHTML = ''; // Clear existing content
+            for (const [hour, topics] of Object.entries(data.hourly_topics)) {
+                const hourBlock = document.createElement('div');
+                hourBlock.className = 'hour-block';
+                hourBlock.innerHTML = `
+                    <h3>${hour} hour${hour !== '1' ? 's' : ''} ago</h3>
+                    <ul>
+                        ${topics.map(topic => `<li>${topic}</li>`).join('')}
+                    </ul>
+                `;
+                hourlyTopicsContainer.appendChild(hourBlock);
+            }
         });
-    } else {
-        container.innerHTML = '<p>No gossip data available at the moment. Check back later!</p>';
-    }
 }
 
-function createEntryElement(entry) {
-    const entryElement = document.createElement('div');
-    entryElement.className = 'gossip-entry';
-    if (entry.image) {
-        const imageElement = document.createElement('img');
-        imageElement.src = entry.image;
-        imageElement.alt = entry.title;
-        entryElement.appendChild(imageElement);
-    }
-    const titleElement = document.createElement('h3');
-    const linkElement = document.createElement('a');
-    linkElement.href = entry.link;
-    linkElement.textContent = entry.title;
-    linkElement.target = '_blank';
-    titleElement.appendChild(linkElement);
-    const dateElement = document.createElement('p');
-    dateElement.textContent = new Date(entry.published).toLocaleString();
-    const topicsElement = document.createElement('p');
-    topicsElement.textContent = 'Topics: ' + entry.topics.join(', ');
-    entryElement.appendChild(titleElement);
-    entryElement.appendChild(dateElement);
-    entryElement.appendChild(topicsElement);
-    return entryElement;
+function updatePopularityChart() {
+    fetch('data/gossip_data.json')
+        .then(response => response.json())
+        .then(data => {
+            const chartContainer = document.getElementById('popularity-chart');
+            chartContainer.innerHTML = ''; // Clear existing content
+            const topCelebrities = data.weekly_popularity.slice(0, 10);
+            topCelebrities.forEach(([celebrity, count]) => {
+                const bar = document.createElement('div');
+                bar.className = 'popularity-bar';
+                bar.style.width = `${count / topCelebrities[0][1] * 100}%`;
+                bar.innerHTML = `<span>${celebrity}: ${count}</span>`;
+                chartContainer.appendChild(bar);
+            });
+        });
 }
 
-function displayLastHourTopics(topics) {
-    const container = document.getElementById('last-hour-topics');
-    container.innerHTML = '<h3>Trending in the Last Hour</h3>';
-    if (topics && topics.length > 0) {
-        container.innerHTML += `<p>${topics.join(', ')}</p>`;
-    } else {
-        container.innerHTML += '<p>No trending topics in the last hour.</p>';
-    }
-}
-
-function displayHourlyTopics(hourlyTopics) {
-    const container = document.getElementById('hourly-topics');
-    container.innerHTML = '<h2>Trending in the Last 10 Hours</h2>';
-    const list = document.createElement('ul');
-    for (let i = 2; i <= 10; i++) {
-        const topics = hourlyTopics[i.toString()];
-        if (topics && topics.length > 0) {
-            const item = document.createElement('li');
-            item.textContent = `${i} hours ago: ${topics.join(', ')}`;
-            list.appendChild(item);
-        }
-    }
-    container.appendChild(list);
-}
-
-function displayWeeklyPopularity(weeklyPopularity) {
-    const container = document.getElementById('popularity-chart');
-    container.innerHTML = '';
-    const list = document.createElement('ol');
-    weeklyPopularity.forEach(([topic, count]) => {
-        const item = document.createElement('li');
-        item.textContent = `${topic}: ${count} mentions`;
-        list.appendChild(item);
+function setupLoadMoreButton() {
+    const loadMoreButton = document.getElementById('load-more');
+    let currentPage = 1;
+    loadMoreButton.addEventListener('click', () => {
+        currentPage++;
+        loadLatestGossip(currentPage);
     });
-    container.appendChild(list);
 }
 
-function displayCelebrityCategories(hotThisWeek, notThisWeek, upcomingNewNames) {
-    displayCategoryList('hot-this-week', hotThisWeek);
-    displayCategoryList('not-this-week', notThisWeek);
-    displayCategoryList('upcoming-new-names', upcomingNewNames);
+function updateLoadMoreButton(hasMore) {
+    const loadMoreButton = document.getElementById('load-more');
+    loadMoreButton.style.display = hasMore ? 'block' : 'none';
 }
 
-function displayCategoryList(elementId, items) {
-    const list = document.querySelector(`#${elementId} ul`);
-    list.innerHTML = '';
-    items.forEach(item => {
+function updateCelebrityCategories() {
+    fetch('data/gossip_data.json')
+        .then(response => response.json())
+        .then(data => {
+            updateCategoryList('hot-this-week', data.hot_this_week);
+            updateCategoryList('not-this-week', data.not_this_week);
+            updateCategoryList('upcoming-new-names', data.upcoming_new_names);
+        });
+}
+
+function updateCategoryList(id, data) {
+    const list = document.querySelector(`#${id} ul`);
+    list.innerHTML = ''; // Clear existing content
+    data.forEach(([celebrity, count]) => {
         const li = document.createElement('li');
-        if (Array.isArray(item)) {
-            li.textContent = `${item[0]}: ${item[1]} mentions`;
-        } else {
-            li.textContent = item;
-        }
+        li.textContent = `${celebrity}${count ? ': ' + count : ''}`;
         list.appendChild(li);
     });
 }
 
-// Pagination setup (if needed)
-let currentPage = 1;
-const entriesPerPage = 10;
-
-document.getElementById('load-more').addEventListener('click', function() {
-    currentPage++;
-    fetchGossipData();
-});
+function setupPeriodicUpdates() {
+    setInterval(() => {
+        updateHourlyTopics();
+        updatePopularityChart();
+        updateCelebrityCategories();
+    }, 300000); // Update every 5 minutes
+}
