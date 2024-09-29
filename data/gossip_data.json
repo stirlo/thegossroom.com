@@ -1909,16 +1909,46 @@
   "monthly_popularity": [],
   "hot_this_week": [],
   "not_this_week": [
-    "Rachel McAdams,0",
-    "Jake Paul,0",
-    "Cardi B,0",
-    "MrBeast,0",
-    "Joe Biden,0",
-    "LeBron James,0",
-    "21 Savage,0",
-    "Livvy Dunne,0",
-    "Jay-Z,0",
-    "Trump,0"
+    [
+      "Tina Fey,0",
+      0
+    ],
+    [
+      "Tom Brady,0",
+      0
+    ],
+    [
+      "Tom Holland,0",
+      0
+    ],
+    [
+      "Trump,0",
+      0
+    ],
+    [
+      "Tyler The Creator,0",
+      0
+    ],
+    [
+      "Walton Goggins,0",
+      0
+    ],
+    [
+      "Will Ferrell,0",
+      0
+    ],
+    [
+      "Zazie Beetz,0",
+      0
+    ],
+    [
+      "Zendaya,0",
+      0
+    ],
+    [
+      "young dolph,0",
+      0
+    ]
   ],
   "upcoming_new_names": []
 }
