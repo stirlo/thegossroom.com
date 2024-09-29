@@ -24,18 +24,6 @@
     </div>
 
     <main id="content">
-        {% if gossip_data.top_article %}
-        <section id="top-article">
-            <h2>Featured Article</h2>
-            <article>
-                <h3>{{ gossip_data.top_article.title }}</h3>
-                <div class="article-content">
-                    {{ gossip_data.top_article.content | safe }}
-                </div>
-            </article>
-        </section>
-        {% endif %}
-
         <section id="latest">
             <h2>Latest Gossip</h2>
             <div id="gossip-entries">
@@ -64,27 +52,15 @@
             <h2>Celebrity Categories</h2>
             <div id="hot-this-week">
                 <h3>Hot This Week</h3>
-                <ul>
-                    {% for celebrity, count in gossip_data.hot_this_week %}
-                        <li>{{ celebrity }}: {{ count }}</li>
-                    {% endfor %}
-                </ul>
+                <ul></ul>
             </div>
             <div id="not-this-week">
                 <h3>Not This Week</h3>
-                <ul>
-                    {% for celebrity, _ in gossip_data.not_this_week %}
-                        <li>{{ celebrity }}</li>
-                    {% endfor %}
-                </ul>
+                <ul></ul>
             </div>
             <div id="upcoming-new-names">
                 <h3>Upcoming New Names</h3>
-                <ul>
-                    {% for celebrity, count in gossip_data.upcoming_new_names %}
-                        <li>{{ celebrity }}: {{ count }}</li>
-                    {% endfor %}
-                </ul>
+                <ul></ul>
             </div>
         </section>
     </aside>
