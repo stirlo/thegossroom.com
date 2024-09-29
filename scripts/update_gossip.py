@@ -309,13 +309,13 @@ def update_celebrity_relationships(entries):
     logger.info("Updated celebrity relationships")
 
 def clean_old_data():
-    two_weeks_ago = datetime.now(pytz.UTC) - timedelta(weeks=2)
+    four_weeks_ago = datetime.now(pytz.UTC) - timedelta(weeks=4)
 
     # Clean processed articles
     processed_articles = load_processed_articles()
     cleaned_processed_articles = {
         k: v for k, v in processed_articles.items()
-        if parse_date(v['published']) > two_weeks_ago
+        if parse_date(v['published']) > four_weeks_ago
     }
     save_processed_articles(cleaned_processed_articles)
 
@@ -325,17 +325,17 @@ def clean_old_data():
 
     gossip_data['entries'] = [
         entry for entry in gossip_data['entries']
-        if parse_date(entry['published']) > two_weeks_ago
+        if parse_date(entry['published']) > four_weeks_ago
     ]
     gossip_data['fallback_entries'] = [
         entry for entry in gossip_data['fallback_entries']
-        if parse_date(entry['published']) > two_weeks_ago
+        if parse_date(entry['published']) > four_weeks_ago
     ]
 
     with open('data/gossip_data.json', 'w') as f:
         json.dump(gossip_data, f, indent=2)
 
-    logger.info("Cleaned old data")
+    logger.info("Cleaned data older than 4 weeks")
 
 def main():
     logger.info("Starting gossip update process")
