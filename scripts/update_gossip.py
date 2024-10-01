@@ -1,3 +1,4 @@
+# Section 1: Imports and Initial Setup
 import feedparser
 import json
 from datetime import datetime, timedelta
@@ -14,6 +15,7 @@ logger = logging.getLogger(__name__)
 
 COMMON_WORDS = set(['in', 'new', 'to', 'for', 'her', 'his', 'after', 'tv', 'with', 'out', 'from', 'the', 'is', 'how', 'reveals', 'are', 'of', 'a', 'and', 'about', 'why', 'so', 'says', 'i', 'uk'])
 
+# Section 2: Data Management Functions
 def ensure_data_directory():
     if not os.path.exists('data'):
         os.makedirs('data')
@@ -38,12 +40,12 @@ def load_rss_feeds():
 
 def load_hot_topics():
     with open('celebrities.txt', 'r') as f:
-        return [(line.strip().split(',')[0], int(line.strip().split(',')[1])) if ',' in line else (line.strip(), 0) for line in f if line.strip()]
+        return [line.strip() for line in f if line.strip()]
 
 def save_hot_topics(topics):
     with open('celebrities.txt', 'w') as f:
-        for topic, count in topics:
-            f.write(f"{topic},{count}\n")
+        for topic in topics:
+            f.write(f"{topic}\n")
 
 def load_processed_articles():
     ensure_data_directory()
@@ -57,6 +59,7 @@ def save_processed_articles(articles):
     with open('data/processed_articles.json', 'w') as f:
         json.dump(articles, f)
 
+# Section 3: RSS Feed Processing
 def is_article_new(article_id, processed_articles):
     return article_id not in processed_articles
 
@@ -84,6 +87,7 @@ def fetch_and_parse_feeds(rss_feeds, processed_articles):
             logger.error(f"Error processing feed {feed_url}: {str(e)}")
     return all_entries, processed_articles
 
+# Section 4: Entry Processing and Filtering
 def filter_entries_by_topics(entries, topics):
     filtered_entries = []
     for entry in entries:
@@ -113,6 +117,7 @@ def format_entries(entries):
             unique_entries.append(entry)
     return unique_entries
 
+# Section 5: Celebrity and Topic Management
 def extract_potential_celebrities(entries, existing_topics):
     all_titles = ' '.join([entry['title'] for entry in entries])
     potential_names = re.findall(r'\b([A-Z][a-z]+(?:\s+[A-Z][a-z]+)+)\b', all_titles)
@@ -140,29 +145,21 @@ def update_hot_topics(entries, current_topics):
         for topic in entry.get('topics', []):
             topic_mentions[topic] += 1
 
-    # Update counts for existing topics
-    updated_topics = []
-    for item in current_topics:
-        if isinstance(item, tuple) and len(item) == 2:
-            topic, count = item
-        elif isinstance(item, list) and len(item) >= 2:
-            topic, count = item[0], item[1]
-        else:
-            logger.warning(f"Unexpected format in current_topics: {item}")
-            continue
-        updated_topics.append((topic, topic_mentions.get(topic, 0) + int(count)))
+    # Update list of topics
+    updated_topics = list(set(current_topics + list(topic_mentions.keys())))
 
     # Add new celebrities
-    existing_topics = set(topic for topic, _ in updated_topics)
+    existing_topics = set(updated_topics)
     new_celebrities = extract_potential_celebrities(entries, existing_topics)
-    updated_topics.extend([(celeb, topic_mentions.get(celeb, 1)) for celeb in new_celebrities])
+    updated_topics.extend(new_celebrities)
 
-    # Sort by count (descending)
-    updated_topics.sort(key=lambda x: x[1], reverse=True)
+    # Remove duplicates and sort alphabetically
+    updated_topics = sorted(set(updated_topics))
 
     save_hot_topics(updated_topics)
     return updated_topics
 
+# Section 6: Topic Analysis
 def get_hourly_topics(entries):
     now = datetime.now(pytz.UTC)
     hourly_topics = {str(i): set() for i in range(1, 11)}
@@ -215,6 +212,7 @@ def calculate_weekly_popularity(entries):
         json.dump(updated_data, f, default=str)
     return updated_data
 
+# Section 7: Entry and Category Generation
 def generate_fallback_entries(weekly_popularity):
     fallback_entries = []
     for topic, count, articles in weekly_popularity:
@@ -231,7 +229,7 @@ def get_celebrity_categories(entries, hot_topics):
             topic_mentions[topic] += 1
     hot_this_week = []
     not_this_week = []
-    for topic, _ in hot_topics:
+    for topic in hot_topics:
         if topic_mentions[topic] > 0:
             hot_this_week.append((topic, topic_mentions[topic]))
         else:
@@ -242,7 +240,7 @@ def get_celebrity_categories(entries, hot_topics):
     # Limit not_this_week to bottom 10
     not_this_week = not_this_week[-10:]
     # Get upcoming new names
-    existing_topics = set(topic for topic, _ in hot_topics)
+    existing_topics = set(hot_topics)
     upcoming_new_names = [
         (topic, count) for topic, count in topic_mentions.items()
         if topic not in existing_topics and count >= 5 # Adjust the threshold as needed
@@ -271,6 +269,7 @@ def generate_celebrity_ranks():
     else:
         logger.warning("Weekly popularity data not found. Unable to generate celebrity ranks.")
 
+# Section 8: Main Function
 def main():
     logger.info("Starting gossip update process")
     ensure_data_directory()
@@ -287,7 +286,7 @@ def main():
     logger.info(f"Fetched {len(entries)} new entries")
     hot_topics = update_hot_topics(entries, hot_topics)
     logger.info(f"Updated hot topics, now have {len(hot_topics)} topics")
-    filtered_entries = filter_entries_by_topics(entries, [topic for topic, _ in hot_topics])
+    filtered_entries = filter_entries_by_topics(entries, hot_topics)
     logger.info(f"Filtered entries, now have {len(filtered_entries)} entries")
     formatted_entries = format_entries(filtered_entries)
     logger.info(f"Formatted entries, final count: {len(formatted_entries)}")
