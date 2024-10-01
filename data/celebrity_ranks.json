@@ -1,13 +1,13 @@
 {
   "Diddy": 100,
   "Nike": 68,
-  "Trump": 58,
+  "Trump": 60,
   "Taylor Swift": 29,
   "Prince Harry": 29,
   "Ariana Grande": 25,
-  "SNL": 23,
-  "Donald Trump": 21,
-  "Kamala Harris": 15,
+  "SNL": 25,
+  "Donald Trump": 23,
+  "Kamala Harris": 17,
   "Chappell Roan": 13,
   "Bowen Yang": 9,
   "Bieber": 9,
@@ -35,5 +35,6 @@
   "Lindsay Lohan": 1,
   "Addison Rae": 1,
   "Livvy Dunne": 1,
-  "Tom Brady": 1
+  "Tom Brady": 1,
+  "LeBron James": 1
 }
