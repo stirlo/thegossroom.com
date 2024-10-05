@@ -1,9 +1,9 @@
 {
   "Diddy": 100,
   "Nike": 66,
-  "Trump": 63,
+  "Trump": 64,
   "Taylor Swift": 34,
-  "Donald Trump": 25,
+  "Donald Trump": 26,
   "Prince Harry": 24,
   "SNL": 18,
   "Kamala Harris": 13,
@@ -27,12 +27,12 @@
   "Brad Pitt": 2,
   "Drake": 2,
   "Zendaya": 2,
+  "Elon Musk": 2,
   "Andy Cohen": 1,
   "Tom Brady": 1,
   "Austin Butler": 1,
   "Selena Gomez": 1,
   "Simone Biles": 1,
-  "Elon Musk": 1,
   "Lindsay Lohan": 1,
   "Kesha": 1,
   "Adele": 1,
@@ -54,5 +54,6 @@
   "Mark Zuckerberg": 0,
   "Lizzo": 0,
   "Jake Paul": 0,
-  "Ryan Reynolds": 0
+  "Ryan Reynolds": 0,
+  "Dua Lipa": 0
 }
