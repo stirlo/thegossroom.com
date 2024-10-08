@@ -1,20 +1,20 @@
 {
   "Diddy": 100,
-  "Trump": 76,
-  "Nike": 71,
+  "Trump": 77,
+  "Nike": 72,
   "Taylor Swift": 47,
   "Donald Trump": 26,
   "Prince Harry": 22,
   "Kamala Harris": 21,
   "SNL": 16,
+  "Kanye": 15,
   "Meghan Markle": 14,
-  "Kanye": 14,
   "Kardashian": 10,
   "Bieber": 10,
   "Jenner": 10,
+  "Elon Musk": 9,
   "Ariana Grande": 8,
-  "Elon Musk": 8,
-  "Eminem": 7,
+  "Eminem": 6,
   "Biden": 6,
   "Chappell Roan": 6,
   "Beyonc\u00e9": 6,
@@ -57,5 +57,6 @@
   "Jameela Jamil": 0,
   "Lizzo": 0,
   "Jake Paul": 0,
-  "Meek Mill": 0
+  "Meek Mill": 0,
+  "Ali Wong": 0
 }
