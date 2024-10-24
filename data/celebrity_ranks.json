@@ -1,12 +1,12 @@
 {
   "Trump": 100,
-  "Diddy": 100,
+  "Diddy": 99,
   "Liam": 85,
-  "Nike": 77,
+  "Nike": 76,
   "Taylor Swift": 68,
   "Donald Trump": 37,
-  "Kamala Harris": 31,
-  "Kanye": 24,
+  "Kamala Harris": 30,
+  "Kanye": 23,
   "Kardashian": 18,
   "Bieber": 18,
   "Prince Harry": 15,
@@ -60,6 +60,7 @@
   "Lil Wayne": 0,
   "Addison Rae": 0,
   "MrBeast": 0,
+  "Young Thug": 0,
   "Livvy Dunne": 0,
   "Jameela Jamil": 0,
   "Meek Mill": 0,
@@ -67,7 +68,6 @@
   "Rick Ross": 0,
   "Skylar Grey": 0,
   "Metro Boomin": 0,
-  "Young Thug": 0,
   "Tim Cook": 0,
   "Sza": 0
 }
