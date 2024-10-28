@@ -1,0 +1,11 @@
+{
+  "section": "tech/AI/general",
+  "lastUpdated": "2024-10-28T07:44:45.014Z",
+  "feedCount": 7,
+  "topicCount": 9,
+  "configuration": {
+    "refreshInterval": 3600,
+    "cacheExpiration": 86400,
+    "maxArticles": 50
+  }
+}

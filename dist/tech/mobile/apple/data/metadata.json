@@ -1,0 +1,11 @@
+{
+  "section": "tech/mobile/apple",
+  "lastUpdated": "2024-10-28T07:44:45.015Z",
+  "feedCount": 5,
+  "topicCount": 5,
+  "configuration": {
+    "refreshInterval": 3600,
+    "cacheExpiration": 86400,
+    "maxArticles": 50
+  }
+}

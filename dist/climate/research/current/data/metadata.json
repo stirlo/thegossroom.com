@@ -1,0 +1,11 @@
+{
+  "section": "climate/research/current",
+  "lastUpdated": "2024-10-28T07:44:45.011Z",
+  "feedCount": 6,
+  "topicCount": 8,
+  "configuration": {
+    "refreshInterval": 3600,
+    "cacheExpiration": 86400,
+    "maxArticles": 50
+  }
+}
