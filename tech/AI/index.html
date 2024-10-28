@@ -5,15 +5,28 @@
     <meta name="viewport" content="width=device-width, initial-scale=1.0">
     <meta name="description" content="Latest AI news and developments - TheGossRoom Tech">
     <title>AI News & Updates | TheGossRoom Tech</title>
+
+    <!-- Theme and Styles -->
     <link rel="stylesheet" href="/shared/global.css">
+    <link rel="stylesheet" href="/shared/theme-manager.css">
     <link rel="stylesheet" href="styles/style.css">
+
+    <!-- Favicon and App Icons -->
+    <link rel="apple-touch-icon" sizes="180x180" href="/apple-touch-icon.png">
+    <link rel="icon" type="image/png" sizes="32x32" href="/favicon-32x32.png">
+    <link rel="icon" type="image/png" sizes="16x16" href="/favicon-16x16.png">
+    <link rel="manifest" href="/site.webmanifest">
+    <link rel="mask-icon" href="/safari-pinned-tab.svg" color="#f2059f">
+    <meta name="msapplication-TileColor" content="#f2059f">
+    <meta name="theme-color" content="#ffffff">
 </head>
-<body class="tech-theme ai">
+<body>
     <header>
         <nav class="main-nav">
             <a href="/" class="logo">TheGossRoom</a>
             <a href="/tech">Tech</a>
             <span class="current">AI</span>
+            <a href="/attribution.html">Attribution</a>
         </nav>
     </header>
 
@@ -31,10 +44,19 @@
 
     <footer>
         <div id="attribution"></div>
-        <p>© 2024 TheGossRoom</p>
+        <p>
+            <a href="/LICENSE">©</a> <span id="currentYear"></span> 
+            <a href="https://tfp.la">TFP</a> | 
+            <a href="https://thelaboratory.cc">The Laboratory</a> | 
+            <a href="https://thelaboratory.cc/thankyou.html">Thank You</a>
+        </p>
     </footer>
 
+    <!-- Scripts -->
     <script src="/shared/global.js"></script>
+    <script src="/shared/theme-manager.js"></script>
+    <script src="/shared/attribution-manager.js"></script>
     <script src="script.js"></script>
 </body>
 </html>
+
