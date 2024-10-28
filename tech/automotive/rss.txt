@@ -6,3 +6,5 @@ https://cleantechnica.com/category/clean-transport/feed/
 https://electrek.co/feed/
 https://insideevs.com/feed/
 https://www.theverge.com/transportation/rss/index.xml
+https://www.autoweek.com/feed
+

@@ -1,0 +1,48 @@
+/* Navigation Tree Styles */
+.breadcrumbs {
+    padding: 1rem;
+    background: var(--accent-color);
+    border-radius: var(--card-radius);
+    margin-bottom: 1rem;
+    box-shadow: var(--card-shadow);
+}
+
+.breadcrumbs a {
+    color: var(--primary-color);
+    text-decoration: none;
+}
+
+.breadcrumbs a:hover {
+    color: var(--secondary-color);
+}
+
+.section-nav {
+    background: var(--accent-color);
+    padding: 1rem;
+    border-radius: var(--card-radius);
+    margin-bottom: 1rem;
+    box-shadow: var(--card-shadow);
+}
+
+.topic-list {
+    list-style: none;
+    padding: 0;
+}
+
+.topic-list li {
+    margin-bottom: 0.5rem;
+}
+
+.topic-list a {
+    color: var(--text-color);
+    text-decoration: none;
+    padding: 0.5rem;
+    display: block;
+    border-radius: 4px;
+    transition: background-color var(--transition-speed) ease;
+}
+
+.topic-list a:hover {
+    background: var(--bg-color);
+}
+

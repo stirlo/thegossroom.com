@@ -1,0 +1,5 @@
+https://climate.nasa.gov/feed/
+https://www.carbonbrief.org/feed
+https://www.climatechangenews.com/feed/
+https://www.nature.com/nature/climate-change.rss
+https://news.science.org/feed/

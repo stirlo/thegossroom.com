@@ -1,0 +1,15 @@
+
+/* Section-specific styles */
+:root {
+    --section-accent: var(--primary-color);
+    --section-gradient: linear-gradient(135deg, var(--section-accent), var(--secondary-color));
+}
+
+/* Layout and Grid */
+.content-wrapper {
+    max-width: var(--container-width);
+    margin: 0 auto;
+    padding: 2rem 1rem;
+}
+
+/* Add more section-specific styles here */
