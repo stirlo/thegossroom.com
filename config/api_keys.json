@@ -1,0 +1,37 @@
+{
+  "apis": {
+    "newsapi": {
+      "key": "your_newsapi_key_here",
+      "endpoint": "https://newsapi.org/v2/"
+    },
+    "mediastack": {
+      "key": "your_mediastack_key_here",
+      "endpoint": "http://api.mediastack.com/v1/"
+    },
+    "gnews": {
+      "key": "your_gnews_key_here",
+      "endpoint": "https://gnews.io/api/v4/"
+    }
+  },
+  "services": {
+    "cloudinary": {
+      "cloud_name": "your_cloud_name",
+      "api_key": "your_api_key",
+      "api_secret": "your_api_secret"
+    },
+    "algolia": {
+      "app_id": "your_app_id",
+      "api_key": "your_api_key",
+      "search_key": "your_search_only_key"
+    }
+  },
+  "monitoring": {
+    "sentry": {
+      "dsn": "your_sentry_dsn"
+    },
+    "newrelic": {
+      "license_key": "your_newrelic_key"
+    }
+  }
+}
+

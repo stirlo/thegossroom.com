@@ -1,0 +1,42 @@
+{
+  "site": {
+    "name": "The Goss Room",
+    "description": "Your source for news, technology, and culture",
+    "url": "https://thegossroom.com",
+    "language": "en",
+    "timezone": "UTC",
+    "contact": "info@thegossroom.com"
+  },
+  "features": {
+    "comments": true,
+    "sharing": true,
+    "darkMode": true,
+    "newsletter": true,
+    "searchEnabled": true
+  },
+  "performance": {
+    "cacheTimeout": 3600,
+    "maxConcurrentRequests": 10,
+    "imageCacheSize": "500MB",
+    "feedCacheTime": 1800,
+    "maxArticleAge": "30d"
+  },
+  "seo": {
+    "titleFormat": "%s | The Goss Room",
+    "defaultImage": "/images/default-share.jpg",
+    "twitterHandle": "@thegossroom",
+    "googleSiteVerification": "",
+    "bingSiteVerification": ""
+  },
+  "cdn": {
+    "enabled": true,
+    "imagePrefix": "https://cdn.thegossroom.com/images",
+    "assetsPrefix": "https://cdn.thegossroom.com/assets"
+  },
+  "analytics": {
+    "enabled": true,
+    "type": "ga4",
+    "anonymizeIp": true
+  }
+}
+

@@ -1,0 +1,374 @@
+{
+  "version": "1.0.0",
+  "lastUpdated": "2024-10-28",
+  "sectionTree": {
+    "entertainment": {
+      "hollywood": {
+        "movies": {
+          "reviews": {},
+          "upcoming": {},
+          "box-office": {},
+          "industry": {}
+        },
+        "tv": {
+          "series": {},
+          "streaming": {},
+          "reviews": {},
+          "industry": {}
+        },
+        "celebrities": {
+          "news": {},
+          "interviews": {},
+          "events": {}
+        }
+      },
+      "music": {
+        "artists": {
+          "news": {},
+          "interviews": {},
+          "releases": {}
+        },
+        "industry": {
+          "business": {},
+          "trends": {},
+          "awards": {}
+        },
+        "live-events": {
+          "concerts": {},
+          "festivals": {},
+          "tours": {}
+        }
+      }
+    },
+    "tech": {
+      "gaming": {
+        "hardware": {
+          "consoles": {},
+          "pc": {},
+          "mobile": {}
+        },
+        "vr-ar": {
+          "hardware": {},
+          "software": {},
+          "industry": {}
+        },
+        "development": {
+          "studios": {},
+          "indie": {},
+          "technology": {}
+        },
+        "industry": {
+          "business": {},
+          "trends": {},
+          "events": {}
+        }
+      },
+      "chips": {
+        "gpu": {
+          "releases": {},
+          "reviews": {},
+          "technology": {}
+        },
+        "manufacturing": {
+          "processes": {},
+          "facilities": {},
+          "innovation": {}
+        },
+        "processors": {
+          "desktop": {},
+          "mobile": {},
+          "server": {}
+        }
+      },
+      "security": {
+        "cybersecurity": {
+          "threats": {},
+          "protection": {},
+          "research": {}
+        },
+        "privacy": {
+          "data": {},
+          "regulation": {},
+          "tools": {}
+        },
+        "enterprise": {
+          "solutions": {},
+          "cloud": {},
+          "infrastructure": {}
+        }
+      }
+    },
+    "science": {
+      "space-tech": {
+        "satellites": {
+          "communication": {},
+          "observation": {},
+          "technology": {}
+        },
+        "exploration": {
+          "missions": {},
+          "discoveries": {},
+          "technology": {}
+        },
+        "research": {
+          "astronomy": {},
+          "physics": {},
+          "astrobiology": {}
+        }
+      },
+      "AI": {
+        "developments": {
+          "research": {},
+          "breakthroughs": {},
+          "applications": {}
+        },
+        "ethics": {
+          "policy": {},
+          "impacts": {},
+          "guidelines": {}
+        },
+        "industry": {
+          "companies": {},
+          "products": {},
+          "trends": {}
+        }
+      }
+    },
+    "climate": {
+      "impacts": {
+        "current": {
+          "global": {},
+          "regional": {},
+          "local": {}
+        },
+        "predictions": {
+          "models": {},
+          "scenarios": {},
+          "research": {}
+        },
+        "adaptation": {
+          "strategies": {},
+          "implementation": {},
+          "policy": {}
+        }
+      },
+      "solutions": {
+        "technology": {
+          "innovation": {},
+          "implementation": {},
+          "research": {}
+        },
+        "policy": {
+          "international": {},
+          "national": {},
+          "local": {}
+        }
+      },
+      "energy": {
+        "renewable": {
+          "solar": {},
+          "wind": {},
+          "hydro": {}
+        },
+        "storage": {
+          "batteries": {},
+          "technology": {},
+          "grid": {}
+        }
+      }
+    },
+    "business": {
+      "markets": {
+        "stocks": {},
+        "commodities": {},
+        "forex": {}
+      },
+      "companies": {
+        "tech": {},
+        "retail": {},
+        "industrial": {}
+      },
+      "startups": {
+        "technology": {},
+        "funding": {},
+        "innovation": {}
+      },
+      "economy": {
+        "global": {},
+        "policy": {},
+        "trends": {}
+      }
+    },
+    "health": {
+      "medical": {
+        "research": {},
+        "treatments": {},
+        "technology": {}
+      },
+      "wellness": {
+        "mental": {},
+        "physical": {},
+        "nutrition": {}
+      },
+      "public-health": {
+        "policy": {},
+        "research": {},
+        "initiatives": {}
+      }
+    },
+    "sports": {
+"motorsports": {
+        "formula1": {
+          "races": {},
+          "teams": {},
+          "drivers": {},
+          "technology": {},
+          "history": {}
+        },
+        "lemans": {
+          "races": {},
+          "teams": {},
+          "prototypes": {},
+          "gt": {}
+        },
+        "wrc": {
+          "rallies": {},
+          "drivers": {},
+          "teams": {},
+          "technology": {}
+        },
+        "dtm": {
+          "races": {},
+          "drivers": {},
+          "teams": {},
+          "technology": {}
+        },
+        "indycar": {
+          "races": {},
+          "drivers": {},
+          "teams": {},
+          "technology": {}
+        }
+      },
+      "afl": {
+        "matches": {},
+        "teams": {},
+        "players": {},
+        "draft": {},
+        "history": {}
+      },
+      "football": {
+        "nfl": {},
+        "college": {},
+        "international": {}
+      },
+      "basketball": {
+        "nba": {},
+        "college": {},
+        "international": {}
+      },
+      "soccer": {
+        "premier-league": {},
+        "champions-league": {},
+        "international": {}
+      },
+      "olympics": {
+        "summer": {},
+        "winter": {},
+        "athletes": {}
+      }
+    },
+    "media": {
+      "digital": {
+        "platforms": {},
+        "content": {},
+        "technology": {}
+      },
+      "streaming": {
+        "services": {},
+        "content": {},
+        "technology": {}
+      },
+      "industry": {
+        "business": {},
+        "trends": {},
+        "innovation": {}
+      }
+    }
+"design": {
+      "fashion": {
+        "haute-couture": {},
+        "ready-to-wear": {},
+        "streetwear": {},
+        "sustainable": {},
+        "technology": {}
+      },
+      "industrial": {
+        "product": {},
+        "furniture": {},
+        "manufacturing": {},
+        "innovation": {}
+      },
+      "architectural": {
+        "residential": {},
+        "commercial": {},
+        "sustainable": {},
+        "urban": {},
+        "innovation": {}
+      },
+      "automotive": {
+        "concept": {},
+        "production": {},
+        "future": {},
+        "technology": {}
+      },
+      "digital": {
+        "ui-ux": {},
+        "web": {},
+        "mobile": {},
+        "emerging": {}
+      },
+      "interior": {
+        "residential": {},
+        "commercial": {},
+        "hospitality": {},
+        "trends": {}
+      },
+      "graphic": {
+        "branding": {},
+        "typography": {},
+        "motion": {},
+        "print": {}
+      },
+      "sustainability": {
+        "materials": {},
+        "processes": {},
+        "circular": {},
+        "innovation": {}
+      },
+      "craft": {
+        "traditional": {},
+        "contemporary": {},
+        "techniques": {},
+        "materials": {}
+      },
+      "crossovers": {
+        "tech-design": {},
+        "art-design": {},
+        "fashion-tech": {},
+    "eco-design": {}
+      }
+    }
+  },
+  "metadata": {
+    "defaultTemplate": "section",
+    "allowedFileTypes": ["html", "md", "json"],
+    "cacheTimeout": 3600,
+    "feedRefreshInterval": 1800,
+    "imageProcessing": {
+      "maxWidth": 1200,
+      "quality": 80,
+      "formats": ["webp", "jpg"]
+    }
+  }
+}

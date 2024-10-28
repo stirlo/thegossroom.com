@@ -1,132 +1,201 @@
-// feed-processor.js
-const Parser = require('rss-parser');
-const fetch = require('node-fetch');
-const fs = require('fs').promises;
-const path = require('path');
-const { sectionConfig } = require('./section-config');
+import fetch from 'node-fetch';
+import Parser from 'rss-parser';
+import fs from 'fs/promises';
+import path from 'path';
+import { fileURLToPath } from 'url';
+import { dirname } from 'path';
+import { sectionConfig } from './section-config.js';
+import chalk from 'chalk';
 
-const parser = new Parser({
-    customFields: {
-        item: [
-            ['media:content', 'media'],
-            ['media:thumbnail', 'thumbnail'],
-            ['enclosure', 'enclosure']
-        ]
-    }
-});
+const __filename = fileURLToPath(import.meta.url);
+const __dirname = dirname(__filename);
 
-class FeedProcessor {
+export class FeedProcessor {
     constructor() {
+        this.parser = new Parser({
+            customFields: {
+                item: [
+                    ['media:content', 'media'],
+                    ['media:thumbnail', 'thumbnail'],
+                    ['description', 'description'],
+                    ['content:encoded', 'contentEncoded']
+                ]
+            }
+        });
         this.feedCache = new Map();
-        this.processedItems = new Set();
     }
 
     async processFeedsForSection(section) {
-        const config = sectionConfig[section];
-        if (!config) throw new Error(`Section ${section} not found`);
+        console.log(chalk.blue(`Processing feeds for section: ${section}`));
+        const sectionData = sectionConfig[section];
 
-        console.log(`Processing feeds for ${config.title}...`);
+        if (!sectionData || !sectionData.feeds) {
+            console.warn(chalk.yellow(`No feeds defined for section: ${section}`));
+            return;
+        }
 
-        const results = [];
-        for (const feedUrl of config.feeds) {
+        const outputDir = path.join('dist', section, 'feeds');
+        await fs.mkdir(outputDir, { recursive: true });
+
+        const processedFeeds = [];
+        for (const feed of sectionData.feeds) {
             try {
-                const feed = await this.processFeed(feedUrl, section);
-                if (feed) results.push(feed);
+                const processedFeed = await this.processFeed(feed, section);
+                processedFeeds.push(processedFeed);
             } catch (error) {
-                console.error(`Error processing feed ${feedUrl}:`, error);
+                console.error(chalk.red(`Error processing feed ${feed.url}:`), error);
             }
         }
 
-        // Save processed feeds
-        await this.saveFeedResults(section, results);
-        return results;
+        // Save processed feeds index
+        await this.saveProcessedFeeds(processedFeeds, outputDir);
     }
 
-    async processFeed(feedUrl, section) {
+    async processFeed(feed, section) {
+        console.log(chalk.blue(`Fetching feed: ${feed.url}`));
+
         try {
-            const response = await fetch(feedUrl);
-            const feedText = await response.text();
-            const feed = await parser.parseString(feedText);
+            const response = await fetch(feed.url);
+            const xml = await response.text();
+            const parsedFeed = await this.parser.parseString(xml);
+
+            const processedItems = await Promise.all(
+                parsedFeed.items.map(item => this.processItem(item, feed, section))
+            );
 
             return {
-                title: feed.title,
-                description: feed.description,
-                lastUpdated: new Date().toISOString(),
-                section: section,
-                items: feed.items.map(item => this.processItem(item, section))
-                    .filter(item => item !== null)
+                title: parsedFeed.title,
+                description: parsedFeed.description,
+                link: parsedFeed.link,
+                items: processedItems,
+                source: feed.name,
+                section: section
             };
         } catch (error) {
-            console.error(`Error processing ${feedUrl}:`, error);
+            console.error(chalk.red(`Error processing feed ${feed.url}:`), error);
             return null;
         }
     }
 
-    processItem(item, section) {
-        const itemId = this.generateItemId(item);
-        if (this.processedItems.has(itemId)) return null;
-
-        this.processedItems.add(itemId);
-
-        return {
-            id: itemId,
+    async processItem(item, feed, section) {
+        const processedItem = {
             title: item.title,
-            description: item.contentSnippet || item.description,
             link: item.link,
-            pubDate: item.pubDate || item.isoDate,
-            section: section,
-            image: this.extractImage(item),
-            topics: this.assignTopics(item, section),
-            source: this.extractSource(item)
+            pubDate: item.pubDate,
+            guid: item.guid || item.link,
+            source: feed.name,
+            section: section
         };
+
+        // Process content
+        processedItem.content = this.processContent(item);
+
+        // Process image
+        processedItem.image = await this.processImage(item, feed);
+
+        // Process categories/tags
+        processedItem.categories = this.processCategories(item);
+
+        return processedItem;
     }
 
-    generateItemId(item) {
-        return Buffer.from(item.link || item.title).toString('base64');
+    processContent(item) {
+        // Prefer content:encoded over description
+        let content = item.contentEncoded || item.description || '';
+
+        // Clean up HTML
+        content = this.cleanHtml(content);
+
+        // Truncate if needed
+        const maxLength = 1000;
+        if (content.length > maxLength) {
+            content = content.substring(0, maxLength) + '...';
+        }
+
+        return content;
     }
 
-    extractImage(item) {
-        if (item.media?.$.url) return item.media.$.url;
-        if (item.thumbnail?.$.url) return item.thumbnail.$.url;
-        if (item.enclosure?.url) return item.enclosure.url;
+    async processImage(item, feed) {
+        let imageUrl = null;
 
-        // Extract first image from content if exists
-        const imgMatch = item.content?.match(/<img[^>]+src="([^">]+)"/);
-        return imgMatch ? imgMatch[1] : '/assets/images/default-article.jpg';
-    }
+        // Try different possible image sources
+        if (item.media && item.media.$ && item.media.$.url) {
+            imageUrl = item.media.$.url;
+        } else if (item.thumbnail && item.thumbnail.$ && item.thumbnail.$.url) {
+            imageUrl = item.thumbnail.$.url;
+        } else if (item.enclosure && item.enclosure.url) {
+            imageUrl = item.enclosure.url;
+        }
 
-    assignTopics(item, section) {
-        const topics = sectionConfig[section].topics;
-        return topics.filter(topic => 
-            item.title?.toLowerCase().includes(topic.toLowerCase()) ||
-            item.description?.toLowerCase().includes(topic.toLowerCase())
-        );
-    }
+        // If no image found, use feed default
+        if (!imageUrl && feed.defaultImage) {
+            imageUrl = feed.defaultImage;
+        }
 
-    extractSource(item) {
-        const hostname = new URL(item.link).hostname;
-        return hostname.replace('www.', '').split('.')[0];
-    }
+        // Download and process image if found
+        if (imageUrl) {
+            try {
+                const response = await fetch(imageUrl);
+                const buffer = await response.buffer();
 
-    async saveFeedResults(section, results) {
-        const outputDir = path.join('dist', section, 'feeds');
-        await fs.mkdir(outputDir, { recursive: true });
+                // Save image and return local path
+                const imageName = `${Date.now()}-${path.basename(imageUrl)}`;
+                const imagePath = path.join('dist', 'assets', 'images', imageName);
+                await fs.writeFile(imagePath, buffer);
 
-        const outputPath = path.join(outputDir, 'processed-feeds.json');
-        await fs.writeFile(outputPath, JSON.stringify(results, null, 2));
-
-        // Save individual items for easier access
-        const itemsDir = path.join(outputDir, 'items');
-        await fs.mkdir(itemsDir, { recursive: true });
-
-        for (const feed of results) {
-            for (const item of feed.items) {
-                const itemPath = path.join(itemsDir, `${item.id}.json`);
-                await fs.writeFile(itemPath, JSON.stringify(item, null, 2));
+                return `/assets/images/${imageName}`;
+            } catch (error) {
+                console.error(chalk.red(`Error processing image ${imageUrl}:`), error);
             }
         }
+
+        return '/assets/images/default-article.jpg';
+    }
+
+    processCategories(item) {
+        const categories = new Set();
+
+        // Add explicit categories
+        if (Array.isArray(item.categories)) {
+            item.categories.forEach(category => {
+                categories.add(category.toLowerCase());
+            });
+        }
+
+        // Extract keywords from content
+        const keywords = this.extractKeywords(item.title + ' ' + (item.description || ''));
+        keywords.forEach(keyword => categories.add(keyword));
+
+        return Array.from(categories);
+    }
+
+    extractKeywords(text) {
+        // Simple keyword extraction
+        const words = text.toLowerCase()
+            .replace(/[^\w\s]/g, '')
+            .split(/\s+/)
+            .filter(word => word.length > 3)
+            .filter(word => !this.isStopWord(word));
+
+        return Array.from(new Set(words));
+    }
+
+    isStopWord(word) {
+        const stopWords = new Set(['the', 'and', 'for', 'that', 'this', 'with']);
+        return stopWords.has(word);
+    }
+
+    cleanHtml(html) {
+        return html
+            .replace(/<script\b[^<]*(?:(?!<\/script>)<[^<]*)*<\/script>/gi, '')
+            .replace(/<style\b[^<]*(?:(?!<\/style>)<[^<]*)*<\/style>/gi, '')
+            .replace(/<[^>]+>/g, ' ')
+            .replace(/\s+/g, ' ')
+            .trim();
+    }
+
+    async saveProcessedFeeds(feeds, outputDir) {
+        const outputPath = path.join(outputDir, 'processed-feeds.json');
+        await fs.writeFile(outputPath, JSON.stringify(feeds, null, 2));
     }
 }
-
-module.exports = FeedProcessor;
-

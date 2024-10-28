@@ -1,5 +1,0 @@
-https://www.motortrend.com/feed
-https://www.caranddriver.com/rss/all.xml/
-https://www.autoblog.com/rss.xml
-https://www.autoweek.com/feed
-https://electrek.co/feed

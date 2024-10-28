@@ -1,0 +1,43 @@
+<!DOCTYPE html>
+<html lang="en">
+<head>
+    <meta charset="UTF-8">
+    <meta name="viewport" content="width=device-width, initial-scale=1.0">
+    <title>{{topicName}} - TheGossRoom</title>
+    <link rel="stylesheet" href="/shared/global.css">
+    <link rel="stylesheet" href="/shared/topic.css">
+    <script src="/shared/global.js" defer></script>
+    <script src="/shared/topic.js" defer></script>
+</head>
+<body data-topic="{{topicSlug}}" data-section="{{section}}">
+    <nav id="main-nav"></nav>
+
+    <main class="container">
+        <header class="topic-header">
+            <h1>{{topicName}}</h1>
+            <p class="topic-description">{{topicDescription}}</p>
+        </header>
+
+        <div class="article-grid">
+            {{articles}}
+        </div>
+
+        <aside class="related-topics">
+            <h2>Related Topics</h2>
+            <div class="topic-grid">
+                {{relatedTopics}}
+            </div>
+        </aside>
+    </main>
+
+    <footer>
+        <p>
+            <a href="LICENSE">©</a> <span id="currentYear"></span> 
+            <a href="https://tfp.la">TFP</a> | 
+            <a href="https://thelaboratory.cc">The Laboratory</a> | 
+            <a href="https://thelaboratory.cc/thankyou.html">Thank You</a>
+        </p>
+    </footer>
+</body>
+</html>
+

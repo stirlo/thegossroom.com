@@ -1,0 +1,424 @@
+{
+  "version": "1.0.0",
+  "updateInterval": 1800,
+  "sources": {
+    "entertainment": {
+      "hollywood": {
+        "movies": {
+          "primary": [
+            {
+              "name": "Variety Movies",
+              "url": "https://variety.com/feed/movies/",
+              "type": "rss",
+              "priority": 1
+            },
+            {
+              "name": "Hollywood Reporter Movies",
+              "url": "https://www.hollywoodreporter.com/feed/movies/",
+              "type": "rss",
+              "priority": 1
+            },
+            {
+              "name": "Deadline Hollywood",
+              "url": "https://deadline.com/feed/",
+              "type": "rss",
+              "priority": 1
+            },
+            {
+              "name": "IndieWire",
+              "url": "https://www.indiewire.com/feed/",
+              "type": "rss",
+              "priority": 1
+            },
+            {
+              "name": "Screen Rant Movies",
+              "url": "https://screenrant.com/feed/movie-news/",
+              "type": "rss",
+              "priority": 2
+            },
+            {
+              "name": "FirstShowing",
+              "url": "https://www.firstshowing.net/feed/",
+              "type": "rss",
+              "priority": 2
+            }
+          ]
+        },
+        "tv": {
+          "primary": [
+            {
+              "name": "TV Line",
+              "url": "https://tvline.com/feed/",
+              "type": "rss",
+              "priority": 1
+            },
+            {
+              "name": "Variety TV",
+              "url": "https://variety.com/feed/tv/",
+              "type": "rss",
+              "priority": 1
+            },
+            {
+              "name": "Hollywood Reporter TV",
+              "url": "https://www.hollywoodreporter.com/feed/tv/",
+              "type": "rss",
+              "priority": 1
+            },
+            {
+              "name": "Deadline TV",
+              "url": "https://deadline.com/feed/tv/",
+              "type": "rss",
+              "priority": 1
+            }
+          ]
+        },
+        "celebrities": {
+          "primary": [
+            {
+              "name": "Just Jared",
+              "url": "https://www.justjared.com/feed/",
+              "type": "rss",
+              "priority": 1
+            },
+            {
+              "name": "People",
+              "url": "https://people.com/feed/",
+              "type": "rss",
+              "priority": 1
+            },
+            {
+              "name": "E! Online",
+              "url": "https://www.eonline.com/rss/",
+              "type": "rss",
+              "priority": 1
+            },
+            {
+              "name": "TMZ",
+              "url": "https://www.tmz.com/rss.xml",
+              "type": "rss",
+              "priority": 2
+            },
+            {
+              "name": "Page Six",
+              "url": "https://pagesix.com/feed/",
+              "type": "rss",
+              "priority": 2
+            }
+          ]
+        }
+      },
+      "music": {
+        "primary": [
+          {
+            "name": "Rolling Stone",
+            "url": "https://www.rollingstone.com/feed/",
+            "type": "rss",
+            "priority": 1
+          },
+          {
+            "name": "Pitchfork",
+            "url": "https://pitchfork.com/rss/news/",
+            "type": "rss",
+            "priority": 1
+          },
+          {
+            "name": "Billboard",
+            "url": "https://www.billboard.com/feed/",
+            "type": "rss",
+            "priority": 1
+          },
+          {
+            "name": "NME",
+            "url": "https://www.nme.com/feed",
+            "type": "rss",
+            "priority": 1
+          },
+          {
+            "name": "Consequence of Sound",
+            "url": "https://consequence.net/feed/",
+            "type": "rss",
+            "priority": 2
+          }
+        ],
+        "genres": {
+          "hiphop": {
+            "primary": [
+              {
+                "name": "HipHopDX",
+                "url": "https://hiphopdx.com/rss/news.xml",
+                "type": "rss",
+                "priority": 1
+              },
+              {
+                "name": "XXL",
+                "url": "https://www.xxlmag.com/feed/",
+                "type": "rss",
+                "priority": 1
+              }
+            ]
+          },
+          "electronic": {
+            "primary": [
+              {
+                "name": "Resident Advisor",
+                "url": "https://ra.co/rss/news",
+                "type": "rss",
+                "priority": 1
+              },
+              {
+                "name": "Dancing Astronaut",
+                "url": "https://dancingastronaut.com/feed/",
+                "type": "rss",
+                "priority": 1
+              }
+            ]
+          }
+        }
+      }
+    },
+    "tech": {
+      "gaming": {
+        "primary": [
+          {
+            "name": "IGN",
+            "url": "https://feeds.ign.com/ign/games-all",
+            "type": "rss",
+            "priority": 1
+          },
+          {
+            "name": "Polygon",
+            "url": "https://www.polygon.com/rss/index.xml",
+            "type": "rss",
+            "priority": 1
+          },
+          {
+            "name": "GameSpot",
+            "url": "https://www.gamespot.com/feeds/game-news/",
+            "type": "rss",
+            "priority": 1
+          },
+          {
+            "name": "Eurogamer",
+            "url": "https://www.eurogamer.net/feed",
+            "type": "rss",
+            "priority": 1
+          },
+          {
+            "name": "Rock Paper Shotgun",
+            "url": "https://www.rockpapershotgun.com/feed/",
+            "type": "rss",
+            "priority": 1
+          },
+          {
+            "name": "PC Gamer",
+            "url": "https://www.pcgamer.com/rss/",
+            "type": "rss",
+            "priority": 1
+          }
+        ],
+        "platforms": {
+          "pc": {
+            "primary": [
+              {
+                "name": "DSOGaming",
+                "url": "https://www.dsogaming.com/feed/",
+                "type": "rss",
+                "priority": 2
+              }
+            ]
+          },
+          "nintendo": {
+            "primary": [
+              {
+                "name": "Nintendo Life",
+                "url": "https://www.nintendolife.com/feed/news",
+                "type": "rss",
+                "priority": 1
+              }
+            ]
+          },
+          "playstation": {
+            "primary": [
+              {
+                "name": "PlayStation Blog",
+                "url": "https://blog.playstation.com/feed/",
+                "type": "rss",
+                "priority": 1
+              }
+            ]
+          },
+          "xbox": {
+            "primary": [
+              {
+                "name": "Xbox Wire",
+                "url": "https://news.xbox.com/en-us/feed/",
+                "type": "rss",
+                "priority": 1
+              }
+            ]
+          }
+        }
+      }
+    }
+    "sports": {
+      "motorsports": {
+        "formula1": {
+          "primary": [
+            {
+              "name": "F1 Official",
+              "url": "https://www.formula1.com/feed/",
+              "type": "rss",
+              "priority": 1
+            },
+            {
+              "name": "Autosport F1",
+              "url": "https://www.autosport.com/rss/f1/news/",
+              "type": "rss",
+              "priority": 1
+            },
+            {
+              "name": "RaceFans F1",
+              "url": "https://www.racefans.net/feed/",
+              "type": "rss",
+              "priority": 1
+            },
+            {
+              "name": "Motorsport F1",
+              "url": "https://www.motorsport.com/rss/f1/news/",
+              "type": "rss",
+              "priority": 1
+            }
+          ]
+        },
+        "technical": {
+          "primary": [
+            {
+              "name": "Giorgio Piola F1",
+              "url": "https://www.motorsport.com/rss/f1/technical/",
+              "type": "rss",
+              "priority": 1
+            },
+            {
+              "name": "F1 Technical",
+              "url": "https://www.f1technical.net/rss/news.xml",
+              "type": "rss",
+              "priority": 1
+            }
+          ]
+        }
+      }
+    },
+    "design": {
+      "ux-ui": {
+        "primary": [
+          {
+            "name": "Nielsen Norman Group",
+            "url": "https://www.nngroup.com/feed/rss/",
+            "type": "rss",
+            "priority": 1
+          },
+          {
+            "name": "Smashing Magazine UX",
+            "url": "https://www.smashingmagazine.com/category/user-experience/feed/",
+            "type": "rss",
+            "priority": 1
+          },
+          {
+            "name": "UX Movement",
+            "url": "https://uxmovement.com/feed/",
+            "type": "rss",
+            "priority": 1
+          }
+        ]
+      },
+      "typography": {
+        "primary": [
+          {
+            "name": "I Love Typography",
+            "url": "https://ilovetypography.com/feed/",
+            "type": "rss",
+            "priority": 1
+          },
+          {
+            "name": "Typewolf",
+            "url": "https://www.typewolf.com/blog/feed",
+            "type": "rss",
+            "priority": 1
+          }
+        ]
+      }
+    },
+    "AI": {
+      "research": {
+        "primary": [
+          {
+            "name": "arXiv AI",
+            "url": "http://arxiv.org/rss/cs.AI",
+            "type": "rss",
+            "priority": 1
+          },
+          {
+            "name": "arXiv Machine Learning",
+            "url": "http://arxiv.org/rss/cs.LG",
+            "type": "rss",
+            "priority": 1
+          },
+          {
+            "name": "Papers with Code",
+            "url": "https://paperswithcode.com/rss/",
+            "type": "rss",
+            "priority": 1
+          }
+        ]
+      },
+      "industry": {
+        "primary": [
+          {
+            "name": "Google AI Blog",
+            "url": "https://blog.research.google/feeds/posts/default?alt=rss",
+            "type": "rss",
+            "priority": 1
+          },
+          {
+            "name": "OpenAI Blog",
+            "url": "https://openai.com/blog/rss/",
+            "type": "rss",
+            "priority": 1
+          },
+          {
+            "name": "DeepMind Blog",
+            "url": "https://deepmind.com/blog/feed/basic/",
+            "type": "rss",
+            "priority": 1
+          }
+        ]
+      }
+    }
+  },
+  "defaultParams": {
+    "userAgent": "TheGossRoom Feed Fetcher/1.0",
+    "timeout": 10000,
+    "maxItems": 50,
+    "cacheTime": 1800,
+    "maxConcurrentRequests": 10,
+    "retryAttempts": 3,
+    "retryDelay": 1000
+  },
+  "filters": {
+    "excludeKeywords": [
+      "sponsored",
+      "advertisement",
+      "promoted"
+    ],
+    "minWordCount": 100,
+    "requireImage": true,
+    "maxAge": 86400
+  },
+  "cache": {
+    "enabled": true,
+    "directory": "./cache",
+    "compression": true,
+    "maxSize": 104857600
+  }
+}
+

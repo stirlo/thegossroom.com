@@ -1,0 +1,500 @@
+{
+  "version": "1.0.0",
+  "updateInterval": 1800,
+  "sources": {
+    "entertainment": {
+      "hollywood": {
+        "movies": {
+          "primary": [
+            {
+              "name": "Variety Movies",
+              "url": "https://variety.com/feed/movies/",
+              "type": "rss",
+              "priority": 1
+            },
+            {
+              "name": "Hollywood Reporter Movies",
+              "url": "https://www.hollywoodreporter.com/feed/movies/",
+              "type": "rss",
+              "priority": 1
+            },
+            {
+              "name": "Deadline Hollywood",
+              "url": "https://deadline.com/feed/",
+              "type": "rss",
+              "priority": 1
+            },
+            {
+              "name": "IndieWire",
+              "url": "https://www.indiewire.com/feed/",
+              "type": "rss",
+              "priority": 1
+            },
+            {
+              "name": "Screen Rant Movies",
+              "url": "https://screenrant.com/feed/movie-news/",
+              "type": "rss",
+              "priority": 2
+            },
+            {
+              "name": "FirstShowing",
+              "url": "https://www.firstshowing.net/feed/",
+              "type": "rss",
+              "priority": 2
+            }
+          ]
+        },
+        "tv": {
+          "primary": [
+            {
+              "name": "TV Line",
+              "url": "https://tvline.com/feed/",
+              "type": "rss",
+              "priority": 1
+            },
+            {
+              "name": "Variety TV",
+              "url": "https://variety.com/feed/tv/",
+              "type": "rss",
+              "priority": 1
+            },
+            {
+              "name": "Hollywood Reporter TV",
+              "url": "https://www.hollywoodreporter.com/feed/tv/",
+              "type": "rss",
+              "priority": 1
+            },
+            {
+              "name": "Deadline TV",
+              "url": "https://deadline.com/feed/tv/",
+              "type": "rss",
+              "priority": 1
+            }
+          ]
+        },
+        "celebrities": {
+          "primary": [
+            {
+              "name": "Just Jared",
+              "url": "https://www.justjared.com/feed/",
+              "type": "rss",
+              "priority": 1
+            },
+            {
+              "name": "People",
+              "url": "https://people.com/feed/",
+              "type": "rss",
+              "priority": 1
+            },
+            {
+              "name": "E! Online",
+              "url": "https://www.eonline.com/rss/",
+              "type": "rss",
+              "priority": 1
+            }
+          ]
+        }
+      },
+      "music": {
+        "primary": [
+          {
+            "name": "Rolling Stone",
+            "url": "https://www.rollingstone.com/feed/",
+            "type": "rss",
+            "priority": 1
+          },
+          {
+            "name": "Pitchfork",
+            "url": "https://pitchfork.com/rss/news/",
+            "type": "rss",
+            "priority": 1
+          },
+          {
+            "name": "Billboard",
+            "url": "https://www.billboard.com/feed/",
+            "type": "rss",
+            "priority": 1
+          },
+          {
+            "name": "NME",
+            "url": "https://www.nme.com/feed",
+            "type": "rss",
+            "priority": 1
+          },
+          {
+            "name": "Consequence of Sound",
+            "url": "https://consequence.net/feed/",
+            "type": "rss",
+            "priority": 2
+          }
+        ]
+      }
+    },
+    "tech": {
+      "gaming": {
+        "primary": [
+          {
+            "name": "IGN",
+            "url": "https://feeds.ign.com/ign/games-all",
+            "type": "rss",
+            "priority": 1
+          },
+          {
+            "name": "Polygon",
+            "url": "https://www.polygon.com/rss/index.xml",
+            "type": "rss",
+            "priority": 1
+          },
+          {
+            "name": "GameSpot",
+            "url": "https://www.gamespot.com/feeds/game-news/",
+            "type": "rss",
+            "priority": 1
+          },
+          {
+            "name": "Eurogamer",
+            "url": "https://www.eurogamer.net/feed",
+            "type": "rss",
+            "priority": 1
+          },
+          {
+            "name": "Rock Paper Shotgun",
+            "url": "https://www.rockpapershotgun.com/feed/",
+            "type": "rss",
+            "priority": 1
+          },
+          {
+            "name": "PC Gamer",
+            "url": "https://www.pcgamer.com/rss/",
+            "type": "rss",
+            "priority": 1
+          }
+        ],
+        "esports": {
+          "primary": [
+            {
+              "name": "Dot Esports",
+              "url": "https://dotesports.com/feed",
+              "type": "rss",
+              "priority": 1
+            },
+            {
+              "name": "ESL Gaming",
+              "url": "https://eslgaming.com/feed",
+              "type": "rss",
+              "priority": 1
+            },
+            {
+              "name": "HLTV",
+              "url": "https://www.hltv.org/rss/news",
+              "type": "rss",
+              "priority": 1
+            }
+          ]
+        }
+      },
+      "hardware": {
+        "primary": [
+          {
+            "name": "AnandTech",
+            "url": "https://www.anandtech.com/rss/",
+            "type": "rss",
+            "priority": 1
+          },
+          {
+            "name": "Tom's Hardware",
+            "url": "https://www.tomshardware.com/feeds/all",
+            "type": "rss",
+            "priority": 1
+          },
+          {
+            "name": "Ars Technica Hardware",
+            "url": "https://arstechnica.com/gadgets/feed/",
+            "type": "rss",
+            "priority": 1
+          },
+          {
+            "name": "TechPowerUp",
+            "url": "https://www.techpowerup.com/rss/news",
+            "type": "rss",
+            "priority": 1
+          }
+        ]
+      }
+    }
+
+    "sports": {
+      "motorsports": {
+        "formula1": {
+          "primary": [
+            {
+              "name": "F1 Official",
+              "url": "https://www.formula1.com/feed/",
+              "type": "rss",
+              "priority": 1
+            },
+            {
+              "name": "Autosport F1",
+              "url": "https://www.autosport.com/rss/f1/news/",
+              "type": "rss",
+              "priority": 1
+            },
+            {
+              "name": "RaceFans F1",
+              "url": "https://www.racefans.net/feed/",
+              "type": "rss",
+              "priority": 1
+            },
+            {
+              "name": "Motorsport F1",
+              "url": "https://www.motorsport.com/rss/f1/news/",
+              "type": "rss",
+              "priority": 1
+            },
+            {
+              "name": "Planet F1",
+              "url": "https://www.planetf1.com/feed/",
+              "type": "rss",
+              "priority": 2
+            }
+          ]
+        },
+        "lemans": {
+          "primary": [
+            {
+              "name": "Daily Sportscar",
+              "url": "https://www.dailysportscar.com/feed",
+              "type": "rss",
+              "priority": 1
+            },
+            {
+              "name": "Endurance Info",
+              "url": "https://endurance-info.com/en/feed/",
+              "type": "rss",
+              "priority": 1
+            }
+          ]
+        },
+        "wrc": {
+          "primary": [
+            {
+              "name": "WRC Official",
+              "url": "https://www.wrc.com/en/news/rss/",
+              "type": "rss",
+              "priority": 1
+            },
+            {
+              "name": "DirtFish",
+              "url": "https://dirtfish.com/feed/",
+              "type": "rss",
+              "priority": 1
+            }
+          ]
+        },
+        "dtm": {
+          "primary": [
+            {
+              "name": "DTM Official",
+              "url": "https://www.dtm.com/en/news.xml",
+              "type": "rss",
+              "priority": 1
+            },
+            {
+              "name": "TouringCarTimes",
+              "url": "https://www.touringcartimes.com/feed/",
+              "type": "rss",
+              "priority": 1
+            }
+          ]
+        }
+      },
+      "afl": {
+        "primary": [
+          {
+            "name": "AFL Official",
+            "url": "https://www.afl.com.au/feed/news",
+            "type": "rss",
+            "priority": 1
+          },
+          {
+            "name": "Fox Footy",
+            "url": "https://www.foxsports.com.au/afl/feed",
+            "type": "rss",
+            "priority": 1
+          },
+          {
+            "name": "The Age AFL",
+            "url": "https://www.theage.com.au/sport/afl/rss.xml",
+            "type": "rss",
+            "priority": 1
+          }
+        ]
+      }
+    },
+    "design": {
+      "fashion": {
+        "primary": [
+          {
+            "name": "Vogue",
+            "url": "https://www.vogue.com/feed/rss",
+            "type": "rss",
+            "priority": 1
+          },
+          {
+            "name": "WWD",
+            "url": "https://wwd.com/feed/",
+            "type": "rss",
+            "priority": 1
+          },
+          {
+            "name": "Business of Fashion",
+            "url": "https://www.businessoffashion.com/feed/",
+            "type": "rss",
+            "priority": 1
+          },
+          {
+            "name": "Hypebeast Fashion",
+            "url": "https://hypebeast.com/fashion/feed",
+            "type": "rss",
+            "priority": 1
+          }
+        ]
+      },
+      "industrial": {
+        "primary": [
+          {
+            "name": "Core77",
+            "url": "https://www.core77.com/feed",
+            "type": "rss",
+            "priority": 1
+          },
+          {
+            "name": "Yanko Design",
+            "url": "https://www.yankodesign.com/feed/",
+            "type": "rss",
+            "priority": 1
+          },
+          {
+            "name": "Design Milk",
+            "url": "https://design-milk.com/feed/",
+            "type": "rss",
+            "priority": 1
+          }
+        ]
+      },
+      "architectural": {
+        "primary": [
+          {
+            "name": "ArchDaily",
+            "url": "https://www.archdaily.com/feed",
+            "type": "rss",
+            "priority": 1
+          },
+          {
+            "name": "Dezeen",
+            "url": "https://www.dezeen.com/feed/",
+            "type": "rss",
+            "priority": 1
+          },
+          {
+            "name": "Architizer",
+            "url": "https://architizer.com/blog/feed/",
+            "type": "rss",
+            "priority": 1
+          }
+        ]
+      },
+      "automotive": {
+        "primary": [
+          {
+            "name": "Car Design News",
+            "url": "https://cardesignnews.com/feed",
+            "type": "rss",
+            "priority": 1
+          },
+          {
+            "name": "Form Trends",
+            "url": "https://formtrends.com/feed/",
+            "type": "rss",
+            "priority": 1
+          }
+        ]
+      }
+    },
+    "science": {
+      "space-tech": {
+        "primary": [
+          {
+            "name": "Space.com",
+            "url": "https://www.space.com/feeds/all",
+            "type": "rss",
+            "priority": 1
+          },
+          {
+            "name": "NASA",
+            "url": "https://www.nasa.gov/rss/dyn/breaking_news.rss",
+            "type": "rss",
+            "priority": 1
+          },
+          {
+            "name": "ESA",
+            "url": "https://www.esa.int/rssfeed/Our_Activities/Space_News",
+            "type": "rss",
+            "priority": 1
+          },
+          {
+            "name": "Spaceflight Now",
+            "url": "https://spaceflightnow.com/feed/",
+            "type": "rss",
+            "priority": 1
+          }
+        ]
+      },
+      "AI": {
+        "primary": [
+          {
+            "name": "MIT AI News",
+            "url": "https://news.mit.edu/topic/artificial-intelligence2-rss.xml",
+            "type": "rss",
+            "priority": 1
+          },
+          {
+            "name": "Google AI Blog",
+            "url": "https://blog.research.google/feeds/posts/default?alt=rss",
+            "type": "rss",
+            "priority": 1
+          },
+          {
+            "name": "DeepMind Blog",
+            "url": "https://deepmind.com/blog/feed/basic/",
+            "type": "rss",
+            "priority": 1
+          },
+          {
+            "name": "OpenAI Blog",
+            "url": "https://openai.com/blog/rss/",
+            "type": "rss",
+            "priority": 1
+          }
+        ]
+      }
+    }
+  },
+  "defaultParams": {
+    "userAgent": "TheGossRoom Feed Fetcher/1.0",
+    "timeout": 10000,
+    "maxItems": 50,
+    "cacheTime": 1800,
+    "maxConcurrentRequests": 10
+  },
+  "filters": {
+    "excludeKeywords": [
+      "sponsored",
+      "advertisement",
+      "promoted"
+    ],
+    "minWordCount": 100,
+    "requireImage": true
+  }
+}
+

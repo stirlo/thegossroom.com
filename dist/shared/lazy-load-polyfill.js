@@ -1,1 +1,0 @@
-"loading"in HTMLImageElement.prototype||document.addEventListener("DOMContentLoaded",(function(){const e=document.querySelectorAll('img[loading="lazy"]'),t=new IntersectionObserver(((e,n)=>{e.forEach((e=>{if(e.isIntersecting){const n=e.target;n.src=n.dataset.src,n.removeAttribute("loading"),t.unobserve(n)}}))}));e.forEach((e=>t.observe(e)))}));

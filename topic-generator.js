@@ -1,136 +1,276 @@
-// topic-generator.js
-const fs = require('fs').promises;
-const path = require('path');
-const { sectionConfig } = require('./section-config');
+import fs from 'fs/promises';
+import path from 'path';
+import { fileURLToPath } from 'url';
+import { dirname } from 'path';
+import { sectionConfig } from './section-config.js';
+import chalk from 'chalk';
 
-class TopicGenerator {
+const __filename = fileURLToPath(import.meta.url);
+const __dirname = dirname(__filename);
+
+export class TopicGenerator {
     constructor() {
-        this.topicCache = new Map();
+        this.topics = new Map();
+        this.relationshipGraph = new Map();
     }
 
     async generateTopicsForSection(section) {
-        const config = sectionConfig[section];
-        if (!config) throw new Error(`Section ${section} not found`);
+        console.log(chalk.blue(`Generating topics for section: ${section}`));
 
-        console.log(`Generating topics for ${config.title}...`);
+        // Load processed feeds
+        const feedsPath = path.join('dist', section, 'feeds', 'processed-feeds.json');
+        let feeds;
+        try {
+            const feedsData = await fs.readFile(feedsPath, 'utf-8');
+            feeds = JSON.parse(feedsData);
+        } catch (error) {
+            console.error(chalk.red(`Error loading feeds for ${section}:`), error);
+            return;
+        }
 
-        const topics = config.topics.map(topicName => 
-            this.createTopic(topicName, section)
+        // Extract topics from feeds
+        await this.extractTopics(feeds, section);
+
+        // Generate topic pages
+        await this.generateTopicPages(section);
+
+        // Save topic index
+        await this.saveTopicIndex(section);
+    }
+
+    async extractTopics(feeds, section) {
+        const sectionTopics = new Map();
+
+        for (const feed of feeds) {
+            for (const item of feed.items) {
+                const itemTopics = this.identifyTopics(item, section);
+
+                for (const topic of itemTopics) {
+                    if (!sectionTopics.has(topic.slug)) {
+                        sectionTopics.set(topic.slug, {
+                            name: topic.name,
+                            slug: topic.slug,
+                            section: section,
+                            articles: [],
+                            relatedTopics: new Set(),
+                            score: 0
+                        });
+                    }
+
+                    const topicData = sectionTopics.get(topic.slug);
+                    topicData.articles.push({
+                        title: item.title,
+                        link: item.link,
+                        pubDate: item.pubDate,
+                        image: item.image,
+                        description: item.content.substring(0, 200) + '...',
+                        source: item.source
+                    });
+                    topicData.score += 1;
+
+                    // Build relationship graph
+                    itemTopics.forEach(relatedTopic => {
+                        if (relatedTopic.slug !== topic.slug) {
+                            topicData.relatedTopics.add(relatedTopic.slug);
+                        }
+                    });
+                }
+            }
+        }
+
+        this.topics.set(section, sectionTopics);
+    }
+
+    identifyTopics(item, section) {
+        const topics = new Set();
+
+        // Add explicit categories
+        if (item.categories) {
+            item.categories.forEach(category => {
+                const topic = this.normalizeTopicName(category);
+                if (this.isValidTopic(topic, section)) {
+                    topics.add({
+                        name: this.capitalizeWords(topic),
+                        slug: this.slugify(topic)
+                    });
+                }
+            });
+        }
+
+        // Extract topics from content
+        const contentTopics = this.extractTopicsFromContent(
+            item.title + ' ' + item.content,
+            section
         );
+        contentTopics.forEach(topic => topics.add(topic));
 
-        await this.saveTopics(section, topics);
+        return Array.from(topics);
+    }
+
+    extractTopicsFromContent(content, section) {
+        const topics = new Set();
+        const sectionConfig = this.getSectionConfig(section);
+
+        if (sectionConfig && sectionConfig.topicPatterns) {
+            sectionConfig.topicPatterns.forEach(pattern => {
+                const matches = content.match(new RegExp(pattern, 'gi'));
+                if (matches) {
+                    matches.forEach(match => {
+                        const topic = this.normalizeTopicName(match);
+                        if (this.isValidTopic(topic, section)) {
+                            topics.add({
+                                name: this.capitalizeWords(topic),
+                                slug: this.slugify(topic)
+                            });
+                        }
+                    });
+                }
+            });
+        }
+
         return topics;
     }
 
-    createTopic(topicName, section) {
-        const slug = this.generateSlug(topicName);
-        return {
-            id: `${section}-${slug}`,
-            name: topicName,
-            slug: slug,
-            section: section,
-            description: `Latest ${topicName} news and updates in ${sectionConfig[section].title}`,
-            keywords: this.generateKeywords(topicName, section),
-            created: new Date().toISOString(),
-            updated: new Date().toISOString(),
-            articleCount: 0,
-            trending: false
-        };
-    }
+    async generateTopicPages(section) {
+        const sectionTopics = this.topics.get(section);
+        if (!sectionTopics) return;
 
-    generateSlug(name) {
-        return name
-            .toLowerCase()
-            .replace(/[^a-z0-9]+/g, '-')
-            .replace(/(^-|-$)/g, '');
-    }
+        const topicDir = path.join('dist', section, 'topics');
+        await fs.mkdir(topicDir, { recursive: true });
 
-    generateKeywords(topicName, section) {
-        const baseKeywords = [
-            topicName,
-            sectionConfig[section].title,
-            'news',
-            'updates',
-            'gossip'
-        ];
-
-        // Add related keywords
-        const related = topicName.split(' ');
-        return [...new Set([...baseKeywords, ...related])];
-    }
-
-    async saveTopics(section, topics) {
-        const outputDir = path.join('dist', section, 'topics');
-        await fs.mkdir(outputDir, { recursive: true });
-
-        // Save all topics index
-        const indexPath = path.join(outputDir, 'topics.json');
-        await fs.writeFile(indexPath, JSON.stringify(topics, null, 2));
-
-        // Save individual topic files
-        for (const topic of topics) {
-            const topicPath = path.join(outputDir, `${topic.slug}.json`);
-            await fs.writeFile(topicPath, JSON.stringify(topic, null, 2));
-
-            // Generate topic page
-            await this.generateTopicPage(section, topic);
+        for (const [slug, topicData] of sectionTopics.entries()) {
+            await this.generateTopicPage(topicData, topicDir);
         }
     }
 
-    async generateTopicPage(section, topic) {
-        const template = `
-<!DOCTYPE html>
-<html lang="en">
-<head>
-    <meta charset="UTF-8">
-    <meta name="viewport" content="width=device-width, initial-scale=1.0">
-    <title>${topic.name} - ${sectionConfig[section].title} - TheGossRoom</title>
-    <meta name="description" content="${topic.description}">
-    <meta name="keywords" content="${topic.keywords.join(', ')}">
-    <link rel="stylesheet" href="/shared/global.css">
-    <link rel="stylesheet" href="/shared/topic.css">
-</head>
-<body>
-    <header>
-        <nav id="main-nav"></nav>
-        <div id="breadcrumbs">
-            <a href="/">Home</a> &gt;
-            <a href="/${section}">${sectionConfig[section].title}</a> &gt;
-            <span>${topic.name}</span>
-        </div>
-    </header>
+    async generateTopicPage(topic, outputDir) {
+        const template = await this.getTopicTemplate();
 
-    <main>
-        <h1>${topic.name}</h1>
-        <p class="topic-description">${topic.description}</p>
+        // Sort articles by date
+        topic.articles.sort((a, b) => 
+            new Date(b.pubDate) - new Date(a.pubDate)
+        );
 
-        <section id="latest-articles">
-            <h2>Latest Updates</h2>
-            <div class="article-grid" data-topic="${topic.slug}"></div>
-        </section>
+        // Get related topics data
+        const relatedTopics = Array.from(topic.relatedTopics)
+            .map(slug => this.topics.get(topic.section).get(slug))
+            .filter(t => t)
+            .sort((a, b) => b.score - a.score)
+            .slice(0, 5);
 
-        <section id="related-topics">
-            <h2>Related Topics</h2>
-            <div class="topic-grid"></div>
-        </section>
-    </main>
+        const pageContent = template
+            .replace('{{topicName}}', topic.name)
+            .replace('{{topicDescription}}', this.generateTopicDescription(topic))
+            .replace('{{articles}}', this.generateArticlesList(topic.articles))
+            .replace('{{relatedTopics}}', this.generateRelatedTopicsList(relatedTopics));
 
-    <footer id="site-footer"></footer>
+        const outputPath = path.join(outputDir, `${topic.slug}.html`);
+        await fs.writeFile(outputPath, pageContent);
+    }
 
-    <script src="/shared/global.js"></script>
-    <script src="/shared/topic.js"></script>
-    <script>
-        document.addEventListener('DOMContentLoaded', () => {
-            loadTopicContent('${section}', '${topic.slug}');
-        });
-    </script>
-</body>
-</html>`;
+    async getTopicTemplate() {
+        // Load and cache template
+        if (!this.topicTemplate) {
+            const templatePath = path.join('src', 'templates', 'topic.html');
+            this.topicTemplate = await fs.readFile(templatePath, 'utf-8');
+        }
+        return this.topicTemplate;
+    }
 
-        const outputPath = path.join('dist', section, 'topics', `${topic.slug}.html`);
-        await fs.writeFile(outputPath, template);
+    generateTopicDescription(topic) {
+        const articleCount = topic.articles.length;
+        const latestDate = new Date(Math.max(
+            ...topic.articles.map(a => new Date(a.pubDate))
+        ));
+
+        return `
+            Latest news and updates about ${topic.name}. 
+            Featuring ${articleCount} articles, with the most recent from 
+            ${latestDate.toLocaleDateString()}.
+        `;
+    }
+
+    generateArticlesList(articles) {
+        return articles.map(article => `
+            <article class="topic-article">
+                <img src="${article.image}" alt="${article.title}">
+                <div class="article-content">
+                    <h3><a href="${article.link}">${article.title}</a></h3>
+                    <p>${article.description}</p>
+                    <div class="article-meta">
+                        <span>${new Date(article.pubDate).toLocaleDateString()}</span>
+                        <span>·</span>
+                        <span>${article.source}</span>
+                    </div>
+                </div>
+            </article>
+        `).join('\n');
+    }
+
+    generateRelatedTopicsList(topics) {
+        return topics.map(topic => `
+            <a href="${topic.slug}.html" class="related-topic">
+                ${topic.name}
+                <span class="article-count">${topic.articles.length} articles</span>
+            </a>
+        `).join('\n');
+    }
+
+    async saveTopicIndex(section) {
+        const sectionTopics = this.topics.get(section);
+        if (!sectionTopics) return;
+
+        const topicIndex = Array.from(sectionTopics.values()).map(topic => ({
+            name: topic.name,
+            slug: topic.slug,
+            articleCount: topic.articles.length,
+            latestArticle: new Date(Math.max(
+                ...topic.articles.map(a => new Date(a.pubDate))
+            )).toISOString()
+        }));
+
+        const indexPath = path.join('dist', section, 'topics', 'index.json');
+        await fs.writeFile(indexPath, JSON.stringify(topicIndex, null, 2));
+    }
+
+    // Utility methods
+    normalizeTopicName(topic) {
+        return topic.toLowerCase().trim();
+    }
+
+    slugify(text) {
+        return text
+            .toLowerCase()
+            .replace(/[^\w\s-]/g, '')
+            .replace(/\s+/g, '-')
+            .replace(/-+/g, '-')
+            .trim();
+    }
+
+    capitalizeWords(text) {
+        return text
+            .split(' ')
+            .map(word => word.charAt(0).toUpperCase() + word.slice(1))
+            .join(' ');
+    }
+
+    isValidTopic(topic, section) {
+        if (topic.length < 3) return false;
+
+        const sectionConfig = this.getSectionConfig(section);
+        if (!sectionConfig) return false;
+
+        // Check against blacklist
+        if (sectionConfig.topicBlacklist && 
+            sectionConfig.topicBlacklist.includes(topic)) {
+            return false;
+        }
+
+        return true;
+    }
+
+    getSectionConfig(section) {
+        return sectionConfig[section];
     }
 }
-
-module.exports = TopicGenerator;
 
