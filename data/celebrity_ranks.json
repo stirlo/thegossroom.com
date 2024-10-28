@@ -1,12 +1,12 @@
 {
   "Trump": 100,
   "Diddy": 92,
-  "Liam": 82,
-  "Nike": 74,
+  "Liam": 81,
+  "Nike": 73,
   "Taylor Swift": 62,
   "Donald Trump": 38,
-  "Kamala Harris": 35,
-  "Kanye": 21,
+  "Kamala Harris": 36,
+  "Kanye": 20,
   "Kardashian": 18,
   "Bieber": 16,
   "Prince Harry": 13,
@@ -16,8 +16,8 @@
   "Jenner": 11,
   "Ariana Grande": 10,
   "Beyonc\u00e9": 8,
-  "Biden": 7,
-  "Selena Gomez": 7,
+  "Biden": 6,
+  "Selena Gomez": 6,
   "Cardi B": 6,
   "Obama": 6,
   "Eminem": 6,
@@ -72,5 +72,6 @@
   "Metro Boomin": 0,
   "Tim Cook": 0,
   "Sza": 0,
-  "Seth Rogan": 0
+  "Seth Rogan": 0,
+  "Sandra Oh": 0
 }
