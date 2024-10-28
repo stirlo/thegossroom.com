@@ -32,9 +32,10 @@
 
     <!-- Stylesheets -->
     <link rel="stylesheet" href="style.css">
+    <link rel="stylesheet" href="attribution.css">
 </head>
 
-<body>
+<body class="attribution-page">
     <header>
         <h1>The Gossip Room</h1>
         <nav>
@@ -47,24 +48,48 @@
 
     <main>
         <div class="content-container">
-            <h2>Attribution</h2>
-            <p>The Gossip Room aggregates content from various reputable gossip and entertainment news sources. We'd like to thank and acknowledge the following publications:</p>
-            <ul id="sourceList">
-                <!-- This list will be populated by JavaScript -->
-            </ul>
+            <section class="sources-section">
+                <h2>Attribution</h2>
+                <p>The Gossip Room aggregates content from various reputable gossip and entertainment news sources. We'd like to thank and acknowledge the following publications:</p>
+                <ul id="sourceList">
+                    <!-- This list will be populated by JavaScript -->
+                </ul>
+            </section>
 
-            <h2>Thank You</h2>
-            <p>We would also like to express our gratitude to the following tools, services, and individuals that made this project possible:</p>
-            <ul id="thankYouList">
-                <!-- This list will be populated by JavaScript -->
-            </ul>
+            <section class="visualization-section">
+                <h2>Source Distribution</h2>
+                <div id="sourceDistribution" class="chart-container">
+                    <!-- Chart will be rendered here -->
+                </div>
+            </section>
+
+            <section class="status-section">
+                <h2>Source Status</h2>
+                <div id="sourceStatus" class="status-dashboard">
+                    <!-- Status indicators will be rendered here -->
+                </div>
+            </section>
+
+            <section class="thankyou-section">
+                <h2>Thank You</h2>
+                <p>We would also like to express our gratitude to the following tools, services, and individuals that made this project possible:</p>
+                <ul id="thankYouList">
+                    <!-- This list will be populated by JavaScript -->
+                </ul>
+            </section>
         </div>
     </main>
 
     <footer>
-        <p>&copy; 2024 The Gossip Room. All rights reserved.</p>
+        <p>
+            <a href="LICENSE">©</a> <span id="currentYear"></span> 
+            <a href="https://tfp.la">TFP</a> | 
+            <a href="https://thelaboratory.cc">The Laboratory</a> | 
+            <a href="https://thelaboratory.cc/thankyou.html">Thank You</a>
+        </p>
     </footer>
 
     <script src="attribution.js"></script>
 </body>
 </html>
+

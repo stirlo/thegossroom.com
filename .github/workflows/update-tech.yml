@@ -1,0 +1,36 @@
+name: Update Tech News
+
+on:
+  schedule:
+    - cron: '0 */1 * * *'  # Run every hour
+  workflow_dispatch:
+
+jobs:
+  update-tech-news:
+    runs-on: ubuntu-latest
+
+    steps:
+    - uses: actions/checkout@v2
+
+    - name: Set up Python
+      uses: actions/setup-python@v2
+      with:
+        python-version: '3.9'
+
+    - name: Install dependencies
+      run: |
+        python -m pip install --upgrade pip
+        pip install feedparser nltk requests arxiv
+
+    - name: Update AI News
+      run: |
+        python scripts/update_ai.py
+        python scripts/update_ai_research.py
+
+    - name: Commit and push if changed
+      run: |
+        git config --local user.email "action@github.com"
+        git config --local user.name "GitHub Action"
+        git add tech/AI/data/*.json
+        git diff --quiet && git diff --staged --quiet || (git commit -m "Update AI news and research data" && git push)
+

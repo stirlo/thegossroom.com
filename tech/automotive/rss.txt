@@ -1,0 +1,8 @@
+https://www.motortrend.com/feed/
+https://www.caranddriver.com/rss/all.xml/
+https://www.autoblog.com/rss.xml
+https://feeds.feedburner.com/autonews/BreakingNews
+https://cleantechnica.com/category/clean-transport/feed/
+https://electrek.co/feed/
+https://insideevs.com/feed/
+https://www.theverge.com/transportation/rss/index.xml

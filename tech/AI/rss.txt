@@ -1,0 +1,10 @@
+https://feeds.feedburner.com/TechCrunch/artificial-intelligence
+https://www.technologyreview.com/c/artificial-intelligence/feed
+https://ai.googleblog.com/feeds/posts/default
+https://blogs.nvidia.com/blog/category/deep-learning/feed/
+https://machinelearning.apple.com/rss.xml
+https://news.mit.edu/topic/artificial-intelligence2-rss.xml
+https://distill.pub/rss.xml
+https://lexfridman.com/feed/podcast/
+https://www.deepmind.com/blog/rss.xml
+https://openai.com/blog/rss/

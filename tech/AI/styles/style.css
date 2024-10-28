@@ -1,0 +1,70 @@
+/* AI Section Specific Styles */
+.tech-theme.ai {
+    --ai-primary: #2d3436;
+    --ai-accent: #00b894;
+    --ai-gradient: linear-gradient(135deg, #2d3436 0%, #000000 100%);
+}
+
+.tech-theme.ai header {
+    background: var(--ai-gradient);
+    border-bottom: 3px solid var(--ai-accent);
+}
+
+/* Grid Layout for Articles */
+#articles-grid {
+    display: grid;
+    grid-template-columns: repeat(auto-fit, minmax(300px, 1fr));
+    gap: 1.5rem;
+    padding: 1rem;
+}
+
+.article-card {
+    background: #fff;
+    border-radius: 8px;
+    box-shadow: 0 2px 15px rgba(0,0,0,0.1);
+    transition: transform 0.3s ease;
+    overflow: hidden;
+}
+
+.article-card:hover {
+    transform: translateY(-5px);
+}
+
+.article-card .source-tag {
+    background: var(--ai-accent);
+    color: white;
+    padding: 0.2rem 0.8rem;
+    border-radius: 4px;
+    font-size: 0.8rem;
+}
+
+/* Trending Topics */
+.trending-topics {
+    padding: 1rem;
+    background: #f8f9fa;
+    margin-bottom: 2rem;
+}
+
+.topic-tag {
+    display: inline-block;
+    padding: 0.5rem 1rem;
+    margin: 0.3rem;
+    background: var(--ai-primary);
+    color: white;
+    border-radius: 20px;
+    font-size: 0.9rem;
+    cursor: pointer;
+    transition: background 0.3s ease;
+}
+
+.topic-tag:hover {
+    background: var(--ai-accent);
+}
+
+/* Responsive Design */
+@media (max-width: 768px) {
+    #articles-grid {
+        grid-template-columns: 1fr;
+    }
+}
+
