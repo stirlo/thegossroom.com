@@ -1,139 +1,179 @@
-// site-generator.js
+// enhanced-site-generator.js
 const fs = require('fs').promises;
 const path = require('path');
 
-const siteStructure = {
-    tech: {
-        AI: {
-            rss: [
-                'https://www.artificialintelligence-news.com/feed/',
-                'https://www.unite.ai/feed/',
-                'https://www.marktechpost.com/feed/',
-                'https://machinelearningmastery.com/feed/',
-                'https://www.datanami.com/feed/'
-            ],
-            topics: [
-                'Machine Learning',
-                'Neural Networks',
-                'Robotics',
-                'Natural Language Processing',
-                'Computer Vision'
-            ]
-        },
-        mobile: {
-            rss: [
-                'https://www.gsmarena.com/rss-news-reviews.php3',
-                'https://www.androidauthority.com/feed',
-                'https://www.phonearena.com/feed',
-                'https://www.androidpolice.com/feed',
-                'https://www.imore.com/feed'
-            ],
-            topics: [
-                '5G Networks',
-                'Smartphone Reviews',
-                'Mobile Gaming',
-                'App Development',
-                'Wearable Tech'
-            ]
-        },
-        automotive: {
-            rss: [
-                'https://www.motortrend.com/feed',
-                'https://www.caranddriver.com/rss/all.xml/',
-                'https://www.autoblog.com/rss.xml',
-                'https://www.autoweek.com/feed',
-                'https://electrek.co/feed'
-            ],
-            topics: [
-                'Electric Vehicles',
-                'Self-Driving Technology',
-                'Connected Cars',
-                'Vehicle Safety',
-                'Green Transportation'
-            ]
-        }
-    },
-    celebrity: {
-        movies: {
-            rss: [
-                'https://variety.com/feed/',
-                'https://deadline.com/feed/',
-                'https://www.hollywoodreporter.com/feed/',
-                'https://www.indiewire.com/feed/',
-                'https://screenrant.com/feed/'
-            ],
-            topics: [
-                'Box Office',
-                'Movie Reviews',
-                'Hollywood News',
-                'Indie Films',
-                'Awards Season'
-            ]
-        },
-        music: {
-            rss: [
-                'https://www.billboard.com/feed/',
-                'https://pitchfork.com/feed/',
-                'https://www.nme.com/feed',
-                'https://consequence.net/feed/',
-                'https://www.rollingstone.com/feed/'
-            ],
-            topics: [
-                'New Releases',
-                'Concert News',
-                'Artist Updates',
-                'Industry News',
-                'Music Reviews'
-            ]
-        }
-    },
+// Define the complete structure with custom properties
+const fullSiteStructure = {
     climate: {
-        science: {
-            rss: [
-                'https://climate.nasa.gov/feed/',
-                'https://www.carbonbrief.org/feed',
-                'https://www.climatechangenews.com/feed/',
-                'https://www.nature.com/nature/climate-change.rss',
-                'https://news.science.org/feed/'
-            ],
-            topics: [
-                'Climate Research',
-                'Weather Patterns',
-                'Ocean Studies',
-                'Atmospheric Science',
-                'Data Analysis'
-            ]
+        research: {
+            current: { theme: 'science' },
+            upcoming: { theme: 'future' }
+        },
+        energy: {
+            renewable: { theme: 'green' },
+            storage: { theme: 'tech' },
+            grid: { theme: 'infrastructure' }
+        },
+        impacts: {
+            current: { theme: 'alert' },
+            regional: { theme: 'geo' },
+            predictions: { theme: 'forecast' }
         },
         solutions: {
-            rss: [
-                'https://cleantechnica.com/feed/',
-                'https://www.greentechmedia.com/feed',
-                'https://www.ecowatch.com/feed/',
-                'https://www.renewableenergyworld.com/feed/',
-                'https://www.treehugger.com/feed'
-            ],
-            topics: [
-                'Renewable Energy',
-                'Green Technology',
-                'Sustainability',
-                'Conservation',
-                'Climate Action'
-            ]
+            innovation: { theme: 'bright' },
+            technology: { theme: 'tech' },
+            policy: { theme: 'formal' }
+        },
+        conservation: {
+            biodiversity: { theme: 'nature' },
+            oceans: { theme: 'water' },
+            forests: { theme: 'earth' }
+        },
+        policy: {
+            agreements: { theme: 'formal' },
+            legislation: { theme: 'legal' },
+            international: { theme: 'global' }
+        }
+    },
+    tech: {
+        gaming: {
+            hardware: { theme: 'tech' },
+            'vr-ar': { theme: 'future' },
+            development: { theme: 'code' },
+            industry: { theme: 'business' }
+        },
+        chips: {
+            gpu: { theme: 'tech' },
+            manufacturing: { theme: 'industrial' },
+            processors: { theme: 'tech' }
+        },
+        security: {
+            cybersecurity: { theme: 'dark' },
+            privacy: { theme: 'secure' },
+            enterprise: { theme: 'business' }
+        },
+        'space-tech': {
+            satellites: { theme: 'space' },
+            commercial: { theme: 'business' },
+            exploration: { theme: 'discovery' }
+        },
+        automotive: {
+            ev: { theme: 'future' },
+            engines: { theme: 'industrial' },
+            future: { theme: 'concept' }
+        },
+        software: {
+            development: { theme: 'code' },
+            apps: { theme: 'modern' }
+        },
+        audio: {
+            innovation: { theme: 'creative' },
+            hardware: { theme: 'tech' },
+            production: { theme: 'studio' }
+        },
+        mobile: {
+            apple: { theme: 'minimal' },
+            emerging: { theme: 'future' },
+            android: { theme: 'tech' }
+        },
+        AI: {
+            general: { theme: 'future' }
         }
     }
 };
 
-const templateHTML = (section, subsection) => `
+// Theme-specific CSS variables
+const themeStyles = {
+    science: {
+        primary: '#2196F3',
+        secondary: '#03A9F4',
+        accent: '#00BCD4'
+    },
+    future: {
+        primary: '#7C4DFF',
+        secondary: '#651FFF',
+        accent: '#6200EA'
+    },
+    green: {
+        primary: '#4CAF50',
+        secondary: '#43A047',
+        accent: '#388E3C'
+    },
+    // Add more theme definitions...
+};
+
+// Generate theme-specific CSS
+const generateThemeCSS = (theme) => `
+/* Theme: ${theme} */
+:root {
+    --primary-color: ${themeStyles[theme]?.primary || '#2196F3'};
+    --secondary-color: ${themeStyles[theme]?.secondary || '#1976D2'};
+    --accent-color: ${themeStyles[theme]?.accent || '#0D47A1'};
+
+    /* Light mode */
+    --bg-color: #ffffff;
+    --text-color: #212121;
+    --card-bg: #f5f5f5;
+    --border-color: #e0e0e0;
+}
+
+/* Dark mode */
+@media (prefers-color-scheme: dark) {
+    :root {
+        --bg-color: #121212;
+        --text-color: #ffffff;
+        --card-bg: #1e1e1e;
+        --border-color: #333333;
+    }
+}
+
+/* Section-specific styles */
+.content-wrapper {
+    max-width: var(--container-width, 1200px);
+    margin: 0 auto;
+    padding: 2rem 1rem;
+    background: var(--bg-color);
+    color: var(--text-color);
+}
+
+.card {
+    background: var(--card-bg);
+    border: 1px solid var(--border-color);
+    border-radius: var(--card-radius, 8px);
+    padding: 1rem;
+    margin-bottom: 1rem;
+    transition: all 0.3s ease;
+}
+
+.card:hover {
+    transform: translateY(-2px);
+    box-shadow: 0 4px 12px rgba(0,0,0,0.1);
+}
+
+/* Theme-specific animations */
+@keyframes theme-pulse {
+    0% { opacity: 0.8; }
+    50% { opacity: 1; }
+    100% { opacity: 0.8; }
+}
+
+.theme-element {
+    animation: theme-pulse 2s infinite;
+}
+`;
+
+// Generate index.html template
+const generateIndexHTML = (section, subsection, subsubsection) => `
 <!DOCTYPE html>
 <html lang="en">
 <head>
     <meta charset="UTF-8">
     <meta name="viewport" content="width=device-width, initial-scale=1.0">
-    <meta name="description" content="Latest ${subsection} news and developments - TheGossRoom ${section}">
-    <title>${subsection} News & Updates | TheGossRoom ${section}</title>
+    <meta name="description" content="${section} ${subsection} ${subsubsection} - TheGossRoom">
+    <title>${subsubsection} - ${subsection} ${section} | TheGossRoom</title>
 
     <link rel="stylesheet" href="/shared/global.css">
-    <link rel="stylesheet" href="/shared/styles/nav-tree.css">
+    <link rel="stylesheet" href="/shared/nav-tree.css">
     <link rel="stylesheet" href="styles/style.css">
 </head>
 <body>
@@ -141,7 +181,8 @@ const templateHTML = (section, subsection) => `
         <nav class="main-nav">
             <a href="/" class="logo">TheGossRoom</a>
             <a href="/${section.toLowerCase()}">${section}</a>
-            <span class="current">${subsection}</span>
+            <a href="/${section.toLowerCase()}/${subsection.toLowerCase()}">${subsection}</a>
+            <span class="current">${subsubsection}</span>
             <a href="/attribution.html">Attribution</a>
         </nav>
     </header>
@@ -151,13 +192,13 @@ const templateHTML = (section, subsection) => `
         <div id="section-nav"></div>
 
         <section class="trending-topics">
-            <h2>Trending in ${subsection}</h2>
-            <div id="topics-container"></div>
+            <h2>Trending in ${subsubsection}</h2>
+            <div id="topics-container" class="card-grid"></div>
         </section>
 
         <section class="latest-news">
-            <h2>Latest ${subsection} News</h2>
-            <div id="articles-grid"></div>
+            <h2>Latest ${subsubsection} News</h2>
+            <div id="articles-grid" class="card-grid"></div>
         </section>
     </main>
 
@@ -171,100 +212,57 @@ const templateHTML = (section, subsection) => `
     </footer>
 
     <script src="/shared/global.js"></script>
-    <script src="/shared/components/nav-tree.js"></script>
+    <script src="/shared/nav-tree.js"></script>
     <script src="script.js"></script>
 </body>
 </html>
 `;
 
-const defaultStyle = `
-/* Section-specific styles */
-:root {
-    --section-accent: var(--primary-color);
-    --section-gradient: linear-gradient(135deg, var(--section-accent), var(--secondary-color));
-}
-
-/* Layout and Grid */
-.content-wrapper {
-    max-width: var(--container-width);
-    margin: 0 auto;
-    padding: 2rem 1rem;
-}
-
-/* Add more section-specific styles here */
-`;
-
-const defaultScript = `
-// Section-specific JavaScript
-document.addEventListener('DOMContentLoaded', async () => {
-    const navTree = new NavTree();
-    document.getElementById('breadcrumbs').innerHTML = navTree.generateBreadcrumbs();
-    document.getElementById('section-nav').innerHTML = navTree.generateSectionNav();
-
-    // Load and display RSS feeds
-    const feeds = await fetch('rss.txt').then(r => r.text());
-    const topics = await fetch('topics.txt').then(r => r.text());
-
-    // Initialize content
-    initializeContent(feeds.split('\\n'), topics.split('\\n'));
-});
-`;
-
-async function generateSiteStructure() {
+async function generateFullSiteStructure() {
     try {
-        // Create base directories
-        await fs.mkdir('dist', { recursive: true });
-        await fs.mkdir('dist/shared', { recursive: true });
-        await fs.mkdir('dist/shared/styles', { recursive: true });
-        await fs.mkdir('dist/shared/components', { recursive: true });
+        for (const [section, subsections] of Object.entries(fullSiteStructure)) {
+            for (const [subsection, subsubsections] of Object.entries(subsections)) {
+                for (const [subsubsection, config] of Object.entries(subsubsections)) {
+                    const folderPath = path.join('dist', section, subsection, subsubsection);
+                    const stylesPath = path.join(folderPath, 'styles');
+                    const dataPath = path.join(folderPath, 'data');
 
-        // Generate section directories and files
-        for (const [section, subsections] of Object.entries(siteStructure)) {
-            const sectionPath = path.join('dist', section.toLowerCase());
-            await fs.mkdir(sectionPath, { recursive: true });
+                    // Create folder structure
+                    await fs.mkdir(folderPath, { recursive: true });
+                    await fs.mkdir(stylesPath, { recursive: true });
+                    await fs.mkdir(dataPath, { recursive: true });
 
-            // Generate section index
-            await fs.writeFile(
-                path.join(sectionPath, 'index.html'),
-                templateHTML(section, section)
-            );
+                    // Generate files
+                    await fs.writeFile(
+                        path.join(folderPath, 'index.html'),
+                        generateIndexHTML(section, subsection, subsubsection)
+                    );
 
-            // Generate subsections
-            for (const [subsection, content] of Object.entries(subsections)) {
-                const subsectionPath = path.join(sectionPath, subsection);
-                await fs.mkdir(subsectionPath, { recursive: true });
-                await fs.mkdir(path.join(subsectionPath, 'styles'), { recursive: true });
+                    await fs.writeFile(
+                        path.join(stylesPath, 'style.css'),
+                        generateThemeCSS(config.theme)
+                    );
 
-                // Create subsection files
-                await fs.writeFile(
-                    path.join(subsectionPath, 'index.html'),
-                    templateHTML(section, subsection)
-                );
-                await fs.writeFile(
-                    path.join(subsectionPath, 'styles', 'style.css'),
-                    defaultStyle
-                );
-                await fs.writeFile(
-                    path.join(subsectionPath, 'script.js'),
-                    defaultScript
-                );
-                await fs.writeFile(
-                    path.join(subsectionPath, 'rss.txt'),
-                    content.rss.join('\n')
-                );
-                await fs.writeFile(
-                    path.join(subsectionPath, 'topics.txt'),
-                    content.topics.join('\n')
-                );
+                    // Create empty data files
+                    await fs.writeFile(
+                        path.join(dataPath, 'topics.json'),
+                        JSON.stringify({ topics: [] }, null, 2)
+                    );
+
+                    await fs.writeFile(
+                        path.join(dataPath, 'feeds.json'),
+                        JSON.stringify({ feeds: [] }, null, 2)
+                    );
+                }
             }
         }
 
-        console.log('Site structure generated successfully!');
+        console.log('Full site structure generated successfully!');
     } catch (error) {
         console.error('Error generating site structure:', error);
     }
 }
 
 // Run the generator
-generateSiteStructure();
+generateFullSiteStructure();
 
