@@ -11,7 +11,7 @@
   "Bieber": 14,
   "Prince Harry": 12,
   "Jenner": 11,
-  "Elon Musk": 10,
+  "Elon Musk": 11,
   "SNL": 10,
   "Biden": 10,
   "Ariana Grande": 10,
@@ -19,7 +19,7 @@
   "Beyonc\u00e9": 7,
   "Selena Gomez": 6,
   "Obama": 6,
-  "Tom Brady": 5,
+  "Tom Brady": 6,
   "Cardi B": 5,
   "Eminem": 5,
   "Sydney Sweeney": 4,
@@ -35,10 +35,10 @@
   "Lizzo": 2,
   "Dua Lipa": 2,
   "Angelina Jolie": 2,
+  "Megan Thee Stallion": 2,
   "Jake Paul": 2,
   "LeBron James": 2,
   "Paris Hilton": 2,
-  "Megan Thee Stallion": 2,
   "Saturday Night Live": 2,
   "Princess of Wales": 1,
   "Jon Stewart": 1,
@@ -76,5 +76,6 @@
   "Sza": 0,
   "Seth Rogan": 0,
   "Sandra Oh": 0,
-  "Alison Brie": 0
+  "Alison Brie": 0,
+  "Tyler The Creator": 0
 }
