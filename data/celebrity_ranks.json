@@ -1,7 +1,7 @@
 {
   "Trump": 100,
-  "Diddy": 62,
-  "Nike": 53,
+  "Diddy": 61,
+  "Nike": 52,
   "Liam": 51,
   "Taylor Swift": 42,
   "Kamala Harris": 38,
@@ -17,15 +17,15 @@
   "Ariana Grande": 8,
   "Meghan Markle": 7,
   "Obama": 6,
-  "Selena Gomez": 6,
-  "Beyonc\u00e9": 6,
+  "Selena Gomez": 5,
+  "Beyonc\u00e9": 5,
   "Cardi B": 5,
   "Tom Brady": 4,
   "Ryan Reynolds": 4,
   "Eminem": 3,
   "Sydney Sweeney": 3,
   "Zendaya": 3,
-  "Tom Holland": 3,
+  "Tom Holland": 2,
   "Olivia Rodrigo": 2,
   "Chappell Roan": 2,
   "Jennifer Lawrence": 2,
@@ -80,5 +80,6 @@
   "Sandra Oh": 0,
   "Tyler The Creator": 0,
   "Bryan Cranston": 0,
-  "Freddie Gibbs": 0
+  "Freddie Gibbs": 0,
+  "Desi Lydic": 0
 }
