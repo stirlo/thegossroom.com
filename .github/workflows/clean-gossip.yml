@@ -1,11 +1,11 @@
-name: Clean Old Gossip Entries
+name: Clean Old Gossip Entries and Track Celebrities
 on:
   schedule:
     - cron: '0 0 * * *'  # Daily at midnight
-  workflow_dispatch:      # Manual trigger option
+  workflow_dispatch:      
 
 jobs:
-  cleanup:
+  cleanup-and-track:
     runs-on: ubuntu-latest
     permissions:
       contents: write
@@ -18,29 +18,83 @@ jobs:
         with:
           node-version: '16'
 
-      - name: Clean Old Entries
+      - name: Process Entries and Update Lists
         run: |
           const fs = require('fs');
-          const path = require('path');
 
-          // Read and clean data
+          // Read existing celebrities (permanent list that only grows)
+          const celebsList = fs.readFileSync('celebrities.txt', 'utf8')
+            .split('\n')
+            .filter(Boolean)
+            .map(name => name.toLowerCase().trim());
+
           const filePath = 'data/gossip_data.json';
           const data = JSON.parse(fs.readFileSync(filePath, 'utf8'));
 
-          const now = new Date();
-          const cutoffDate = new Date(now.setDate(now.getDate() - 7));  // 7 days is perfect for gossip
+          // Track mentions in current cycle
+          const mentionCounts = new Map();
+          celebsList.forEach(celeb => mentionCounts.set(celeb, 0));
 
-          // Clean main entries
+          // Track potential new celebrities
+          const newNameFrequencies = new Map();
+          const properNameRegex = /([A-Z][a-z]+(?:\s+[A-Z][a-z]+)*)/g;
+
+          [...data.entries, ...data.fallback_entries].forEach(entry => {
+            const text = `${entry.title} ${entry.description || ''}`.toLowerCase();
+
+            // Count existing celebrity mentions
+            celebsList.forEach(celeb => {
+              if (text.includes(celeb)) {
+                mentionCounts.set(celeb, mentionCounts.get(celeb) + 1);
+              }
+            });
+
+            // Track new names
+            const matches = text.match(properNameRegex) || [];
+            matches.forEach(name => {
+              const normalized = name.toLowerCase().trim();
+              if (!celebsList.includes(normalized)) {
+                newNameFrequencies.set(name, (newNameFrequencies.get(name) || 0) + 1);
+              }
+            });
+          });
+
+          // Get dormant celebrities for not.txt (rewritten daily)
+          const dormantCelebs = Array.from(mentionCounts.entries())
+            .filter(([_, count]) => count === 0)
+            .map(([name]) => name)
+            .sort();
+
+          // Get new celebrities to add to permanent list
+          const newCelebs = Array.from(newNameFrequencies.entries())
+            .filter(([_, count]) => count >= 3)
+            .map(([name]) => name)
+            .sort();
+
+          // Update not.txt (gets rewritten daily)
+          fs.writeFileSync('not.txt', dormantCelebs.join('\n') + '\n');
+
+          // Update celebrities.txt (only grows)
+          if (newCelebs.length > 0) {
+            const newContent = [...new Set([...celebsList, ...newCelebs])].sort().join('\n');
+            fs.writeFileSync('celebrities.txt', newContent + '\n');
+          }
+
+          // Clean old entries (7 days)
+          const now = new Date();
+          const cutoffDate = new Date(now.setDate(now.getDate() - 7));
+
           data.entries = data.entries
             .filter(entry => new Date(entry.published) > cutoffDate)
             .sort((a, b) => new Date(b.published) - new Date(a.published));
 
-          // Clean fallback entries
           data.fallback_entries = data.fallback_entries
             .filter(entry => new Date(entry.published) > cutoffDate)
             .sort((a, b) => new Date(b.published) - new Date(a.published));
 
-          // Save cleaned data
+          // Update JSON with current lists
+          data.not_this_week = dormantCelebs;
+
           fs.writeFileSync(filePath, JSON.stringify(data, null, 2));
         shell: node {0}
 
@@ -48,10 +102,10 @@ jobs:
         run: |
           git config --local user.email "github-actions[bot]@users.noreply.github.com"
           git config --local user.name "github-actions[bot]"
-          git add data/gossip_data.json
+          git add data/gossip_data.json celebrities.txt not.txt
           if git diff --quiet && git diff --staged --quiet; then
             echo "No changes to commit"
           else
-            git commit -m "chore: remove gossip entries older than 7 days"
+            git commit -m "chore: update celebrity lists and clean entries"
             git push
           fi
