@@ -22,7 +22,7 @@ jobs:
         run: |
           const fs = require('fs');
 
-          // Read existing celebrities
+          // Read existing celebrities and current data
           const celebsList = fs.readFileSync('celebrities.txt', 'utf8')
             .split('\n')
             .filter(Boolean)
@@ -31,7 +31,10 @@ jobs:
           const filePath = 'data/gossip_data.json';
           const data = JSON.parse(fs.readFileSync(filePath, 'utf8'));
 
-          // Clean old entries first (7 days)
+          // Preserve existing ranks if they exist
+          const existingRanks = data.celebrity_ranks || {};
+
+          // Clean old entries (7 days)
           const now = new Date();
           const cutoffDate = new Date(now.setDate(now.getDate() - 7));
 
@@ -43,14 +46,13 @@ jobs:
             .filter(entry => new Date(entry.published) > cutoffDate)
             .sort((a, b) => new Date(b.published) - new Date(a.published));
 
-          // Reset tracking maps for fresh daily counts
+          // Track mentions and new names
           const mentionCounts = new Map();
           const newNameFrequencies = new Map();
           const properNameRegex = /([A-Z][a-z]+(?:\s+[A-Z][a-z]+)*)/g;
 
           celebsList.forEach(celeb => mentionCounts.set(celeb, 0));
 
-          // Only count mentions from current entries
           [...data.entries, ...data.fallback_entries].forEach(entry => {
             const textLower = `${entry.title} ${entry.description || ''}`.toLowerCase();
             const textOriginal = `${entry.title} ${entry.description || ''}`;
@@ -62,7 +64,7 @@ jobs:
               }
             });
 
-            // Track potential new names (keeping original case)
+            // Track potential new names
             const matches = textOriginal.match(properNameRegex) || [];
             matches.forEach(name => {
               const normalized = name.toLowerCase().trim();
@@ -72,7 +74,17 @@ jobs:
             });
           });
 
-          // Process upcoming names (2+ mentions in current entries)
+          // Process lists
+          const hotCelebs = Array.from(mentionCounts.entries())
+            .filter(([_, count]) => count > 0)
+            .map(([name, count]) => [name, count])
+            .sort((a, b) => b[1] - a[1]);
+
+          const dormantCelebs = Array.from(mentionCounts.entries())
+            .filter(([_, count]) => count === 0)
+            .map(([name]) => name)
+            .sort();
+
           const upcomingNames = Array.from(newNameFrequencies.entries())
             .filter(([_, count]) => count >= 2 && count < 3)
             .map(([name, count]) => [name, count])
@@ -83,12 +95,6 @@ jobs:
             .filter(([_, count]) => count >= 3)
             .map(([name]) => name);
 
-          // Get dormant celebrities
-          const dormantCelebs = Array.from(mentionCounts.entries())
-            .filter(([_, count]) => count === 0)
-            .map(([name]) => name)
-            .sort();
-
           // Update files
           fs.writeFileSync('not.txt', dormantCelebs.join('\n') + '\n');
 
@@ -97,9 +103,11 @@ jobs:
             fs.writeFileSync('celebrities.txt', updatedCelebs.sort().join('\n') + '\n');
           }
 
-          // Reset and update JSON structure daily
+          // Update JSON structure while preserving ranks
+          data.celebrity_ranks = existingRanks; // Preserve existing ranks
+          data.hot_this_week = hotCelebs.slice(0, 10); // Top 10 most mentioned
           data.not_this_week = dormantCelebs;
-          data.upcoming_new_names = upcomingNames; // Fresh daily list
+          data.upcoming_new_names = upcomingNames;
 
           fs.writeFileSync(filePath, JSON.stringify(data, null, 2));
         shell: node {0}
@@ -112,6 +120,6 @@ jobs:
           if git diff --quiet && git diff --staged --quiet; then
             echo "No changes to commit"
           else
-            git commit -m "chore: daily refresh of lists and upcoming names"
+            git commit -m "chore: update celebrity tracking and ranks"
             git push
           fi
