@@ -1,0 +1,57 @@
+name: Clean Old Gossip Entries
+on:
+  schedule:
+    - cron: '0 0 * * *'  # Daily at midnight
+  workflow_dispatch:      # Manual trigger option
+
+jobs:
+  cleanup:
+    runs-on: ubuntu-latest
+    permissions:
+      contents: write
+
+    steps:
+      - uses: actions/checkout@v3
+
+      - name: Setup Node
+        uses: actions/setup-node@v3
+        with:
+          node-version: '16'
+
+      - name: Clean Old Entries
+        run: |
+          const fs = require('fs');
+          const path = require('path');
+
+          // Read and clean data
+          const filePath = 'data/gossip_data.json';
+          const data = JSON.parse(fs.readFileSync(filePath, 'utf8'));
+
+          const now = new Date();
+          const cutoffDate = new Date(now.setDate(now.getDate() - 7));  // 7 days is perfect for gossip
+
+          // Clean main entries
+          data.entries = data.entries
+            .filter(entry => new Date(entry.published) > cutoffDate)
+            .sort((a, b) => new Date(b.published) - new Date(a.published));
+
+          // Clean fallback entries
+          data.fallback_entries = data.fallback_entries
+            .filter(entry => new Date(entry.published) > cutoffDate)
+            .sort((a, b) => new Date(b.published) - new Date(a.published));
+
+          // Save cleaned data
+          fs.writeFileSync(filePath, JSON.stringify(data, null, 2));
+        shell: node {0}
+
+      - name: Commit changes
+        run: |
+          git config --local user.email "github-actions[bot]@users.noreply.github.com"
+          git config --local user.name "github-actions[bot]"
+          git add data/gossip_data.json
+          if git diff --quiet && git diff --staged --quiet; then
+            echo "No changes to commit"
+          else
+            git commit -m "chore: remove gossip entries older than 7 days"
+            git push
+          fi
