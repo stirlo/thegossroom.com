@@ -1,140 +1,123 @@
-// Add logging and error handling
 const fs = require('fs');
+const path = require('path');
 
-// Helper function for logging
-function log(message) {
-    console.log(`[${new Date().toISOString()}] ${message}`);
+// File paths
+const dataPath = path.join(__dirname, 'data', 'gossip_data.json');
+const celebsPath = path.join(__dirname, 'celebrities.txt');
+
+// Read files
+const data = JSON.parse(fs.readFileSync(dataPath, 'utf8'));
+let celebsList = fs.existsSync(celebsPath) 
+    ? fs.readFileSync(celebsPath, 'utf8').split('\n').filter(Boolean)
+    : [];
+
+// Time windows
+const now = new Date();
+const oneMonthAgo = new Date(now.setMonth(now.getMonth() - 1));
+const oneWeekAgo = new Date(new Date().setDate(new Date().getDate() - 7));
+
+// Initialize tracking
+const mentionCounts = new Map();
+const newNameFrequencies = new Map();
+const properNameRegex = /([A-Z][a-z]+(?:\s+[A-Z][a-z]+)*)/g;
+
+// Clean old entries
+data.entries = data.entries.filter(entry => new Date(entry.published) > oneMonthAgo);
+data.fallback_entries = data.fallback_entries.filter(entry => new Date(entry.published) > oneMonthAgo);
+
+// Process recent entries for mentions
+const recentEntries = [...data.entries, ...data.fallback_entries]
+    .filter(entry => new Date(entry.published) > oneWeekAgo);
+
+// Track mentions and topics
+const topicMentions = new Map();
+const hourlyTopics = {};
+for (let i = 1; i <= 10; i++) {
+    hourlyTopics[i.toString()] = [];
 }
 
-try {
-    // Ensure data directory exists
-    if (!fs.existsSync('data')) {
-        fs.mkdirSync('data');
-        log('Created data directory');
-    }
+recentEntries.forEach(entry => {
+    const textLower = `${entry.title} ${entry.description || ''}`.toLowerCase();
+    const textOriginal = `${entry.title} ${entry.description || ''}`;
+    const entryDate = new Date(entry.published);
+    const hoursAgo = Math.floor((now - entryDate) / (1000 * 60 * 60));
 
-    // Initialize or read gossip_data.json with error handling
-    const filePath = 'data/gossip_data.json';
-    let data;
+    // Count celebrity mentions
+    celebsList.forEach(celeb => {
+        if (textLower.includes(celeb.toLowerCase())) {
+            mentionCounts.set(celeb, (mentionCounts.get(celeb) || 0) + 1);
 
-    try {
-        if (fs.existsSync(filePath)) {
-            const fileContent = fs.readFileSync(filePath, 'utf8');
-            data = JSON.parse(fileContent);
-            log(`Successfully loaded JSON file (${(fileContent.length / 1024 / 1024).toFixed(2)}MB)`);
-            log(`Found ${data.entries.length} entries and ${data.fallback_entries.length} fallback entries`);
-        } else {
-            data = {
-                entries: [],
-                fallback_entries: [],
-                hourly_topics: {
-                    "1": [], "2": [], "3": [], "4": [], "5": [],
-                    "6": [], "7": [], "8": [], "9": [], "10": []
-                },
-                weekly_popularity: [],
-                hot_this_week: [],
-                not_this_week: [],
-                upcoming_new_names: []
-            };
-            log('Created new data structure');
-        }
-    } catch (error) {
-        log(`Error reading/parsing JSON: ${error.message}`);
-        throw error;
-    }
+            // Track topic mentions for popularity
+            topicMentions.set(celeb, (topicMentions.get(celeb) || 0) + 1);
 
-    // Read celebrities.txt with logging
-    const celebsPath = 'celebrities.txt';
-    let celebsList = [];
-    try {
-        if (fs.existsSync(celebsPath)) {
-            celebsList = fs.readFileSync(celebsPath, 'utf8')
-                .split('\n')
-                .filter(Boolean)
-                .map(name => name.toLowerCase().trim());
-            log(`Loaded ${celebsList.length} celebrities from file`);
-        } else {
-            fs.writeFileSync(celebsPath, '');
-            log('Created empty celebrities.txt');
-        }
-    } catch (error) {
-        log(`Error reading celebrities.txt: ${error.message}`);
-        throw error;
-    }
-
-    // Process in chunks if data is large
-    const chunkSize = 100; // Process 100 entries at a time
-    const mentionCounts = new Map();
-    const newNameFrequencies = new Map();
-    const properNameRegex = /([A-Z][a-z]+(?:\s+[A-Z][a-z]+)*)/g;
-
-    celebsList.forEach(celeb => mentionCounts.set(celeb, 0));
-
-    // Process entries in chunks
-    function processEntriesChunk(entries, startIdx) {
-        const endIdx = Math.min(startIdx + chunkSize, entries.length);
-        const chunk = entries.slice(startIdx, endIdx);
-
-        chunk.forEach(entry => {
-            const textLower = `${entry.title} ${entry.description || ''}`.toLowerCase();
-            const textOriginal = `${entry.title} ${entry.description || ''}`;
-
-            celebsList.forEach(celeb => {
-                if (textLower.includes(celeb)) {
-                    mentionCounts.set(celeb, (mentionCounts.get(celeb) || 0) + 1);
+            // Add to hourly topics if within last 10 hours
+            if (hoursAgo <= 10) {
+                const hourBucket = Math.min(Math.max(Math.ceil(hoursAgo), 1), 10);
+                if (!hourlyTopics[hourBucket.toString()].includes(celeb)) {
+                    hourlyTopics[hourBucket.toString()].push(celeb);
                 }
-            });
+            }
+        }
+    });
 
-            const matches = textOriginal.match(properNameRegex) || [];
-            matches.forEach(name => {
-                const normalized = name.toLowerCase().trim();
-                if (!celebsList.includes(normalized)) {
-                    newNameFrequencies.set(name, (newNameFrequencies.get(name) || 0) + 1);
-                }
-            });
-        });
+    // Track new names
+    const matches = textOriginal.match(properNameRegex) || [];
+    matches.forEach(name => {
+        if (!celebsList.includes(name)) {
+            newNameFrequencies.set(name, (newNameFrequencies.get(name) || 0) + 1);
+        }
+    });
+});
 
-        return endIdx < entries.length ? processEntriesChunk(entries, endIdx) : Promise.resolve();
-    }
+// Add new frequently mentioned names
+const newCelebs = Array.from(newNameFrequencies.entries())
+    .filter(([name, count]) => count >= 3 && !celebsList.includes(name))
+    .map(([name]) => name);
 
-    // Process all entries
-    const allEntries = [...data.entries, ...data.fallback_entries];
-    log(`Processing ${allEntries.length} total entries`);
-
-    await processEntriesChunk(allEntries, 0);
-
-    // Update lists with logging
-    data.hot_this_week = Array.from(mentionCounts.entries())
-        .filter(([_, count]) => count > 0)
-        .map(([name, count]) => [name, count])
-        .sort((a, b) => b[1] - a[1]);
-    log(`Updated hot_this_week with ${data.hot_this_week.length} entries`);
-
-    data.not_this_week = Array.from(mentionCounts.entries())
-        .filter(([_, count]) => count === 0)
-        .map(([name]) => name)
-        .sort();
-    log(`Updated not_this_week with ${data.not_this_week.length} entries`);
-
-    // Log potential new celebrities
-    const newCelebs = Array.from(newNameFrequencies.entries())
-        .filter(([_, count]) => count >= 3)
-        .map(([name]) => name);
-    log(`Found ${newCelebs.length} potential new celebrities`);
-
-    if (newCelebs.length > 0) {
-        const updatedCelebs = [...new Set([...celebsList, ...newCelebs.map(name => name.toLowerCase())])];
-        fs.writeFileSync(celebsPath, updatedCelebs.sort().join('\n') + '\n');
-        log(`Added ${updatedCelebs.length - celebsList.length} new celebrities`);
-    }
-
-    // Write updated JSON with size check
-    const jsonOutput = JSON.stringify(data, null, 2);
-    log(`Output JSON size: ${(jsonOutput.length / 1024 / 1024).toFixed(2)}MB`);
-    fs.writeFileSync(filePath, jsonOutput);
-    log('Successfully wrote updated JSON file');
-
-} catch (error) {
-    log(`Fatal error: ${error.message}`);
-    process.exit(1);
+if (newCelebs.length > 0) {
+    celebsList = [...celebsList, ...newCelebs].sort();
+    fs.writeFileSync(celebsPath, celebsList.join('\n') + '\n');
 }
+
+// Categorize celebrities with mention counts
+const hot_this_week = [];
+const not_this_week = [];
+const upcoming_new_names = [];
+
+celebsList.forEach(celeb => {
+    const mentions = mentionCounts.get(celeb) || 0;
+    if (mentions >= 5) {
+        hot_this_week.push([celeb, mentions]);
+    } else if (mentions >= 2) {
+        upcoming_new_names.push([celeb, mentions]);
+    } else {
+        not_this_week.push([celeb, mentions]);
+    }
+});
+
+// Sort categories by mention count
+hot_this_week.sort((a, b) => b[1] - a[1]);
+upcoming_new_names.sort((a, b) => b[1] - a[1]);
+not_this_week.sort((a, b) => b[1] - a[1]);
+
+// Weekly popularity chart (top 20 most mentioned)
+const weekly_popularity = Array.from(topicMentions.entries())
+    .sort((a, b) => b[1] - a[1])
+    .slice(0, 20);
+
+// Update data object with new categorizations
+data.hot_this_week = hot_this_week;
+data.not_this_week = not_this_week;
+data.upcoming_new_names = upcoming_new_names;
+data.weekly_popularity = weekly_popularity;
+data.hourly_topics = hourlyTopics;
+
+// Save updated data
+fs.writeFileSync(dataPath, JSON.stringify(data, null, 2));
+
+// Log results
+console.log('Cleanup completed:');
+console.log(`- Hot celebrities: ${hot_this_week.length}`);
+console.log(`- Upcoming celebrities: ${upcoming_new_names.length}`);
+console.log(`- Not trending: ${not_this_week.length}`);
+console.log(`- New celebrities added: ${newCelebs.length}`);
