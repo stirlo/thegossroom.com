@@ -25,7 +25,7 @@ jobs:
 
       - name: Upload logs
         if: always()
-        uses: actions/upload-artifact@v2
+        uses: actions/upload-artifact@v4  # Updated from v2 to v4
         with:
           name: cleanup-logs
           path: cleanup.log
