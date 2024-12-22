@@ -27,7 +27,10 @@ jobs:
 
           try {
               const data = JSON.parse(readFileSync(dataPath, 'utf8'));
+              const fileSizeBefore = Buffer.byteLength(JSON.stringify(data)) / (1024 * 1024);
+              console.log(`File size before cleanup: ${fileSizeBefore.toFixed(2)} MB`);
               console.log(`Original entries count: ${data.entries?.length || 0}`);
+              console.log(`Original fallback entries count: ${data.fallback_entries?.length || 0}`);
 
               // Store drama scores
               const dramaScores = new Map();
@@ -41,13 +44,28 @@ jobs:
 
               // Set 7-day window
               const now = new Date();
-              const oneWeekAgo = new Date();
-              oneWeekAgo.setDate(now.getDate() - 7);
+              const oneWeekAgo = new Date(now - 7 * 24 * 60 * 60 * 1000);
 
               console.log(`Filtering entries older than ${oneWeekAgo.toISOString()}`);
 
-              // Filter entries
+              // Filter entries with strict date checking
+              const oldEntries = (data.entries || []).filter(entry => {
+                  const entryDate = new Date(entry.published);
+                  return entryDate <= oneWeekAgo;
+              });
+
               data.entries = (data.entries || []).filter(entry => {
+                  const entryDate = new Date(entry.published);
+                  return entryDate > oneWeekAgo;
+              });
+
+              // Filter fallback entries
+              const oldFallbackEntries = (data.fallback_entries || []).filter(entry => {
+                  const entryDate = new Date(entry.published);
+                  return entryDate <= oneWeekAgo;
+              });
+
+              data.fallback_entries = (data.fallback_entries || []).filter(entry => {
                   const entryDate = new Date(entry.published);
                   return entryDate > oneWeekAgo;
               });
@@ -59,8 +77,23 @@ jobs:
                   }
               });
 
-              console.log(`Remaining entries: ${data.entries.length}`);
-              console.log(`Preserved drama scores: ${dramaScores.size}`);
+              // Log removed entries details
+              console.log('\nRemoved entries dates:');
+              oldEntries.slice(0, 5).forEach(entry => {
+                  console.log(`- ${entry.published}: ${entry.title}`);
+              });
+
+              const fileSizeAfter = Buffer.byteLength(JSON.stringify(data)) / (1024 * 1024);
+
+              console.log('\nCleanup Summary:');
+              console.log(`- Removed main entries: ${oldEntries.length}`);
+              console.log(`- Removed fallback entries: ${oldFallbackEntries.length}`);
+              console.log(`- Remaining main entries: ${data.entries.length}`);
+              console.log(`- Remaining fallback entries: ${data.fallback_entries.length}`);
+              console.log(`- Preserved drama scores: ${dramaScores.size}`);
+              console.log(`- File size before: ${fileSizeBefore.toFixed(2)} MB`);
+              console.log(`- File size after: ${fileSizeAfter.toFixed(2)} MB`);
+              console.log(`- Size reduction: ${((fileSizeBefore - fileSizeAfter).toFixed(2))} MB`);
 
               writeFileSync(dataPath, JSON.stringify(data, null, 2));
 
