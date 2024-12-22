@@ -1,8 +1,8 @@
 name: Clean Old Gossip Entries and Track Celebrities
 on:
   schedule:
-    - cron: '0 0 * * *'  # Daily at midnight
-  workflow_dispatch:      
+    - cron: '0 * * * *'  # Runs hourly
+  workflow_dispatch:      # Allows manual trigger
 
 jobs:
   cleanup-and-track:
@@ -20,111 +20,15 @@ jobs:
 
       - name: Process Entries and Update Lists
         run: |
-          const fs = require('fs');
+          node cleanup-script.js
+        continue-on-error: true
 
-          // Ensure data directory exists
-          if (!fs.existsSync('data')) {
-              fs.mkdirSync('data');
-          }
-
-          // Initialize or read gossip_data.json
-          const filePath = 'data/gossip_data.json';
-          let data;
-
-          if (!fs.existsSync(filePath)) {
-              data = {
-                  entries: [],
-                  fallback_entries: [],
-                  hourly_topics: {
-                      "1": [], "2": [], "3": [], "4": [], "5": [],
-                      "6": [], "7": [], "8": [], "9": [], "10": []
-                  },
-                  weekly_popularity: [],
-                  hot_this_week: [],
-                  not_this_week: [],
-                  upcoming_new_names: []
-              };
-          } else {
-              data = JSON.parse(fs.readFileSync(filePath, 'utf8'));
-          }
-
-          // Initialize or read celebrities.txt
-          if (!fs.existsSync('celebrities.txt')) {
-              fs.writeFileSync('celebrities.txt', '');
-          }
-
-          const celebsList = fs.readFileSync('celebrities.txt', 'utf8')
-              .split('\n')
-              .filter(Boolean)
-              .map(name => name.toLowerCase().trim());
-
-          // Clean old entries (7 days)
-          const now = new Date();
-          const cutoffDate = new Date(now.setDate(now.getDate() - 7));
-
-          data.entries = data.entries
-              .filter(entry => new Date(entry.published) > cutoffDate)
-              .sort((a, b) => new Date(b.published) - new Date(a.published));
-
-          data.fallback_entries = data.fallback_entries
-              .filter(entry => new Date(entry.published) > cutoffDate)
-              .sort((a, b) => new Date(b.published) - new Date(a.published));
-
-          // Track mentions and new names
-          const mentionCounts = new Map();
-          const newNameFrequencies = new Map();
-          const properNameRegex = /([A-Z][a-z]+(?:\s+[A-Z][a-z]+)*)/g;
-
-          celebsList.forEach(celeb => mentionCounts.set(celeb, 0));
-
-          [...data.entries, ...data.fallback_entries].forEach(entry => {
-              const textLower = `${entry.title} ${entry.description || ''}`.toLowerCase();
-              const textOriginal = `${entry.title} ${entry.description || ''}`;
-
-              celebsList.forEach(celeb => {
-                  if (textLower.includes(celeb)) {
-                      mentionCounts.set(celeb, mentionCounts.get(celeb) + 1);
-                  }
-              });
-
-              const matches = textOriginal.match(properNameRegex) || [];
-              matches.forEach(name => {
-                  const normalized = name.toLowerCase().trim();
-                  if (!celebsList.includes(normalized)) {
-                      newNameFrequencies.set(name, (newNameFrequencies.get(name) || 0) + 1);
-                  }
-              });
-          });
-
-          // Update hot/not/upcoming lists
-          data.hot_this_week = Array.from(mentionCounts.entries())
-              .filter(([_, count]) => count > 0)
-              .map(([name, count]) => [name, count])
-              .sort((a, b) => b[1] - a[1]);
-
-          data.not_this_week = Array.from(mentionCounts.entries())
-              .filter(([_, count]) => count === 0)
-              .map(([name]) => name)
-              .sort();
-
-          data.upcoming_new_names = Array.from(newNameFrequencies.entries())
-              .filter(([_, count]) => count >= 2 && count < 3)
-              .map(([name, count]) => [name, count])
-              .sort((a, b) => b[1] - a[1]);
-
-          // Add new celebrities to permanent list
-          const newCelebs = Array.from(newNameFrequencies.entries())
-              .filter(([_, count]) => count >= 3)
-              .map(([name]) => name);
-
-          if (newCelebs.length > 0) {
-              const updatedCelebs = [...new Set([...celebsList, ...newCelebs.map(name => name.toLowerCase())])];
-              fs.writeFileSync('celebrities.txt', updatedCelebs.sort().join('\n') + '\n');
-          }
-
-          // Write updated JSON
-          fs.writeFileSync(filePath, JSON.stringify(data, null, 2));
-        shell: node {0}
+      - name: Upload logs
+        if: always()
+        uses: actions/upload-artifact@v2
+        with:
+          name: cleanup-logs
+          path: cleanup.log
 
       - name: Commit changes
         run: |
