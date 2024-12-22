@@ -1,6 +1,6 @@
 name: Aggressive Cleanup
 on:
-  workflow_dispatch:  # Allows manual triggering
+  workflow_dispatch:
 
 jobs:
   cleanup:
@@ -16,14 +16,17 @@ jobs:
       - name: Run aggressive cleanup
         run: |
           cat > aggressive-cleanup.js << 'EOL'
-          const fs = require('fs');
-          const path = require('path');
+          import { readFileSync, writeFileSync } from 'fs';
+          import { join } from 'path';
+          import { fileURLToPath } from 'url';
 
-          const dataPath = path.join(process.cwd(), 'data', 'gossip_data.json');
+          const __dirname = fileURLToPath(new URL('.', import.meta.url));
+          const dataPath = join(process.cwd(), 'data', 'gossip_data.json');
+
           console.log('Starting aggressive cleanup...');
 
           try {
-              const data = JSON.parse(fs.readFileSync(dataPath, 'utf8'));
+              const data = JSON.parse(readFileSync(dataPath, 'utf8'));
               console.log(`Original entries count: ${data.entries?.length || 0}`);
 
               // Store drama scores
@@ -59,7 +62,7 @@ jobs:
               console.log(`Remaining entries: ${data.entries.length}`);
               console.log(`Preserved drama scores: ${dramaScores.size}`);
 
-              fs.writeFileSync(dataPath, JSON.stringify(data, null, 2));
+              writeFileSync(dataPath, JSON.stringify(data, null, 2));
 
           } catch (error) {
               console.error('Error during cleanup:', error);
