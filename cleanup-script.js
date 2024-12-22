@@ -4,120 +4,119 @@ const path = require('path');
 // File paths
 const dataPath = path.join(__dirname, 'data', 'gossip_data.json');
 const celebsPath = path.join(__dirname, 'celebrities.txt');
+const debugLogPath = path.join(__dirname, 'cleanup-debug.log');
 
-// Read files
-const data = JSON.parse(fs.readFileSync(dataPath, 'utf8'));
-let celebsList = fs.existsSync(celebsPath) 
-    ? fs.readFileSync(celebsPath, 'utf8').split('\n').filter(Boolean)
-    : [];
+// Initialize debug logging
+const debugLog = [];
 
-// Time windows
-const now = new Date();
-const oneMonthAgo = new Date(now.setMonth(now.getMonth() - 1));
-const oneWeekAgo = new Date(new Date().setDate(new Date().getDate() - 7));
-
-// Initialize tracking
-const mentionCounts = new Map();
-const newNameFrequencies = new Map();
-const properNameRegex = /([A-Z][a-z]+(?:\s+[A-Z][a-z]+)*)/g;
-
-// Clean old entries
-data.entries = data.entries.filter(entry => new Date(entry.published) > oneMonthAgo);
-data.fallback_entries = data.fallback_entries.filter(entry => new Date(entry.published) > oneMonthAgo);
-
-// Process recent entries for mentions
-const recentEntries = [...data.entries, ...data.fallback_entries]
-    .filter(entry => new Date(entry.published) > oneWeekAgo);
-
-// Track mentions and topics
-const topicMentions = new Map();
-const hourlyTopics = {};
-for (let i = 1; i <= 10; i++) {
-    hourlyTopics[i.toString()] = [];
+function logDebug(message) {
+    debugLog.push(`${new Date().toISOString()}: ${message}`);
+    console.log(message);
 }
 
-recentEntries.forEach(entry => {
-    const textLower = `${entry.title} ${entry.description || ''}`.toLowerCase();
-    const textOriginal = `${entry.title} ${entry.description || ''}`;
-    const entryDate = new Date(entry.published);
-    const hoursAgo = Math.floor((now - entryDate) / (1000 * 60 * 60));
+try {
+    // Read and parse data
+    logDebug('Reading data files...');
+    const rawData = fs.readFileSync(dataPath, 'utf8');
+    const data = JSON.parse(rawData);
+    let celebsList = fs.existsSync(celebsPath) 
+        ? fs.readFileSync(celebsPath, 'utf8').split('\n').filter(Boolean)
+        : [];
 
-    // Count celebrity mentions
-    celebsList.forEach(celeb => {
-        if (textLower.includes(celeb.toLowerCase())) {
-            mentionCounts.set(celeb, (mentionCounts.get(celeb) || 0) + 1);
+    // Time windows
+    const now = new Date();
+    const oneMonthAgo = new Date();
+    oneMonthAgo.setMonth(now.getMonth() - 1);
 
-            // Track topic mentions for popularity
-            topicMentions.set(celeb, (topicMentions.get(celeb) || 0) + 1);
+    logDebug(`Filtering entries older than ${oneMonthAgo.toISOString()}`);
 
-            // Add to hourly topics if within last 10 hours
-            if (hoursAgo <= 10) {
-                const hourBucket = Math.min(Math.max(Math.ceil(hoursAgo), 1), 10);
-                if (!hourlyTopics[hourBucket.toString()].includes(celeb)) {
-                    hourlyTopics[hourBucket.toString()].push(celeb);
-                }
+    // Clean old entries with strict date filtering
+    const originalEntriesCount = data.entries.length;
+    const originalFallbackCount = data.fallback_entries.length;
+
+    data.entries = data.entries.filter(entry => {
+        const entryDate = new Date(entry.published);
+        return entryDate > oneMonthAgo;
+    });
+
+    data.fallback_entries = data.fallback_entries.filter(entry => {
+        const entryDate = new Date(entry.published);
+        return entryDate > oneMonthAgo;
+    });
+
+    logDebug(`Removed ${originalEntriesCount - data.entries.length} main entries`);
+    logDebug(`Removed ${originalFallbackCount - data.fallback_entries.length} fallback entries`);
+
+    // Process mentions for remaining entries
+    const mentionCounts = new Map();
+    const recentEntries = [...data.entries, ...data.fallback_entries];
+
+    logDebug(`Processing ${recentEntries.length} total entries`);
+
+    recentEntries.forEach(entry => {
+        const entryDate = new Date(entry.published);
+        logDebug(`Processing entry from ${entryDate.toISOString()}`);
+
+        const textLower = `${entry.title} ${entry.description || ''}`.toLowerCase();
+
+        celebsList.forEach(celeb => {
+            if (textLower.includes(celeb.toLowerCase())) {
+                mentionCounts.set(celeb, (mentionCounts.get(celeb) || 0) + 1);
             }
+        });
+    });
+
+    // Sort and categorize
+    const sortedMentions = Array.from(mentionCounts.entries())
+        .sort((a, b) => b[1] - a[1]);
+
+    logDebug('\nMention counts:');
+    sortedMentions.forEach(([celeb, count]) => {
+        logDebug(`${celeb}: ${count} mentions`);
+    });
+
+    // Categorize with adjusted thresholds
+    const categories = {
+        hot_this_week: [],
+        not_this_week: [],
+        upcoming_new_names: []
+    };
+
+    sortedMentions.forEach(([celeb, count]) => {
+        if (count >= 2) { // Lowered threshold for hot
+            categories.hot_this_week.push([celeb, count]);
+        } else if (count === 1) {
+            categories.upcoming_new_names.push([celeb, count]);
+        } else {
+            categories.not_this_week.push([celeb, count]);
         }
     });
 
-    // Track new names
-    const matches = textOriginal.match(properNameRegex) || [];
-    matches.forEach(name => {
-        if (!celebsList.includes(name)) {
-            newNameFrequencies.set(name, (newNameFrequencies.get(name) || 0) + 1);
+    // Add celebrities with no mentions to "not" category
+    celebsList.forEach(celeb => {
+        if (!mentionCounts.has(celeb)) {
+            categories.not_this_week.push([celeb, 0]);
         }
     });
-});
 
-// Add new frequently mentioned names
-const newCelebs = Array.from(newNameFrequencies.entries())
-    .filter(([name, count]) => count >= 3 && !celebsList.includes(name))
-    .map(([name]) => name);
+    // Update data object
+    data.hot_this_week = categories.hot_this_week;
+    data.not_this_week = categories.not_this_week;
+    data.upcoming_new_names = categories.upcoming_new_names;
+    data.weekly_popularity = sortedMentions.slice(0, 20);
 
-if (newCelebs.length > 0) {
-    celebsList = [...celebsList, ...newCelebs].sort();
-    fs.writeFileSync(celebsPath, celebsList.join('\n') + '\n');
+    // Save cleaned data
+    logDebug('Saving cleaned data...');
+    fs.writeFileSync(dataPath, JSON.stringify(data, null, 2));
+    fs.writeFileSync(debugLogPath, debugLog.join('\n'));
+
+    logDebug('Cleanup completed successfully');
+    logDebug(`- Hot celebrities: ${categories.hot_this_week.length}`);
+    logDebug(`- Upcoming celebrities: ${categories.upcoming_new_names.length}`);
+    logDebug(`- Not trending: ${categories.not_this_week.length}`);
+
+} catch (error) {
+    logDebug(`ERROR: ${error.message}`);
+    logDebug(error.stack);
+    process.exit(1);
 }
-
-// Categorize celebrities with mention counts
-const hot_this_week = [];
-const not_this_week = [];
-const upcoming_new_names = [];
-
-celebsList.forEach(celeb => {
-    const mentions = mentionCounts.get(celeb) || 0;
-    if (mentions >= 5) {
-        hot_this_week.push([celeb, mentions]);
-    } else if (mentions >= 2) {
-        upcoming_new_names.push([celeb, mentions]);
-    } else {
-        not_this_week.push([celeb, mentions]);
-    }
-});
-
-// Sort categories by mention count
-hot_this_week.sort((a, b) => b[1] - a[1]);
-upcoming_new_names.sort((a, b) => b[1] - a[1]);
-not_this_week.sort((a, b) => b[1] - a[1]);
-
-// Weekly popularity chart (top 20 most mentioned)
-const weekly_popularity = Array.from(topicMentions.entries())
-    .sort((a, b) => b[1] - a[1])
-    .slice(0, 20);
-
-// Update data object with new categorizations
-data.hot_this_week = hot_this_week;
-data.not_this_week = not_this_week;
-data.upcoming_new_names = upcoming_new_names;
-data.weekly_popularity = weekly_popularity;
-data.hourly_topics = hourlyTopics;
-
-// Save updated data
-fs.writeFileSync(dataPath, JSON.stringify(data, null, 2));
-
-// Log results
-console.log('Cleanup completed:');
-console.log(`- Hot celebrities: ${hot_this_week.length}`);
-console.log(`- Upcoming celebrities: ${upcoming_new_names.length}`);
-console.log(`- Not trending: ${not_this_week.length}`);
-console.log(`- New celebrities added: ${newCelebs.length}`);
