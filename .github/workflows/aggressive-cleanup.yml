@@ -1,0 +1,77 @@
+name: Aggressive Cleanup
+on:
+  workflow_dispatch:  # Allows manual triggering
+
+jobs:
+  cleanup:
+    runs-on: ubuntu-latest
+    steps:
+      - uses: actions/checkout@v4
+
+      - name: Setup Node.js
+        uses: actions/setup-node@v4
+        with:
+          node-version: '18'
+
+      - name: Run aggressive cleanup
+        run: |
+          cat > aggressive-cleanup.js << 'EOL'
+          const fs = require('fs');
+          const path = require('path');
+
+          const dataPath = path.join(process.cwd(), 'data', 'gossip_data.json');
+          console.log('Starting aggressive cleanup...');
+
+          try {
+              const data = JSON.parse(fs.readFileSync(dataPath, 'utf8'));
+              console.log(`Original entries count: ${data.entries?.length || 0}`);
+
+              // Store drama scores
+              const dramaScores = new Map();
+              if (data.entries) {
+                  data.entries.forEach(entry => {
+                      if (entry.dramaScore) {
+                          dramaScores.set(entry.url, entry.dramaScore);
+                      }
+                  });
+              }
+
+              // Set 7-day window
+              const now = new Date();
+              const oneWeekAgo = new Date();
+              oneWeekAgo.setDate(now.getDate() - 7);
+
+              console.log(`Filtering entries older than ${oneWeekAgo.toISOString()}`);
+
+              // Filter entries
+              data.entries = (data.entries || []).filter(entry => {
+                  const entryDate = new Date(entry.published);
+                  return entryDate > oneWeekAgo;
+              });
+
+              // Restore drama scores
+              data.entries.forEach(entry => {
+                  if (dramaScores.has(entry.url)) {
+                      entry.dramaScore = dramaScores.get(entry.url);
+                  }
+              });
+
+              console.log(`Remaining entries: ${data.entries.length}`);
+              console.log(`Preserved drama scores: ${dramaScores.size}`);
+
+              fs.writeFileSync(dataPath, JSON.stringify(data, null, 2));
+
+          } catch (error) {
+              console.error('Error during cleanup:', error);
+              process.exit(1);
+          }
+          EOL
+          node aggressive-cleanup.js
+
+      - name: Commit changes
+        run: |
+          git config --local user.email "action@github.com"
+          git config --local user.name "GitHub Action"
+          git add data/gossip_data.json
+          git diff --staged --quiet || git commit -m "Aggressive cleanup - remove entries older than 1 week"
+          git push
