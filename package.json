@@ -18,7 +18,7 @@
     "node-fetch": "^3.3.2",
     "pino": "^8.21.0",
     "rss-parser": "^3.13.0",
-    "sass": "^1.66.1"
+    "sass": "^1.83.4"
   },
   "devDependencies": {
     "pino-pretty": "^10.3.1"
